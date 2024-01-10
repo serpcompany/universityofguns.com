@@ -80,12 +80,12 @@ const config = yaml.load(fs.readFileSync('src/config.yaml', 'utf8')) as {
   analytics?: unknown;
 };
 
-const DEFAULT_SITE_NAME = 'SERP Travel';
+const DEFAULT_SITE_NAME = 'University of Guns';
 
 const getSite = () => {
   const _default = {
     name: DEFAULT_SITE_NAME,
-    site: 'https://serptravel.github.io',
+    site: 'https://universityofguns.com',
     base: '',
     trailingSlash: false,
 

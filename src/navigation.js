@@ -7,7 +7,7 @@ export const headerData = {
       links: [
         {
           text: 'YouTube',
-          href: 'https://serp.ly/@serptravel/youtube',
+          href: 'https://serp.ly/@universityofguns/youtube',
           target: '_blank',
         },
       ],
@@ -35,7 +35,7 @@ export const footerData = {
     {
       title: 'Company',
       links: [
-        { text: 'Website', href: 'https://serp.travel' },
+        { text: 'Website', href: 'https://universityofguns.com' },
         { text: 'About', href: '/about' },
       ],
     },
@@ -50,11 +50,11 @@ export const footerData = {
     {
       title: 'Links',
       links: [
-        { text: 'Substack', href: 'https://serptravel.substack.com/', target: '_blank' },
-        { text: 'Hashnode', href: 'https://serptravel.hashnode.dev/', target: '_blank' },
-        { text: 'Medium', href: 'https://medium.com/serp-travel', target: '_blank' },
-        { text: 'Pages', href: 'https://serptravel.pages.dev', target: '_blank' },
-        { text: 'Pages', href: 'https://reddit.com/r/serptravel', target: '_blank' },
+        { text: 'Substack', href: 'https://universityofguns.substack.com/', target: '_blank' },
+        { text: 'Hashnode', href: 'https://universityofguns.hashnode.dev/', target: '_blank' },
+        { text: 'Medium', href: 'https://medium.com/universityofguns', target: '_blank' },
+        { text: 'Pages', href: 'https://universityofguns.pages.dev', target: '_blank' },
+        { text: 'Reddit', href: 'https://reddit.com/r/universityofguns', target: '_blank' },
       ],
     },
     {
@@ -73,14 +73,14 @@ export const footerData = {
 //     { text: 'Free Stuff', href: 'https://stuff' },
 //   ],
   socialLinks: [
-    { ariaLabel: 'X', icon: 'tabler:brand-x', href: 'https://serp.ly/@serptravel/twitter', target: '_blank' },
-    { ariaLabel: 'Instagram', icon: 'tabler:brand-instagram', href: 'https://serp.ly/@serptravel/instagram', target: '_blank' },
-    { ariaLabel: 'Facebook', icon: 'tabler:brand-facebook', href: 'https://serp.ly/@serptravel/facebook', target: '_blank' },
-    { ariaLabel: 'YouTube', icon: 'tabler:brand-youtube', href: 'https://serp.ly/@serptravel/youtube', target: '_blank' },
-    { ariaLabel: 'Linkedin', icon: 'tabler:brand-linkedin', href: 'https://serp.ly/@serptravel/linkedin', target: '_blank' },
-    { ariaLabel: 'TikTok', icon: 'tabler:brand-tiktok', href: 'https://serp.ly/@serptravel/tiktok', target: '_blank' },
-    { ariaLabel: 'Medium', icon: 'tabler:brand-medium', href: 'https://serp.ly/@serptravel/medium', target: '_blank' },
-    { ariaLabel: 'Reddit', icon: 'tabler:brand-reddit', href: 'https://serp.ly/@serptravel/reddit', target: '_blank' },
+    { ariaLabel: 'X', icon: 'tabler:brand-x', href: 'https://serp.ly/@universityofguns/twitter', target: '_blank' },
+    { ariaLabel: 'Instagram', icon: 'tabler:brand-instagram', href: 'https://serp.ly/@universityofguns/instagram', target: '_blank' },
+    { ariaLabel: 'Facebook', icon: 'tabler:brand-facebook', href: 'https://serp.ly/@universityofguns/facebook', target: '_blank' },
+    { ariaLabel: 'YouTube', icon: 'tabler:brand-youtube', href: 'https://serp.ly/@universityofguns/youtube', target: '_blank' },
+    { ariaLabel: 'Linkedin', icon: 'tabler:brand-linkedin', href: 'https://serp.ly/@universityofguns/linkedin', target: '_blank' },
+    { ariaLabel: 'TikTok', icon: 'tabler:brand-tiktok', href: 'https://serp.ly/@universityofguns/tiktok', target: '_blank' },
+    { ariaLabel: 'Medium', icon: 'tabler:brand-medium', href: 'https://serp.ly/@universityofguns/medium', target: '_blank' },
+    { ariaLabel: 'Reddit', icon: 'tabler:brand-reddit', href: 'https://serp.ly/@universityofguns/reddit', target: '_blank' },
   ],
  
 };
