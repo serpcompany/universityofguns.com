@@ -1,0 +1,39 @@
+---
+import Features2 from '~/components/widgets/Features2.astro';
+import Features3 from '~/components/widgets/Features3.astro';
+import Hero from '~/components/widgets/Hero.astro';
+import Stats from '~/components/widgets/Stats.astro';
+import Steps2 from '~/components/widgets/Steps2.astro';
+import Layout from '~/layouts/PageLayout.astro';
+
+const metadata = {
+  title: 'About',
+};
+---
+
+<Layout metadata={metadata}>
+  <!-- Hero Widget ******************* -->
+
+  <Hero
+    image={{
+      // src: 'src/assets/images/boxing-undefeated-logo-about.svg',
+      alt: 'SERP Travel',
+    }}
+  >
+    <Fragment slot="title">
+      About
+    </Fragment>
+
+    <Fragment slot="subtitle">
+        Welcome to SERP Travel, where every journey transforms into an unforgettable story. Our mission is to provide unique travel experiences that cater to the desires and dreams of modern adventurers. At SERP Travel, we believe that travel is not just about visiting new places, but about creating lasting memories and understanding the world better.
+        <br><br>
+        Founded by passionate travelers, our team comprises experts who are not just travel enthusiasts but also connoisseurs of culture, history, and nature. We specialize in curating personalized itineraries that go beyond the conventional tourist trails. Our focus is on immersive experiences, allowing you to engage deeply with the local culture, cuisine, and natural beauty of each destination.
+        <br><br>
+        What sets SERP Travel apart is our commitment to sustainable and responsible tourism. We collaborate with local communities and businesses to ensure that your travel has a positive impact. From eco-friendly accommodations to tours that support local artisans, our trips are designed to be as kind to the planet as they are exciting for our travelers.
+        <br><br>
+        Whether you're looking for a tranquil retreat, an adventurous expedition, or a cultural escapade, SERP Travel is your gateway to a world of extraordinary experiences. Join us, and let’s embark on a journey that extends beyond the map!
+  </Hero>
+
+
+
+</Layout>
