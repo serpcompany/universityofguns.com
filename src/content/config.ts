@@ -10,7 +10,7 @@ export async function GET(context) {
     // Generate the RSS feed
     return rss({
         title: 'University of Guns',
-        description: 'Adventure Awaits',
+        description: 'Learn to Shoot',
         site: context.site,
         items: blog.map((post) => ({
             title: post.data.title,
