@@ -1,0 +1,115 @@
+---
+
+title: New Jersey Concealed Carry Firearm Laws
+
+slug: /new jersey-concealed-carry-weapon-ccw-gun-laws/
+
+tags: 
+  - New Jersey Gun Laws
+  - Concealed Carry Laws
+
+publishDate: 2024-01-10T18:53:12Z
+
+category: Gun Laws
+
+---
+
+New Jersey: Gun Laws Summary
+----------------------------
+
+
+If you're a gun owner in New Jersey, it's important to understand the state's gun laws to avoid any legal issues. In New Jersey, a Firearms Purchaser Identification (FPID) card and a National Instant Criminal Background Check System (NICS) conducted through a federally licensed firearms dealer are required to buy a handgun from a private individual. To purchase handgun ammunition from dealers in the state, an FPID is also required. Both dealer purchases and private sales require a copy of the purchase permit to be sent to the New Jersey State Police Firearms Investigations Unit. It's essential to follow these regulations to avoid any legal issues.
+
+
+### Self-Defense
+
+
+New Jersey is a Castle Doctrine state, meaning there is no duty to retreat while in a person's dwelling. The use of force is justifiable when the actor reasonably believes it necessary to prevent an attempt to commit theft, criminal mischief, or other criminal interference with the actor's personal property or the possession of another for whose protection he or she acts. The use of force is also justifiable when the actor is in possession or control of premises or is licensed or privileged to be there and reasonably believes such force necessary to prevent or terminate the commission or attempted commission of a criminal trespass by such other person in or upon such premises. 
+
+
+#### Use of Force Upon or to Protect a Third Person
+
+
+The actor would be justified in using such force to protect himself or herself against the injury he or she believes to be threatened to the person whom he or she seeks to protect and the person whom the actor seeks to protect would be justified in using such protective force, and the actor reasonably believes that the intervention is necessary for the protection of such other person.
+
+
+#### Use of Force in Defense of Dwelling
+
+
+The use of force or deadly force upon or toward an intruder who is unlawfully in a dwelling is justifiable when the actor reasonably believes that the force is immediately necessary for the purpose of protecting himself or herself or other persons in the dwelling against the use of unlawful force by the intruder. A reasonable belief exists when the actor, to protect himself or herself or a third person, was in his or her dwelling at the time of the offense or was privileged to be thereon, and the encounter between the actor and intruder was sudden and unexpected, compelling the actor to act instantly.
+
+
+It's important to note that New Jersey is a shall-issue state with concealed weapons permits issued at the local level by municipal police departments or NJ State Police. Concealed carry is only legal with a NJ Permit to Carry a Handgun (PCH). PCH are issued to residents and non-residents, and a firearms training course is required for new applicants who must be at least 21 years old. In terms of reciprocity, New Jersey does not honor permits from any other states. Open carry is not explicitly prohibited in New Jersey state law, although a NJ Permit to Carry a Handgun (PCH) is required to carry a firearm in the State.
+
+
+New Jersey: Gun Laws at a Glance
+--------------------------------
+
+
+
+
+|  |  |
+| --- | --- |
+| Does New Jersey allow constitutional carry? | No. New Jersey is not a constitutional carry state. [[source](https://www.nraila.org/gun-laws/state-gun-laws/new-jersey/)] |
+| Is open carry permitted in New Jersey? | New Jersey law doesn't prohibit the open carrying of handguns for those with a NJ PCH. [[source](https://www.nraila.org/gun-laws/state-gun-laws/new-jersey/)] |
+| If New Jersey requires a permit to carry a concealed firearm, how are those permits issued? | New Jersey is a shall-issue state. [[source](https://www.nraila.org/gun-laws/state-gun-laws/new-jersey/)] |
+| What is the minimum age in New Jersey to get a concealed carry permit? | The minimum age to carry concealed in New Jersey is 21. [[source](https://www.nraila.org/gun-laws/state-gun-laws/new-jersey/)] |
+| Does New Jersey have magazine capacity restrictions for handguns? | No more than 10 rounds. In 2018, the Third Circuit held that New Jersey could redefine “large capacity ammunition magazine” as a box, drum, tube or other container which is capable of holding more than 10 rounds of ammunition to be fed continuously and directly into a semi-automatic firearm. There are exemptions for authorized military, law enforcement and for firearms that have been registered by persons that participate in certain competitive shooting matches. [[source](https://law.justia.com/cases/federal/appellate-courts/ca3/18-3170/18-3170-2018-12-05.html)] |
+| Can you concealed carry weapons other than handguns in New Jersey with a concealed carry permit (or under permitless carry if applicable)? | No. A New Jersey PCH does not allow for the concealed carry of weapons other than handguns. [[source](https://www.nraila.org/gun-laws/state-gun-laws/new-jersey/)] |
+| Is it legal to buy or use chemical spray/pepper spray in New Jersey? | Yes, any non-felon 18 or over may possess for the purpose of self-defense one pocket-sized device which contains and releases not more than three-quarters of an ounce of chemical substance not ordinarily capable of lethal use or of inflicting serious bodily injury, but rather is intended to produce temporary physical discomfort or disability through being vaporized or otherwise dispensed in the air. [[source](https://codes.findlaw.com/nj/title-2c-the-new-jersey-code-of-criminal-justice/nj-st-sect-2c-39-6.html)] |
+| Is it legal to own a taser or stun gun in New Jersey? | Yes. Stun guns and Tasers are legal to purchase and possess without a permit. The minimum age is 18 years old (N.J.A.C. 13:54-5.8). It is illegal to possess a stun gun or Taser while in or upon any part of the buildings or grounds of any school, college, university or other educational institution without the written authorization of the governing officer of the institution. [[source](http://njlaw.rutgers.edu/collections/njstats/showsect.php?title=2c&chapter=39&section=5&actn=getsect)] |
+| Does New Jersey have ammunition restrictions? | Yes. You must have a Firearms Purchaser Identification Card, a permit to purchase a handgun or a carry permit in order to buy handgun ammunition. The minimum age to purchase or possess handgun ammunition is 21 years old. Hollow-point and armor-piercing ammunition is prohibited. [[source](https://codes.findlaw.com/nj/title-2c-the-new-jersey-code-of-criminal-justice/nj-st-sect-2c-39-3.html)] |
+
+
+New Jersey: Carry Locations
+---------------------------
+
+
+
+
+|  |  |
+| --- | --- |
+| Can you carry or possess a firearm on hotel property in New Jersey? | New Jersey statutes don't specifically address firearms at hotels. Please note that each hotel develops their own policies and the individual hotel should be contacted to inquire about it's concealed carry policy. See the [Handguns at Hotels](https://www.nraila.org/gun-laws/state-gun-laws/new-jersey/handguns-at-hotels/) page for additional information. |
+| Can you carry a concealed handgun in a vehicle in New Jersey? | Yes, with a NJ PCH with the appropriate stipulations only. Without a legal purpose, no person may transport firearms in the State of New Jersey. Legal purposes include: taking a newly purchased firearm home from the dealer, taking a broken firearm to the gunsmith, traveling to and returning from a gun range, and moving to a legal place to engage in hunting or trapping. Without a NJ PCH, all firearms must be transported in a securely fastened case, unloaded, and separate from the ammunition. If transporting a gun in a car, it should not be accessible from the passenger compartment. If the gun must be carried in the passenger compartment, it MUST be in a locked container. It is illegal to carry a pistol or ammunition in the glovebox, even a locked one.  |
+| Does New Jersey have laws relating to storing firearms in private vehicles in an employee parking lot? | Not addressed in New Jersey state law, although employers may have a policy. |
+| Can you carry a concealed firearm at roadside rest areas in New Jersey? | Yes, with a NJ PCH.  |
+| Can you carry a concealed firearm in state/national parks, state/national forests and Wildlife Management Areas in New Jersey? | No. [[NJ Admin. Code § 7:2-2.17(b)](https://www.nj.gov/dep/njstateparkpolice/docs/Park%20Statutes.pdf)] |
+| Can you carry a concealed firearm in bars and restaurants that serve alcohol in New Jersey? | No. In October 2022, a new bill was passed prohibiting concealed carry in bars or restaurants where alcohol is served, and any other site or facility where alcohol is sold for consumption on the premises. A federal judge has overturned this aspect of the bill temporarily, pending appeal. [[NJ Gun Laws](https://www.nraila.org/gun-laws/state-gun-laws/new-jersey/)] |
+
+
+New Jersey: Key State Laws
+--------------------------
+
+
+
+
+|  |  |
+| --- | --- |
+| Is my New Jersey driver’s license linked to my New Jersey carry permit? | No. Your New Jersey driver’s license is not linked to your New Jersey carry permit. Therefore, a law enforcement officer (LEO) will not be notified that you are a concealed carry permit holder immediately when they run your driver’s license.  [[source](https://www.njsp.org/firearms/transport-firearm.shtml)] |
+| If yes, violating the sign would be considered to be a crime. If no, violating the sign would not be considered a criminal offense. | No. Not mentioned in state statutes. [[source](https://www.njleg.state.nj.us/)] |
+| Does New Jersey state law define brandishing? | No definition of brandishing was found in New Jersey law.  A person is guilty of a petty disorderly persons offense, if with purpose to cause public inconvenience, annoyance or alarm, or recklessly creating a risk thereof he engages in fighting or threatening, or in violent or tumultuous behavior; or creates a hazardous or physically dangerous condition by any act which serves no legitimate purpose of the actor. A person is guilty of assault if he attempts by physical menace to put another in fear of imminent serious bodily injury.  [[source](https://codes.findlaw.com/nj/title-2c-the-new-jersey-code-of-criminal-justice/nj-st-sect-2c-33-2.html)] [[source](https://codes.findlaw.com/nj/title-2c-the-new-jersey-code-of-criminal-justice/nj-st-sect-2c-12-1.html)] |
+| Does New Jersey have preemption laws related to concealed carry (i.e. Does state law supersede local laws regarding the possession of handguns)? | Yes, the state has preemption of firearms laws in New Jersey. [[source](https://codes.findlaw.com/nj/title-2c-the-new-jersey-code-of-criminal-justice/nj-st-sect-2c-1-5.html)] |
+| Does New Jersey have a red flag law? | New Jersey has a red flag law. A family or household member of a person, or law enforcement, may file a petition for an extreme risk protection order, prohibiting a person from having custody or control of, owning, possessing, purchasing or receiving a firearm. [[source](https://lis.njleg.state.nj.us/nxt/gateway.dll?f=templates&fn=default.htm&vid=Publish:10.1048/Enu)] |
+| Does New Jersey have laws regarding carrying a concealed firearm while using alcohol or drugs? | Not addressed in state statutes. As a responsibly armed American, regardless of the laws in your state, it is unwise to carry while under the influence of any substance that could impair your judgement, slow your reaction times, or impact your decision-making abilities. Any decision you make while carrying a firearm could have life-altering consequences. [[source](https://www.usconcealedcarry.com/resources/ccw_reciprocity_map/nj-gun-laws/)] |
+| Does New Jersey issue concealed carry permits to non-residents? | Yes. Out-of-state residents must apply to the New Jersey State Police station nearest to their geographic location using the same process as residents. [[source](https://www.njsp.org/firearms/transport-firearm.shtml)] |
+| Do you have a duty to inform a police officer that you're carrying a concealed firearm in New Jersey? | There is no duty to inform a law enforcement officer that you're carrying a concealed firearm in New Jersey. [[source](https://www.usconcealedcarry.com/resources/ccw_reciprocity_map/nj-gun-laws/)] |
+| Does New Jersey allow the public to access concealed carry registry information through public records law? | No, however the information is available for law enforcement. [[source](https://www.njsp.org/firearms/transport-firearm.shtml)] |
+
+
+New Jersey: Handgun Purchase and Possession
+-------------------------------------------
+
+
+
+
+|  |  |
+| --- | --- |
+| Is a permit required to purchase a handgun in New Jersey? | A permit to purchase a handgun, valid for 90 days is required for each handgun purchase. Only one handgun can be purchased within a 30-day period. A lifetime purchaser identification card is required for purchase of rifles and shotguns, as well as for purchases of handgun ammunition. [[NJSP Firearms Investigation Unit](https://nj.gov/njsp/firearms/)] |
+| Does my current New Jersey concealed carry permit exempt me from needing a background check when I purchase a firearm? | No. [[NJSP Firearms FAQs](https://www.njsp.org/firearms/firearms-faqs.shtml)] |
+| Is there a waiting period after purchasing a handgun in New Jersey? | Yes. A valid permit to purchase a handgun is required and at least 7 days must elapse since the date of application for the permit. The waiting period to obtain the permit itself can be as long as 30 days (45 days for non-residents) while the permit application is processed. [[NJSP Firearms FAQs](https://www.njsp.org/firearms/firearms-faqs.shtml)] |
+| What is the minimum age to possess and transport a handgun in New Jersey? | 21 years old is the minimum age to possess and transport a handgun in New Jersey. [[N.J. Stat. Ann. § 2C:58-6.1](http://njlaw.rutgers.edu/collections/njstats/showsect.php?title=2c&chapter=58&section=6.1&actn=getsect)] |
+| Can I possess/carry a handgun in my home without a permit? | Yes. New Jersey allows for anyone legally entitled to carry a firearm to keep or carry a firearm in his or her place of business, residence, or other land owned or possessed by him or her without a permit. [[N.J. Stat. Ann. § 2C:39-6e](https://codes.findlaw.com/nj/title-2c-the-new-jersey-code-of-criminal-justice/nj-st-sect-2c-39-6.html)] |
+| Do handguns need to be registered in New Jersey? | Firearms registration is voluntary, but since handgun purchase permit records are maintained by the New Jersey State Police Firearms Investigation Unit, there is de facto mandatory handgun registration for handguns purchased in state. Firearms which have been legally acquired in another state and are legal to possess in New Jersey may be brought to New Jersey by the owner when residency is established. According to the NJSP Firearms Investigation Unit's website, "the owner may voluntarily register the firearm(s) by completing a Voluntary Form of Firearms Registration [Form S.P. 650], found on this website, however the owner is not obligated to do so."  |
+| Are there exceptions? | Yes. A permit to purchase a handgun and a background check conducted through a federally licensed firearms dealer are required to buy a handgun.  A permit to purchase or a firearms purchaser identification card shall not be required for the passing of a firearm upon the death of an owner thereof to his or her heir or legatee. If the heir or legatee of the firearm does not qualify to possess or carry it, he or she may retain ownership of the firearm for the purpose of sale for no more 180 days, or for a further limited period as may be approved by the chief law enforcement officer of the municipality in which the heir or legatee resides. [[N.J. Stat. Ann. § 2C:58-3](https://codes.findlaw.com/nj/title-2c-the-new-jersey-code-of-criminal-justice/nj-st-sect-2c-58-3.html)] |
+| Handgun Purchase Process | To purchase a firearm in New Jersey, you must have a Firearms Purchaser Identification Card. This can be obtained by filing an Application For Firearms Purchaser Identification Card / Application To Purchase A Handgun with the New Jersey State Police. The form can be completed and then submitted in person at your local municipal police department or a New Jersey State Police Department that covers your jurisdiction. You may also apply online through the Firearms Applicant Registration System. If you do choose to apply online, you must contact the police department that covers your jurisdiction first and obtain the proper Originating Agency Identifier (ORI) number before starting the application. To complete your application, you will also need to provide a New Jersey driver's license or state-issued ID card and list 2 references who can attest to your good character and sound mental health. In addition to this, you will need to consent to fingerprinting and a criminal and mental health background check. A Consent for Mental Health Records Search Form (SP 66) is required. After your application and consent forms are submitted, the State of New Jersey has 30 days to notify you if you are approved or denied for your Firearms Purchaser Identification Card. If approved, you have 90 days to purchase a handgun before the permit expires. [[NJSP Firearms Investigation Unit](https://nj.gov/njsp/firearms/)] |
+

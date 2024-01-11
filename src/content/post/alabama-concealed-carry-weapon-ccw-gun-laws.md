@@ -1,0 +1,132 @@
+---
+
+title: Alabama Concealed Carry Firearm Laws
+
+slug: /alabama-concealed-carry-weapon-ccw-gun-laws/
+
+tags: 
+  - Alabama Gun Laws
+  - Concealed Carry Laws
+
+publishDate: 2024-01-10T18:53:12Z
+
+category: Gun Laws
+
+---
+
+Alabama: Gun Laws Summary
+-------------------------
+
+
+Alabama is a shall-issue state for concealed carry permits, issued at the county level by the local sheriff's office. Any person who is at least 19 years old and legally entitled to possess a firearm can open carry without a permit. On January 1, 2023, Alabama will become a constitutional carry state, allowing any law-abiding resident or citizen who is at least 19 years old to carry a concealed pistol without a permit (Alabama Legislature). Concealed carry is also legal for residents with an Alabama Pistol Permit and for non-residents with a permit from a state that Alabama honors. Alabama honors all out-of-state concealed carry permits (NRA-ILA).
+
+
+### Self-Defense
+
+
+Alabama is a Castle Doctrine state, meaning that individuals have no duty to retreat and are allowed to stand their ground, provided they are in a place where they have a right to be and are not engaged in an unlawful activity (NRA-ILA).
+
+
+#### Civil and Criminal Immunity
+
+
+A person who uses force, including deadly physical force, as justified and permitted in Alabama law is immune from criminal prosecution and civil action for the use of such force, unless the force was determined to be unlawful (Ala. Code §§ 13A-3-20, 13A-3-23, 13A-3-25 & 13A-3-26).
+
+
+#### Use of Force in Defense of Self or Another
+
+
+Alabama law allows a person to use physical force to defend themselves or a third person from what they reasonably believe to be the use or imminent use of unlawful physical force by that other person, and they may use a degree of force which they reasonably believe to be necessary for the purpose. The law also allows a person to use deadly force in several circumstances, including when a person reasonably believes that another is about to use unlawful deadly force, or when another attempts to forcibly or unlawfully enter their dwelling, residence, business property or occupied vehicle (Ala. Code §§ 13A-3-23, 13A-3-25 & 13A-3-26).
+
+
+#### Use of Force in Defense of Premises
+
+
+A person in lawful possession or control of premises or a person who is licensed or privileged to be there may use physical force when and to the extent that they reasonably believe it necessary to prevent or terminate the commission or attempted commission of a criminal trespass by the other person. A person may use deadly physical force in defense of property only when the person reasonably believes it necessary to prevent the commission of arson in the first or second degree by the trespasser (Ala. Code §§ 13A-3-23, 13A-3-25 & 13A-3-26).
+
+
+#### Use of Force in Defense of Property Other than Premises
+
+
+A person is justified in using physical force, other than deadly physical force, upon another person when and to the extent that they reasonably believe it to be necessary to prevent or terminate the commission or attempted commission by the other person of theft or criminal mischief with respect to property other than premises (Ala. Code §§ 13A-3-23, 13A-3-25 & 13A-3-26).
+
+
+Alabama: Gun Laws at a Glance
+-----------------------------
+
+
+
+
+|  |  |
+| --- | --- |
+| Can You Concealed Carry Weapons Other Than Handguns in Alabama? | No. [[source](https://handgunlaw.us/states/alabama.pdf)] |
+| Does Alabama Have Magazine Capacity Restrictions for Handguns? | No. [[source](https://handgunlaw.us/states/alabama.pdf)] |
+| Does Alabama Allow Constitutional Carry? | Yes. As of **January 1, 2023**, any person who is legally entitled to possess a firearm can concealed carry. [[source](https://handgunlaw.us/states/alabama.pdf)] |
+| Is Open Carry Permitted in Alabama? | Yes, without a permit. Any person who is at least 19 years old and legally entitled to possess a firearm can open carry. [[source](https://handgunlaw.us/states/alabama.pdf)] |
+| If Alabama Requires a Permit to Carry a Concealed Firearm, How Are Those Permits Issued? | Shall issue, with discretion. [[source](https://handgunlaw.us/states/alabama.pdf)] |
+| What Is the Minimum Age in Alabama to Get a Concealed Carry Permit? | 19. [[source](https://handgunlaw.us/states/alabama.pdf)] |
+| Is It Legal to Own a Taser or Stun Gun in Alabama? | Yes. Stun guns and Tasers are legal to purchase and possess without a permit in most of the state. A City Permit from the local police is required in the City of Mobile and stun guns and Tasers are not allowed to be possessed on school property, including storage in a vehicle on school property in the City of Montgomery. [[source 1](https://library.municode.com/al/mobile/codes/code_of_ordinances?nodeId=CICO_CH62WE)][[source 2](https://library.municode.com/al/montgomery/codes/code_of_ordinances?nodeId=COOR_CH18OFMIPR_ARTIIIOFAGPUSA_DIV2WE_S18-114POWEWHSCPRTRSCFU)] |
+| Is It Legal to Buy or Use Chemical Spray/Pepper Spray in Alabama? | Yes, provided it is not used against another person in the commission of a crime or against a law enforcement officer while the law enforcement officer is performing his or her official duties. The criminal use of a defense spray is a Class C felony. [[source](https://codes.findlaw.com/al/title-13a-criminal-code/al-code-sect-13a-6-27.html)] |
+| Does Alabama Have Ammunition Restrictions? | Yes. Alabama law prohibits the possession or sale of brass or steel teflon-coated handgun ammunition and other like ammunition designed to penetrate bullet-proof vests (armor piercing). This prohibition does not apply to the possession or sale of teflon-coated lead or brass ammunition designed to expand upon contact. [[source](https://codes.findlaw.com/al/title-13a-criminal-code/al-code-sect-13a-11-60.html)] |
+
+
+Alabama: Carry Locations
+------------------------
+
+
+
+
+|  |  |
+| --- | --- |
+| Carrying a Concealed Handgun in a Vehicle | Yes. As of **January 1, 2023**, Alabama does not require a permit or license to carry a loaded handgun in any vehicle. [[source](https://www.handgunlaw.us/states/alabama.pdf)] |
+| Carrying a Concealed Firearm at Roadside Rest Areas | Yes, with an Alabama Pistol Permit or a permit from a state that Alabama honors. [[source](https://www.handgunlaw.us/states/alabama.pdf)] |
+| Carrying a Concealed Firearm in Bars and Restaurants that Serve Alcohol | Yes, with an Alabama Pistol Permit or a permit from a state that Alabama honors, unless posted. [[source](https://www.handgunlaw.us/states/alabama.pdf)] |
+| Carrying or Possessing a Firearm on Hotel Property | State law indicates a person may carry a pistol about his person on private property not his own, only if the person has a valid concealed weapon permit or the consent of the owner or legal possessor of the premises. Please note that each hotel develops their own policies and you should contact the individual hotel to inquire about its concealed carry policy. See the **Handguns at Hotels page** for additional information. [[source](https://codes.findlaw.com/al/title-13a-criminal-code/al-code-sect-13a-11-52.html)] |
+| Storing Firearms in Private Vehicles in an Employee Parking Lot | A public or private employer may not prohibit the transportation or storage of a lawfully possessed firearm in an employee’s privately owned motor vehicle while parked in a public or private parking area if the employee is a concealed handgun license holder. The firearm must be out of sight while the employee is attending the vehicle. While the vehicle is unattended, the firearm must be kept out of sight and locked within a compartment, container or in the interior of the vehicle, or in a compartment or container securely affixed to the vehicle. [[source](https://law.justia.com/codes/alabama/2013/title-13a/chapter-11/section-13a-11-90)] |
+| Carrying a Concealed Firearm in State/National Parks, State/National Forests and Wildlife Management Areas | Yes, with an Alabama Pistol Permit or a permit from a state that Alabama honors. Handguns only in state parks and WMAs. [[source](http://www.alabamaadministrativecode.state.al.us/docs/con_/220-5.pdf)] [[source](http://www.alabamaadministrativecode.state.al.us/docs/con_/220-5.pdf)] |
+
+
+Alabama: Key State Laws
+-----------------------
+
+
+
+
+|  |  |
+| --- | --- |
+| Do you have a duty to notify a police officer that you're carrying a concealed firearm in Alabama? | Yes. Any person who knowingly possesses a pistol or firearm concealed on or about his or her person or in a vehicle occupied by the person, and who is asked by a law enforcement officer operating in the line or scope of his or her official duties whether he or she is armed with a concealed pistol or firearm, shall immediately inform the law enforcement officer that the person is in possession of a pistol or firearm. [[Ala. Code § 3](https://legiscan.com/AL/text/HB272/id/2544995)] |
+| Is my Alabama driver’s license linked to my Alabama pistol permit? | No. Your Alabama driver’s license is not linked to your Alabama pistol permit. Therefore, a law enforcement officer will not be notified that you are a concealed carry permit holder immediately when he or she runs your driver’s license. [[source](https://www.al.com/news/2019/04/alabama-law-enforcement-agency-launches-gun-database.html)] |
+| Does Alabama have preemption laws related to concealed carry (i.e. Does state law supersede local laws regarding the possession of handguns)? | Yes. There is full state preemption of all gun laws in Alabama. Local authorities are only allowed to pass ordinances that regulate the discharge of firearms and to levy taxes. [[Ala. Code § 13A-11-61.3](http://alisondb.legislature.state.al.us/alison/codeofalabama/1975/13A-11-61.3.htm)] |
+| Does Alabama have a red flag law? | No. Alabama does not have a red flag law. |
+| Does Alabama allow the public to access concealed carry registry information through public records law? | No, however the information is available for law enforcement. |
+| Does Alabama issue concealed carry permits to non-residents? | No. |
+| If yes, violating the sign would be considered to be a crime. If no, violating the sign would not be considered a criminal offense. | No. Not mentioned in state statutes. |
+| Does Alabama state law define brandishing? | No. No definition of brandishing was found in Alabama law.  In addition, Alabama code specifically addresses that the mere carrying of a visible pistol, holstered or secured, in a public place, in and of itself, is not considered disorderly conduct. [[Ala. Code § 13A-11-7](http://alisondb.legislature.state.al.us/alison/CodeOfAlabama/1975/13A-11-7.htm)] |
+| Does Alabama have laws regarding carrying a concealed firearm while using alcohol or controlled substances? | Not addressed in state statutes. As a responsibly armed American, regardless of the laws in your state, it is unwise to carry while under the influence of any substance that could impair your judgement, slow your reaction times or impact your decision-making abilities. Any decision you make while carrying a firearm could have life-altering consequences. |
+
+
+Alabama: Handgun Purchase and Possession
+----------------------------------------
+
+
+
+
+|  |  |
+| --- | --- |
+| Can I possess/carry a handgun in my home without a permit? | Yes. A permit is not required for a person who is at least 19 years old and legally entitled to carry a firearm to carry a pistol openly or concealed, on land under the person's control, abode or fixed place of business. [[Ala. Code 13A-11-73(a)](http://alisondb.legislature.state.al.us/alison/codeofalabama/1975/13A-11-73.htm)] |
+| Is a permit required to purchase a handgun in Alabama? | No. |
+| Are background checks required for private gun sales in Alabama? | No. Private firearms transfers are not subject to a background check requirement, although federal and state purchaser prohibitions, including age restrictions, still apply. It is recommended that you retain any sales receipts to prove ownership of the gun. |
+| Does my current Alabama concealed carry permit exempt me from needing a background check when I purchase a firearm? | No. |
+| Is there a waiting period after purchasing a handgun in Alabama? | No. |
+| Do handguns need to be registered in Alabama? | No. |
+| What is the minimum age to possess and transport a handgun in Alabama? | 19 years old. 
+
+ Exceptions:* When on real property under the control of the minor's parent, legal guardian or grandparent;
+* When attending a firearms safety course, target shooting at an established range or at organized competitions;
+* While hunting or fishing pursuant to a valid license, if required;
+* As a member of the armed services or National Guard; and
+* While traveling by motor vehicle to any of the locations or activities listed above, with written permission to possess the pistol by his or her parent or legal guardian. The pistol must be unloaded, locked in a compartment or container that is in or affixed securely to the motor vehicle and is out of reach of the driver and any passenger in the motor vehicle.
+
+
+ [[Ala. Code §§ 13A-11-57](http://alisondb.legislature.state.al.us/alison/codeofalabama/1975/13A-11-57.htm), [13A-11-76](http://alisondb.legislature.state.al.us/alison/codeofalabama/1975/13A-11-76.htm)][[Ala. Code §13A-11-72(f)](https://codes.findlaw.com/al/title-13a-criminal-code/al-code-sect-13a-11-72.html)] |
+

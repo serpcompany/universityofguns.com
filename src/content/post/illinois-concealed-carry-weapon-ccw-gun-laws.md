@@ -1,0 +1,175 @@
+---
+
+title: Illinois Concealed Carry Firearm Laws
+
+slug: /illinois-concealed-carry-weapon-ccw-gun-laws/
+
+tags: 
+  - Illinois Gun Laws
+  - Concealed Carry Laws
+
+publishDate: 2024-01-10T18:53:12Z
+
+category: Gun Laws
+
+---
+
+Illinois: Gun Laws Summary
+--------------------------
+
+
+Illinois is a shall-issue state, meaning that Illinois State Police must issue a concealed carry license if the applicant meets certain qualifications. ([720 Ill. Comp. Stat. 5/24-1, 5/7-2 & 5/7-3](https://www.ilga.gov/legislation/ilcs/ilcs3.asp?ActID=3497&ChapterID=39))
+
+
+### Self-Defense
+
+
+Illinois is a Castle Doctrine state. You are under no legal duty to retreat if threatened, and using deadly force is justified.
+
+
+#### Use of Force in Defense of Person
+
+
+A person is justified in the use of force when and to the extent that he or she reasonably believes that such conduct is necessary to defend himself or another against such other’s imminent use of unlawful force. ([720 Ill. Comp. Stat. 5/24-1, 5/7-2 & 5/7-3](https://www.ilga.gov/legislation/ilcs/ilcs3.asp?ActID=3497&ChapterID=39))
+
+
+#### Use of Force in Defense of Other Property
+
+
+A person is justified in the use of force when and to the extent that he or she reasonably believes that such conduct is necessary to prevent or terminate such other’s trespass on or other tortious or criminal interference with either real property (other than a dwelling) or personal property, lawfully in one’s possession or in the possession of another who is a member of his or her immediate family or household or of a person whose property one has a legal duty to protect. ([720 Ill. Comp. Stat. 5/24-1, 5/7-2 & 5/7-3](https://www.ilga.gov/legislation/ilcs/ilcs3.asp?ActID=3497&ChapterID=39))
+
+
+#### Use of Force in Defense of Dwelling
+
+
+A person is justified in the use of force when and to the extent that he or she reasonably believes that such conduct is necessary to prevent or terminate such other’s unlawful entry into or attack upon a dwelling. ([720 Ill. Comp. Stat. 5/24-1, 5/7-2 & 5/7-3](https://www.ilga.gov/legislation/ilcs/ilcs3.asp?ActID=3497&ChapterID=39))
+
+
+Open carry of a handgun on your person or in a vehicle is illegal.
+
+
+An Illinois Concealed Carry License (CCL) is required to concealed carry a firearm in Illinois. Applicants must be 21 or older. The license permits the licensee to carry a loaded or unloaded handgun on or about the person completely or mostly concealed from view of the public or on or about a person within a vehicle. A 16-hour firearms training course conducted by a state-approved instructor is required for all new concealed carry license applications. ([430 Ill. Comp. Stat. 66/10](https://www.ilga.gov/legislation/ilcs/ilcs3.asp?ActID=3497&ChapterID=39))
+
+
+Illinois law requires residents to have a Firearm Owners Identification Card (FOID) to possess a firearm or ammunition. FOID card holders (without a CCL) can legally carry unloaded firearms that are enclosed in a case. You must be 21 years old to apply and have a FOID card. ([430 Ill. Comp. Stat. 65/2](https://www.ilga.gov/legislation/ilcs/ilcs3.asp?ActID=1657&ChapterID=39))
+
+
+In response to the COVID-19 pandemic, FOID card holders & CCL licensees who submit their renewal application will remain valid during the duration of the state’s disaster proclamation and for a period of 18 months following the termination of the disaster, even if their renewal application is/was not submitted prior to expiration. Under the emergency rule, a FOID card or concealed carry license that has expired since the start of the pandemic is still considered valid as long as the holder has applied for renewal, paid the required fees, and the card is not subject to revocation, meaning the person has not committed an offense that would otherwise disqualify them from holding the permit. In addition, CCL licensees will not be required to immediately submit proof of three-hour training with their CCL renewal application but will need to submit proof of their training within 18 months following the termination of the state’s disaster proclamation in order to maintain the validity of their CCL license.
+
+
+Non-resident licenses are only available for residents of Arkansas, Idaho, Mississippi, Nevada, Texas and Virginia. In terms of reciprocity, Illinois does not honor CCW licenses from any other state.
+
+
+#### Assault Weapons Ban
+
+
+On Jan. 10, 2023, Gov. JB Pritzker (D) signed HB 5471, or the Protect Illinois Communities Act, into law. The law makes it unlawful to deliver, sell or purchase, or cause to be delivered, possessed or sold or purchased by another, an assault weapon, assault weapon attachment, .50 caliber rifle or .50 caliber cartridge. It makes it unlawful for any person to knowingly possess an assault weapon, .50 caliber rifle or .50 caliber cartridge 300 days after the effective date of the amendatory act, except possession of weapons registered with the Illinois State Police in the time provided.
+
+
+An assault weapon is defined as:
+
+
+* any rifle that has a belt-fed ammunition system or which has a detachable magazine capable of holding more than 10 rounds of ammunition
+* a semi-automatic rifle that has the ability to accept a detachable magazine and has any of the following
++ a folding or telescoping stock
++ a shroud that is attached to, or partially or completely encircles, the barrel that permits the shooter to hold the firearm with the non-trigger hand without being burned
+
+* a semi-automatic pistol that has the ability to accept a detachable magazine and has any of the following:
++ a folding or telescoping stock
++ a shroud that is attached to, or partially or completely encircles the barrel, that permits the shooter to hold the firearm with the non-trigger hand without being burned
++ a manufactured weight of 50 ounces or more when the pistol is unloaded
+
+* a semi-automatic rifle with a fixed magazine that has the capacity to accept more than 10 rounds of ammunition
+* a semi-automatic shotgun that has:
++ a folding or telescoping stock
++ contains its ammunition in a revolving cylinder
++ a fixed magazine capacity in excess of five rounds of ammunition, except as may be authorized under the Wildlife Code and excluding magazine extensions during the snow geese conservation order season
++ an ability to accept a detachable magazine of more than five rounds of ammunition
+
+
+([720 Ill. Comp. Stat. 5/24-1, 5/7-2 & 5/7-3](https://www.ilga.gov/legislation/ilcs/ilcs3.asp?ActID=4277&ChapterID=53))
+
+
+Illinois: Gun Laws at a Glance
+------------------------------
+
+
+
+
+|  |  |
+| --- | --- |
+| Can You Concealed Carry Weapons Other Than Handguns in Illinois with a Concealed Carry License (or Under Permitless Carry if Applicable)? | An Illinois concealed carry license does not cover weapons other than handguns. |
+| Is It Legal to Own a Taser or Stun Gun in Illinois? | Yes. Tasers are legal to purchase with a valid FOID or an Illinois concealed carry license. Based on the passage of [HB 562](https://legiscan.com/IL/bill/HB0562/2021), beginning on **January 1, 2024,** the buyer must keep a record of the transfer for a period of 10 years and provide a record of the transfer within 10 days to a FFL. The federally licensed firearm dealer must maintain the transfer record for 20 years from date of receipt. A federally licensed firearm dealer may charge a fee not to exceed $25 to retain the record. Note: On March 21, 2019, the Illinois Supreme Court ruled that what was essentially a comprehensive ban that prohibited carrying stun guns and Tasers in public in 720 ILCS 5/24-1(a)(4) was unconstitutional. The court didn’t mention the provision in the same statute that makes it illegal to carry stun guns and Tasers on public streets or public land within city limits. It’s not clear whether that prohibition could still be enforced or would withstand a legal challenge in light of the Webb decision.  |
+| Does Illinois Have Magazine Capacity Restrictions for Handguns? | Yes. As of **January 10, 2023**, you cannot buy/sell/possess magazines of more than 10 rounds for rifles and magazines of more than 15 rounds for handguns.  |
+| Does Illinois Allow Constitutional Carry? | No. Illinois does not recognize constitutional carry. |
+| Is Open Carry Permitted in Illinois? | No. Open carry is not permitted in Illinois. |
+| If Illinois Requires a License to Carry a Concealed Firearm, How Are Those Licenses Issued? | Shall issue, with discretion. |
+| What Is the Minimum Age in Illinois to Get a Concealed Carry License? | You must be at least 21 years old to carry concealed in Illinois. |
+| Is It Legal to Buy or Use Chemical Spray/Pepper Spray in Illinois? | Yes, non-lethal noxious liquid gas or a substance designed solely for personal defense may be carried by a person 18 years of age or older. [[720 Ill. Comp. Stat. 5/24-1(3)](http://www.ilga.gov/legislation/ilcs/ilcs4.asp?DocName=072000050HArt%2E+24&ActID=1876&ChapterID=53&SeqStart=68600000&SeqEnd=72000000)] |
+| Does Illinois Have Ammunition Restrictions? | Yes. Armor-piercing ammunition is prohibited. "Armor piercing bullet" means any handgun bullet or handgun ammunition with projectiles or projectile cores, or fully jacketed bullets larger than 22 caliber designed and intended for use in a handgun and whose jacket has a weight of more than 25% of the total weight of the projectile, and excluding those handgun projectiles whose cores are composed of soft materials such as copper, lead or lead alloys, zinc or zinc alloys, frangible projectiles designed primarily for sporting purposes, and any other projectiles or projectile cores that the U. S. Secretary of the Treasury finds to be primarily intended to be used for sporting purposes or industrial purposes or that otherwise does not constitute "armor piercing ammunition" as that term is defined by federal law. Residents must obtain a **Firearm Owner's Identification (FOID) card** in order to buy ammunition. Even if buying ammo outside the state, residents need that FOID card and a driver's license or state-issued identification card in order to take shipment of ammunition. [[720 Ill. Comp. Stat. 5/24-2.1(a)](http://ilga.gov/legislation/ilcs/documents/072000050K24-2.1.htm)] |
+
+
+Illinois: Carry Locations
+-------------------------
+
+
+
+
+|  |  |
+| --- | --- |
+| Carrying Firearms in Parks, Forests, and Wildlife Management Areas | Yes, only with an Illinois CCL, though not in posted buildings, IDNR State Refuge areas, IDNR Dedicated Nature Preserves or IDNR children's playground areas. See the National Parks webpage for links to each Park in Illinois. [[430 Ill. Comp. Stat. § 66/65](http://www.ilga.gov/legislation/ilcs/ilcs3.asp?ActID=3497&ChapterID=39)] |
+| Carrying Firearms in Vehicles | Yes, anyone with an Illinois CCL may keep or carry a loaded or unloaded concealed firearm on or about his or her person. Non-residents may transport a loaded concealed handgun in a vehicle if they are in possession of a valid CCW permit from their home state. Non-residents from states that allow for either concealed and/or open carry without a license are not required to produce a license provided they are; Not prohibited under federal law; and They are eligible to carry in their home state. If non-residents leave their vehicles unattended, they must store the firearm within a locked vehicle or locked container within the vehicle. The firearm (and any ammunition): Must be stored out of plain view within the vehicle; and May be carried in the immediate area surrounding the vehicle only for the limited purpose of storing or retrieving a firearm within the vehicle's trunk. [[430 Ill. Comp. Stat. § 66/10(h)](http://www.ilga.gov/legislation/ilcs/ilcs3.asp?ActID=3497&ChapterID=39) and Illinois State Police Law Bulletin – August 2018 ] |
+| Carrying Firearms in Bars and Restaurants that Serve Alcohol | You may not concealed carry in any building, real property or parking area under the control of an establishment that serves alcohol on its premises, if more than 50% of the establishment's gross receipts within the prior 3 months is from the sale of alcohol. [[430 Ill. Comp. Stat. § 66/65(a)(9)](http://www.ilga.gov/legislation/ilcs/ilcs3.asp?ActID=3497&ChapterID=39)] |
+| Carrying Firearms on Hotel Property | Per the IL State Police, assuming no local ordinance applies and the hotel isn’t posted, firearms can be possessed in hotels, provided the firearm is carried into the room unloaded and enclosed in a case. The individual hotel should be contacted to inquire about its concealed carry policy. See the Handguns at Hotels page for additional information. |
+| Storing Firearms in Private Vehicles in an Employee Parking Lot | Any licensee prohibited from carrying a concealed firearm into the parking area of a prohibited location is allowed to carry a concealed firearm on or about his or her person within a vehicle into the parking area and may store a firearm or ammunition concealed in a case within a locked vehicle or locked container out of plain view within the vehicle in the parking area. A licensee may carry a concealed firearm in the immediate area surrounding his or her vehicle within a prohibited parking lot area only for the limited purpose of storing or retrieving a firearm within the vehicle's trunk. For purposes of this subsection, "case" includes a glove compartment or console that completely encloses the concealed firearm or ammunition, the trunk of the vehicle, or a firearm carrying box, shipping box or other container. Anyone with an FOID card can have a firearm that is not immediately accessible or unloaded and enclosed in a case, firearm carrying box, shipping box, or other container in a vehicle. [[430 Ill. Comp. Stat. 66/65(b)](http://www.ilga.gov/legislation/ilcs/ilcs3.asp?ActID=3497&ChapterID=39)] |
+| Carrying Firearms at Roadside Rest Areas | No. You may not carry a concealed handgun at a roadside rest area in Illinois. [[430 Ill. Comp. Stat. § 66/65](http://www.ilga.gov/legislation/ilcs/ilcs3.asp?ActID=3497&ChapterID=39)] |
+
+
+Illinois: Key State Laws
+------------------------
+
+
+
+
+|  |  |
+| --- | --- |
+| Does Illinois state law define brandishing? | No definition of brandishing was found in Illinois law. 
+[720 Ill. Comp. Stat. § 5/12-6](http://www.ilga.gov/legislation/ilcs/ilcs4.asp?DocName=072000050HArt%2E+12%2C+Subdiv%2E+15&ActID=1876&ChapterID=53&SeqStart=25300000&SeqEnd=26900000) |
+| Does Illinois issue concealed carry licenses to non-residents? | Yes, but only residents of states or territories of the United States that have laws substantially similar to the requirements to obtain a license under the Firearm Concealed Carry Act are eligible. Currently, the only states considered to be substantially similar are Arkansas, Idaho, Mississippi, Nevada, Texas and Virginia. |
+| Does Illinois allow the public to access concealed carry registry information through public records law? | No. The Illinois concealed carry registry is not publicly accessible. |
+| Does Illinois have a red flag law? | Yes, Illinois has a red flag law that was revised **effective as of August 13, 2021**. A spouse, former spouse, person with whom the person has a minor child in common, parent, child, or step-child of the person, any other person related by blood or present marriage to the person, or who shares a common dwelling with the person or a law enforcement officer may file a petition prohibiting and enjoining a named person from having in his or her custody or control, purchasing, possessing, or receiving any firearms or ammunition, or removing firearm parts that could be assembled to make an operable firearm. If issued, the firearms restraining order would transfer any any firearms or ammunition, or removing firearm parts that could be assembled to make an operable firearm, FOID card and concealed carry license to law enforcement for no more than six months. 
+[430 Ill. Comp. Stat. 67/1](http://www.ilga.gov/legislation/ilcs/ilcs3.asp?ActID=3877&ChapterID=39) |
+| Does Illinois have preemption laws related to concealed carry (i.e. Does state law supersede local laws regarding the possession of handguns)? | Yes, the state has preemption of firearms laws in Illinois. The regulation, licensing, possession, registration, and transportation of handguns and ammunition for handguns by concealed handgun licensees are exclusive powers and functions of the State. Any ordinance or regulation, or portion thereof that purports to impose regulations or restrictions on licensees or handguns and ammunition for handguns shall be invalid in its application to licensees. 
+ Local municipalities can regulate: 
+ - Individuals who do not possess a valid FOID card or CCL; 
+ - Firearms other than handguns; and 
+ - Matters related to the sale, purchase and storage of all firearms. 
+[430 Ill Comp. Stat. § 66/90](http://www.ilga.gov/legislation/ilcs/ilcs3.asp?ActID=3497&ChapterID=39) and [65/13.1(b)](https://www.ilga.gov/legislation/ilcs/fulltext.asp?DocName=043000650K13.1) |
+| Does Illinois have laws regarding carrying a concealed firearm while using alcohol or drugs? | Not while under the influence of alcohol, other drug or drugs, intoxicating compound or combination of compounds, or any combination thereof, under the standards set forth in [§ 11-501(a)](https://codes.findlaw.com/il/chapter-625-vehicles/il-st-sect-625-5-11-501.html) of the Illinois Vehicle Code. 
+[430 Ill. Comp. Stat. 66/70(d)](http://www.ilga.gov/legislation/ilcs/ilcs3.asp?ActID=3497) 
+ As a responsibly armed American, regardless of the laws in your state, it is unwise to carry while under the influence of any substance that could impair your judgement, slow your reaction times, or impact your decision-making abilities. Any decision you make while carrying a firearm could have life-altering consequences. |
+| Do you have a duty to notify a police officer that you're carrying a concealed firearm in Illinois? | No. There is no duty to inform a law enforcement officer that you're carrying a concealed firearm in Illinois unless the officer asks. 
+[430 Ill. Comp. Stat. § 66/10(h)](http://www.ilga.gov/legislation/ilcs/ilcs3.asp?ActID=3497&ChapterID=39) |
+| Is my Illinois driver’s license linked to my Illinois carry license? | Yes. Your Illinois driver’s license is linked to your Illinois concealed carry license. Therefore, a law enforcement officer will be notified immediately that you are a concealed carry license holder if they run your driver’s license. |
+| If yes, violating the sign would be considered to be a crime. If no, violating the sign would not be considered a criminal offense. | Yes. Signs stating that the carrying of firearms is prohibited must be clearly and conspicuously posted at the entrance of a building, premises or real property specified as a [prohibited area](#loc_res), unless the building or premises is a private residence. Any violation constitutes a misdemeanor, may trigger license suspension or revocation as well as a fine. 
+[430 Ill. Comp. Stat. §§ 66/65(d), 66/70](http://www.ilga.gov/legislation/ilcs/ilcs3.asp?ActID=3497&ChapterID=39) 
+[1231.150 Admin. Rules](https://www.ilga.gov/commission/jcar/admincode/020/020012310C01500R.html) |
+
+
+Illinois: Handgun Purchase and Possession
+-----------------------------------------
+
+
+
+
+|  |  |
+| --- | --- |
+| Do handguns need to be registered in Illinois? | No. Illinois does not require handguns to be registered. [[720 Ill. Comp. Stat. 5/24-1(a)(10)](https://codes.findlaw.com/il/chapter-720-criminal-offenses/il-st-sect-720-5-24-1.html)] |
+| Can I possess/carry a handgun in my home without a license? | Yes. A license is not needed for anyone legally entitled to carry a firearm to carry a pistol, revolver, stun gun, taser or other firearm on the person’s land, or in their own home, fixed place of business, or on the land or in the legal dwelling of another person as an invitee with that person’s permission. [[720 Ill. Comp. Stat. 5/24-1(a)(10)](https://codes.findlaw.com/il/chapter-720-criminal-offenses/il-st-sect-720-5-24-1.html)] |
+| Does my current Illinois concealed carry license exempt me from needing a background check when I purchase a firearm? | No. |
+| Is there a waiting period after purchasing a handgun in Illinois? | Yes. As of January 1, 2019, the waiting period for the purchase of all guns is 72 hours. The purchaser must also have a FOID card issued by the State Police to purchase any firearm or ammunition. [[430 Ill. Comp. Stat. 65/3(a-15)(1)](http://ilga.gov/legislation/ilcs/fulltext.asp?DocName=043000650K3) and [Cook County Ordinance Sec. 54-183](https://library.municode.com/il/cook_county/codes/code_of_ordinances?nodeId=PTIGEOR_CH54LIPEMIBURE_ARTIIIDEWEDE_DIV3FITRVIPRFISA_S54-183ONGUPEMOLI)] |
+| Is a permit required to purchase a handgun in Illinois? | Yes. A Firearm Owners Identification Card (FOID) is required when purchasing a handgun in Illinois. There is an exception for transfers that occur at the place of business of a federally licensed firearm dealer, if the federally licensed firearm dealer conducts a background check on the prospective recipient of the firearm and follows all other applicable federal, State, and local laws. In addition, Cook County has a one gun purchase per month ordinance. [[430 Ill. Comp. Stat. 65/3(a-15)(1)](http://ilga.gov/legislation/ilcs/fulltext.asp?DocName=043000650K3) and [Cook County Ordinance Sec. 54-183](https://library.municode.com/il/cook_county/codes/code_of_ordinances?nodeId=PTIGEOR_CH54LIPEMIBURE_ARTIIIDEWEDE_DIV3FITRVIPRFISA_S54-183ONGUPEMOLI)] |
+| Are there exceptions? | If a firearm is being sold privately, then by law the seller must verify the purchaser’s FOID card and also keep a record of any sale for a period of 10 years. To verify the purchaser’s FOID card, the seller must contact the state police and receive a transfer approval number by phone call or [online](https://www.ispfsb.com/Public/Firearms/FOID/PersonToPersonFirearmTransfer.aspx). All firearms sellers must abide by statutory waiting periods. There are certain exceptions to the FOID requirement, including transfers as a bona fide gift to certain family members and temporary transfers that occur while in the home of the unlicensed transferee. [[430 Ill. Comp. Stat. 65/3(a-15)(2) & (6)](http://www.ilga.gov/legislation/ilcs/ilcs3.asp?ActID=1657&ChapterID=39)] |
+| What is the minimum age to possess and transport a handgun in Illinois? | 18 years old. Must have a FOID Card. A person who is under 21 years of age must have the written consent of his or her parent or legal guardian to possess and acquire firearms and firearm ammunition. This includes having your application signed by a notary public. Also, he or she must not have been convicted of a misdemeanor other than a traffic offense or adjudged delinquent. The parent or legal guardian providing written consent must be eligible to possess a valid FOID card. [[430 Ill. Comp. Stat. 65/4](http://www.ilga.gov/legislation/ilcs/ilcs3.asp?ActID=1657&ChapterID=39)] |
+| FOID Card Application Process | Illinois residents are required to have a Firearm Owners Identification (FOID) card to purchase or possess a firearm or ammunition in the state, (although new residents that are legally allowed to possess firearms have until 60 days from when they obtain an Illinois driver's license or state ID to obtain a FOID). To be eligible for a FOID card, a person must be 21 years of age or have a parent or guardian sponsor that is eligible for a FOID card. [[HB 562 (2021)](https://legiscan.com/IL/bill/HB0562/2021)] |
+
