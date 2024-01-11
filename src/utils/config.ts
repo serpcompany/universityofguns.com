@@ -8,7 +8,7 @@ export interface SiteConfig {
   name: string;
   site?: string;
   base?: string;
-  trailingSlash?: boolean;
+  trailingSlash?: true;
   googleSiteVerificationId?: string;
 }
 export interface MetaDataConfig extends Omit<MetaData, 'title'> {
@@ -87,7 +87,7 @@ const getSite = () => {
     name: DEFAULT_SITE_NAME,
     site: 'https://universityofguns.com',
     base: '',
-    trailingSlash: false,
+    trailingSlash: true,
 
     googleSiteVerificationId: '',
   };

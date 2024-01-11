@@ -2,7 +2,7 @@ site:
   name: University of Guns
   site: 'https://universityofguns.com'
   base: '/'
-  trailingSlash: false
+  trailingSlash: true
 
   googleSiteVerificationId:
 
@@ -34,7 +34,7 @@ i18n:
 apps:
   blog:
     isEnabled: true
-    postsPerPage: 50
+    postsPerPage: 100
 
     post:
       isEnabled: true
