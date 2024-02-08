@@ -16,7 +16,7 @@ export interface Props {
 
 const { post } = Astro.props;
 const image = (await findImage(post.image));
-const resizedImageURL = getCloudflareResizedImageURL(image, 400, 900);
+const resizedImageURL = getCloudflareResizedImageURL(image, 500, 300);
 ---
 
 <article class="mb-6 transition">
@@ -27,9 +27,9 @@ const resizedImageURL = getCloudflareResizedImageURL(image, 400, 900);
           <Image
             src={resizedImageURL}
             class="w-full md:h-full rounded shadow-lg bg-gray-400 dark:bg-slate-700"
-            widths={[400, 900]}
+            widths={[400, 400]}
             width={400}
-            sizes="(max-width: 900px) 400px, 900px"
+            sizes="(max-width: 900px) 400px, 400px"
             alt={post.title}
             aspectRatio="16:9"
             layout="cover"
