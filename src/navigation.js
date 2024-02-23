@@ -30,207 +30,207 @@ export const headerData = {
       links: [
         {
           text: 'Concealed Carry Laws',
-          href: getPermalink('/category/gun-laws'),
+          href: getPermalink('/category/gun-laws/'),
         },
         {
           text: 'Alabama',
-          href: getPermalink('/alabama-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/alabama-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Alaska',
-          href: getPermalink('/alaska-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/alaska-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Arizona',
-          href: getPermalink('/arizona-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/arizona-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Arkansas',
-          href: getPermalink('/arkansas-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/arkansas-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'California',
-          href: getPermalink('/california-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/california-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Colorado',
-          href: getPermalink('/colorado-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/colorado-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Connecticut',
-          href: getPermalink('/connecticut-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/connecticut-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Delaware',
-          href: getPermalink('/delaware-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/delaware-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Florida',
-          href: getPermalink('/florida-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/florida-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Georgia',
-          href: getPermalink('/georgia-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/georgia-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Hawaii',
-          href: getPermalink('/hawaii-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/hawaii-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Idaho',
-          href: getPermalink('/idaho-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/idaho-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Illinois',
-          href: getPermalink('/illinois-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/illinois-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Indiana',
-          href: getPermalink('/indiana-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/indiana-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Iowa',
-          href: getPermalink('/iowa-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/iowa-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Kansas',
-          href: getPermalink('/kansas-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/kansas-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Kentucky',
-          href: getPermalink('/kentucky-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/kentucky-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Louisiana',
-          href: getPermalink('/louisiana-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/louisiana-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Maine',
-          href: getPermalink('/maine-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/maine-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Maryland',
-          href: getPermalink('/maryland-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/maryland-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Massachusetts',
-          href: getPermalink('/massachusetts-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/massachusetts-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Michigan',
-          href: getPermalink('/michigan-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/michigan-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Minnesota',
-          href: getPermalink('/minnesota-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/minnesota-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Mississippi',
-          href: getPermalink('/mississippi-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/mississippi-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Missouri',
-          href: getPermalink('/missouri-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/missouri-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Montana',
-          href: getPermalink('/montana-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/montana-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Nebraska',
-          href: getPermalink('/nebraska-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/nebraska-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Nevada',
-          href: getPermalink('/nevada-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/nevada-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'New Hampshire',
-          href: getPermalink('/new-hampshire-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/new-hampshire-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'New Jersey',
-          href: getPermalink('/new-jersey-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/new-jersey-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'New Mexico',
-          href: getPermalink('/new-mexico-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/new-mexico-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'New York',
-          href: getPermalink('/new-york-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/new-york-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'North Carolina',
-          href: getPermalink('/north-carolina-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/north-carolina-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'North Dakota',
-          href: getPermalink('/north-dakota-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/north-dakota-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Ohio',
-          href: getPermalink('/ohio-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/ohio-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Oklahoma',
-          href: getPermalink('/oklahoma-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/oklahoma-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Oregon',
-          href: getPermalink('/oregon-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/oregon-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Pennsylvania',
-          href: getPermalink('/pennsylvania-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/pennsylvania-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Rhode Island',
-          href: getPermalink('/rhode-island-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/rhode-island-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'South Carolina',
-          href: getPermalink('/south-carolina-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/south-carolina-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'South Dakota',
-          href: getPermalink('/south-dakota-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/south-dakota-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Tennessee',
-          href: getPermalink('/tennessee-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/tennessee-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Texas',
-          href: getPermalink('/texas-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/texas-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Utah',
-          href: getPermalink('/utah-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/utah-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Vermont',
-          href: getPermalink('/vermont-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/vermont-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Virginia',
-          href: getPermalink('/virginia-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/virginia-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Washington',
-          href: getPermalink('/washington-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/washington-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'West Virginia',
-          href: getPermalink('/west-virginia-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/west-virginia-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Wisconsin',
-          href: getPermalink('/wisconsin-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/wisconsin-concealed-carry-weapon-ccw-gun-laws/'),
         },
         {
           text: 'Wyoming',
-          href: getPermalink('/wyoming-concealed-carry-weapon-ccw-gun-laws'),
+          href: getPermalink('/wyoming-concealed-carry-weapon-ccw-gun-laws/'),
         },
       ],
     },
@@ -448,28 +448,28 @@ export const headerData = {
       links: [
         {
           text: 'Gun Holsters',
-          href: getPermalink('/category/gun-holsters'),
+          href: getPermalink('/category/gun-holsters/'),
         },
         {
           text: 'Gun Safes',
-          href: getPermalink('/category/gun-safes'),
+          href: getPermalink('/category/gun-safes/'),
         },
         {
           text: 'Gun Belts',
-          href: getPermalink('/category/gun-belts'),
+          href: getPermalink('/category/gun-belts/'),
         },
         {
           text: 'Targets',
-          href: getPermalink('/category/shooting-targets'),
+          href: getPermalink('/category/shooting-targets/'),
         },
         {
           text: 'Knives',
-          href: getPermalink('/category/knives'),
+          href: getPermalink('/category/knives/'),
         },
       ],
     },
   ],
-  actions: [{ text: 'Subscribe', href: '/subscribe', target: '_blank' }],
+  actions: [{ text: 'Subscribe', href: '/subscribe/', target: '_blank' }],
 };
 
 export const footerData = {
@@ -478,15 +478,15 @@ export const footerData = {
       title: 'Company',
       links: [
         { text: 'Website', href: 'https://universityofguns.com' },
-        { text: 'About', href: '/about' },
+        { text: 'About', href: '/about/' },
       ],
     },
     {
       title: 'Community',
       links: [
-        { text: 'Newsletter', href: '/subscribe' },
-        { text: 'Forum', href: '/#' },
-        { text: 'Community', href: '/#' },
+        { text: 'Newsletter', href: '/subscribe/' },
+        // { text: 'Forum', href: '/#' },
+        // { text: 'Community', href: '/#' },
       ],
     },
     {
@@ -502,12 +502,12 @@ export const footerData = {
     {
       title: 'Boring Stuff',
       links: [
-        { text: 'Privacy Policy', href: '/privacy' },
-        { text: 'Terms & Conditions', href: '/terms' },
-        { text: 'Affiliate Disclosure', href: '/affiliate-disclosure' },
-        { text: 'DMCA', href: '/dmca' },
-        { text: 'Archive', href: '/archive' },
-        { text: 'Tags', href: '/tags' },
+        { text: 'Privacy Policy', href: '/privacy/' },
+        { text: 'Terms & Conditions', href: '/terms/' },
+        { text: 'Affiliate Disclosure', href: '/affiliate-disclosure/' },
+        { text: 'DMCA', href: '/dmca/' },
+        { text: 'Archive', href: '/archive/' },
+        { text: 'Tags', href: '/tags/' },
       ],
     },
   ],

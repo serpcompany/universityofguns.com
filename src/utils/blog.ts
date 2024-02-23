@@ -5,7 +5,8 @@ import type { Post } from '~/types';
 import { APP_BLOG } from '~/utils/config';
 import { cleanSlug, trimSlash, BLOG_BASE, POST_PERMALINK_PATTERN, CATEGORY_BASE, TAG_BASE } from './permalinks';
 
-const generatePermalink = async ({
+
+export const generatePermalink = async ({
   id,
   slug,
   publishDate,
@@ -13,9 +14,13 @@ const generatePermalink = async ({
 }: {
   id: string;
   slug: string;
-  publishDate: Date;
+  publishDate: Date | undefined;
   category: string | undefined;
 }) => {
+  if (!publishDate) {
+    throw new Error('publishDate is required to generate a permalink');
+  }
+
   const year = String(publishDate.getFullYear()).padStart(4, '0');
   const month = String(publishDate.getMonth() + 1).padStart(2, '0');
   const day = String(publishDate.getDate()).padStart(2, '0');
@@ -39,6 +44,8 @@ const generatePermalink = async ({
     .filter((el) => !!el)
     .join('/');
 };
+
+
 
 const getNormalizedPost = async (post: CollectionEntry<'post'>): Promise<Post> => {
   const { id, slug: rawSlug = '', data } = post;
@@ -91,8 +98,19 @@ const getNormalizedPost = async (post: CollectionEntry<'post'>): Promise<Post> =
 };
 
 const load = async function (): Promise<Array<Post>> {
-  const posts = await getCollection('post');
-  const normalizedPosts = posts.map(async (post) => await getNormalizedPost(post));
+  const blogPosts = await getCollection('blog') || [];
+  const shopPosts = await getCollection('shop') || [];
+  const gunLawsPosts = await getCollection('gun-laws') || [];
+  const huntingLawsPosts = await getCollection('hunting-laws') || [];
+
+  const allPosts = [...blogPosts, ...shopPosts, ...gunLawsPosts, ...huntingLawsPosts];
+
+  if (!allPosts.length) {
+    console.error('No posts found in the collections');
+    return [];
+  }
+
+  const normalizedPosts = allPosts.map(async (post) => await getNormalizedPost(post));
 
   const results = (await Promise.all(normalizedPosts))
     .sort((a, b) => b.publishDate.valueOf() - a.publishDate.valueOf())

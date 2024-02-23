@@ -1,3 +1,5 @@
+<!-- src/components/blog/GridItem.astro -->
+
 ---
 import { APP_BLOG } from '~/utils/config';
 import type { Post } from '~/types';
@@ -27,9 +29,9 @@ const resizedImageURL = getCloudflareResizedImageURL(image, 500, 300);
           <Image
             src={resizedImageURL}
             class="w-full md:h-full rounded shadow-lg bg-gray-400 dark:bg-slate-700"
-            widths={[400, 400]}
-            width={400}
-            sizes="(max-width: 900px) 400px, 400px"
+            widths={[300, 300]}
+            width={300}
+            sizes="(max-width: 900px) 300px, 300px"
             alt={post.title}
             aspectRatio="16:9"
             layout="cover"

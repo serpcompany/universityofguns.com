@@ -5,7 +5,7 @@ import MarkdownIt from 'markdown-it';
 const parser = new MarkdownIt();
 
 export async function GET(context) {
-  const posts = await getCollection('post');
+  const posts = await getCollection('blog');
   const feedItems = posts.map((post) => ({
     title: post.data.title,
     link: `/${post.slug}/`,
