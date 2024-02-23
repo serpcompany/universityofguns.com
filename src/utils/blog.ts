@@ -18,7 +18,8 @@ export const generatePermalink = async ({
   category: string | undefined;
 }) => {
   if (!publishDate) {
-    throw new Error('publishDate is required to generate a permalink');
+    console.warn(`Post ${slug} does not have a publishDate. Using current date instead.`);
+    publishDate = new Date();
   }
 
   const year = String(publishDate.getFullYear()).padStart(4, '0');
