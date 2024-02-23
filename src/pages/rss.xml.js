@@ -6,10 +6,10 @@ const parser = new MarkdownIt();
 
 export async function GET(context) {
   // Fetch posts from multiple collections
-  const blogPosts = await getCollection('blog');
-  const gunLawsPosts = await getCollection('gun-laws');
-  const huntingLawsPosts = await getCollection('hunting-laws');
-  const shopPosts = await getCollection('shop');
+  const blogPosts = (await getCollection('blog')) || [];
+  const gunLawsPosts = (await getCollection('gun-laws')) || [];
+  const huntingLawsPosts = (await getCollection('hunting-laws')) || [];
+  const shopPosts = (await getCollection('shop')) || [];
 
   // Combine posts from all collections
   const allPosts = [...blogPosts, ...gunLawsPosts, ...huntingLawsPosts, ...shopPosts];
