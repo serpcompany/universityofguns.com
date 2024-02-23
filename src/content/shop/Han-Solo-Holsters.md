@@ -16,29 +16,29 @@ Are you on the hunt for the perfect way to store and protect your Han Solo-inspi
 
 ## The Top 8 Best Han Solo Holsters
 
-1. [Custom Left Hand Kydex Holster System for Sig P365 with Open Bottom and Trijicon SRO Fitment](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience superior comfort and concealment with this customized left-hand IWB Kydex holster for Sig P365, designed to fit with most RMR/Red Dots, Open Bottoms for Threaded Barrels and Compensators, and made in America by Veterans and Law Enforcement.
+1. [Custom Left Hand Kydex Holster System for Sig P365 with Open Bottom and Trijicon SRO Fitment](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=custom-left-hand-kydex-holster-system-for-sig-p365-with-open-bottom-and-trijicon-sro-fitment) - Experience superior comfort and concealment with this customized left-hand IWB Kydex holster for Sig P365, designed to fit with most RMR/Red Dots, Open Bottoms for Threaded Barrels and Compensators, and made in America by Veterans and Law Enforcement.
 
-2. [Small of Back IWB Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Dara Holsters' Small of Back Holster ensures a secure, concealed carry experience for those with back, shoulder or arm injuries, supporting an efficient palm-out draw and compatibility with Charter Arms pistols for optimal performance.
+2. [Small of Back IWB Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=small-of-back-iwb-holster-for-concealed-carry) - Dara Holsters' Small of Back Holster ensures a secure, concealed carry experience for those with back, shoulder or arm injuries, supporting an efficient palm-out draw and compatibility with Charter Arms pistols for optimal performance.
 
-3. [Sig Sauer P365 Belt Wing Tuckable Holster | Right-Handed | Adjustable Cant](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience seamless and discreet appendix carry with the Black Scorpion Outdoor Gear Sig Sauer P365 Belt Wing Tuckable Holster, offering compatibility with various red-dot sights and threaded barrels.
+3. [Sig Sauer P365 Belt Wing Tuckable Holster | Right-Handed | Adjustable Cant](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=sig-sauer-p365-belt-wing-tuckable-holster-right-handed-adjustable-cant) - Experience seamless and discreet appendix carry with the Black Scorpion Outdoor Gear Sig Sauer P365 Belt Wing Tuckable Holster, offering compatibility with various red-dot sights and threaded barrels.
 
-4. [Competition-Ready Kydex Holster for H&K P30L with Quickship, Tek-Lok, and Open Bottom](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unbeatable precision and comfort with the H&K P30L Competition Kydex Holster, offering secure retention, custom fit for various accessories, and a lifetime guarantee by American veterans and law enforcement.
+4. [Competition-Ready Kydex Holster for H&K P30L with Quickship, Tek-Lok, and Open Bottom](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=competition-ready-kydex-holster-for-hk-p30l-with-quickship-tek-lok-and-open-bottom) - Experience unbeatable precision and comfort with the H&K P30L Competition Kydex Holster, offering secure retention, custom fit for various accessories, and a lifetime guarantee by American veterans and law enforcement.
 
-5. [Left-Handed Kydex IWB Holster for Smith & Wesson SD9/SD40 VE](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discreet and durable IWB holster for Smith & Wesson SD9/SD40VE, hand-molded using .08-inch KYDEX for exceptional protection and everyday carry convenience. Perfect for left-handed enthusiasts looking for a minimalist and stylish concealed carry option.
+5. [Left-Handed Kydex IWB Holster for Smith & Wesson SD9/SD40 VE](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=left-handed-kydex-iwb-holster-for-smith-wesson-sd9sd40-ve) - Discreet and durable IWB holster for Smith & Wesson SD9/SD40VE, hand-molded using .08-inch KYDEX for exceptional protection and everyday carry convenience. Perfect for left-handed enthusiasts looking for a minimalist and stylish concealed carry option.
 
-6. [Comfortable IWB Kydex Holster for Sig Sauer P365 XL](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the Sig Sauer P365 XL IWB Holster by We The People Holsters - the ultimate lightweight and practical choice for concealed carry, featuring Realtree Edge camo, adjustable cant, and perfect compatibility with standard pistol red dots.
+6. [Comfortable IWB Kydex Holster for Sig Sauer P365 XL](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=comfortable-iwb-kydex-holster-for-sig-sauer-p365-xl) - Discover the Sig Sauer P365 XL IWB Holster by We The People Holsters - the ultimate lightweight and practical choice for concealed carry, featuring Realtree Edge camo, adjustable cant, and perfect compatibility with standard pistol red dots.
 
-7. [Sig Sauer P365 X Macro Leather Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience top-quality concealed carry with the Sig Sauer P365 X Macro Leather Holster, handcrafted in the U.S., designed for comfortable all-day wear, and perfectly tailored for your firearm.
+7. [Sig Sauer P365 X Macro Leather Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=sig-sauer-p365-x-macro-leather-holster-for-concealed-carry) - Experience top-quality concealed carry with the Sig Sauer P365 X Macro Leather Holster, handcrafted in the U.S., designed for comfortable all-day wear, and perfectly tailored for your firearm.
 
-8. [Beretta M9/92FS IWB Holster for Left-Handed Shooters](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discreet and comfortable Beretta M9/92FS IWB Left-Handed Holster by We The People Holsters, featuring Kydex, adjustable retention, ride, and cant, and a secure belt clip for clean draws.
+8. [Beretta M9/92FS IWB Holster for Left-Handed Shooters](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=beretta-m992fs-iwb-holster-for-left-handed-shooters) - Discreet and comfortable Beretta M9/92FS IWB Left-Handed Holster by We The People Holsters, featuring Kydex, adjustable retention, ride, and cant, and a secure belt clip for clean draws.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Custom Left Hand Kydex Holster System for Sig P365 with Open Bottom and Trijicon SRO Fitment](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Custom Left Hand Kydex Holster System for Sig P365 with Open Bottom and Trijicon SRO Fitment](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=custom-left-hand-kydex-holster-system-for-sig-p365-with-open-bottom-and-trijicon-sro-fitment)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="mod1-iwb-kydex-holster-system-custom-left-hand-sig-p365-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mod1-iwb-kydex-holster-system-custom-left-hand-sig-p365-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=mod1-iwb-kydex-holster-system-custom-left-hand-sig-p365-1"><img alt="mod1-iwb-kydex-holster-system-custom-left-hand-sig-p365-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mod1-iwb-kydex-holster-system-custom-left-hand-sig-p365-1/public"/></a></div>
 
 I've been using this product daily for several weeks now, and it has certainly transformed my routine. The holster securely holds my firearm, providing excellent comfort all day long. I am truly impressed by the custom discreet carry concept which features an extra concealment layer with the added dark wing. This ensures that I am always prepared without drawing unwanted attention.
 
@@ -48,9 +48,9 @@ Another aspect I appreciate is the proprietary molds and CNC-milled construction
 
 Using this product has significantly improved my daily life by offering a dependable solution for concealed carry while maintaining comfort during activities such as tying shoes or playing guitar - thanks to its thoughtfully designed hinge system conforming to body movements during various tasks.
 
-### [Small of Back IWB Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Small of Back IWB Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=small-of-back-iwb-holster-for-concealed-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="small-of-back-holster-palm-out-draw-by-dara-holsters-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/small-of-back-holster-palm-out-draw-by-dara-holsters-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=small-of-back-holster-palm-out-draw-by-dara-holsters-1"><img alt="small-of-back-holster-palm-out-draw-by-dara-holsters-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/small-of-back-holster-palm-out-draw-by-dara-holsters-1/public"/></a></div>
 
 The Dara Small of Back IWB Holster for Concealed Carry proved to be an excellent choice for those seeking maximum comfort and security when carrying a firearm. The holster features a small, lightweight design that provides deep concealment and keeps the gun securely in place without any wiggle room. Despite its compact size, the holster offers impressive retention capabilities, making drawing and reholstering smooth and easy processes.
 
@@ -58,17 +58,17 @@ One of the highlights of this holster is its 6 o'clock positioning, which felt n
 
 Overall, this is a high-quality holster that excels in both comfort and concealment. While there are some areas for improvement like additional customization options or softer belt clip material, it still stands out as a top choice for those wanting to carry small-of-back in an unobtrusive manner throughout their day.
 
-### [Sig Sauer P365 Belt Wing Tuckable Holster | Right-Handed | Adjustable Cant](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Sig Sauer P365 Belt Wing Tuckable Holster | Right-Handed | Adjustable Cant](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=sig-sauer-p365-belt-wing-tuckable-holster-right-handed-adjustable-cant)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="black-scorpion-outdoor-gear-sig-sauer-p365-belt-wing-tuckable-holster-right-black-hc23-p365-bk-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/black-scorpion-outdoor-gear-sig-sauer-p365-belt-wing-tuckable-holster-right-black-hc23-p365-bk-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=black-scorpion-outdoor-gear-sig-sauer-p365-belt-wing-tuckable-holster-right-black-hc23-p365-bk-1"><img alt="black-scorpion-outdoor-gear-sig-sauer-p365-belt-wing-tuckable-holster-right-black-hc23-p365-bk-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/black-scorpion-outdoor-gear-sig-sauer-p365-belt-wing-tuckable-holster-right-black-hc23-p365-bk-1/public"/></a></div>
 
 The Belt Wing Tuckable Holster offers a fantastic option for those who prefer to appendix carry their firearm discreetly. The open-muzzle design is perfect for threaded barrels, and its unique design comfortably pushes against the user's belt to reduce printing.
 
 This holster does an amazing job of balancing comfort and concealment, making it a standout choice in the market. Its compatibility with virtually any red-dot sight adds to its appeal. Constructed from high-quality materials, it ensures lasting durability throughout heavy use. While it might not offer as many pistol options as some would like, this right-handed inside-the-waistband holster with adjustable cant is a solid choice for those in search of a reliable and comfortable carrying solution.
 
-### [Competition-Ready Kydex Holster for H&K P30L with Quickship, Tek-Lok, and Open Bottom](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Competition-Ready Kydex Holster for H&K P30L with Quickship, Tek-Lok, and Open Bottom](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=competition-ready-kydex-holster-for-hk-p30l-with-quickship-tek-lok-and-open-bottom)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hk-p30l-competition-kydex-holster-quickship-right-tek-lok-fits-up-to-2-25-belts-molle-compatible-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hk-p30l-competition-kydex-holster-quickship-right-tek-lok-fits-up-to-2-25-belts-molle-compatible-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=hk-p30l-competition-kydex-holster-quickship-right-tek-lok-fits-up-to-2-25-belts-molle-compatible-1"><img alt="hk-p30l-competition-kydex-holster-quickship-right-tek-lok-fits-up-to-2-25-belts-molle-compatible-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hk-p30l-competition-kydex-holster-quickship-right-tek-lok-fits-up-to-2-25-belts-molle-compatible-1/public"/></a></div>
 
 I recently had the opportunity to try out this top-notch competition holster for my FNS pistol. The build quality was exceptional, with precise molding and solid retention ensuring that my firearm stayed put during intense matches.
 
@@ -78,9 +78,9 @@ The audible click when securing the pistol gives me peace of mind knowing that m
 
 Overall, I highly recommend this product as a reliable competition holster that combines excellent craftsmanship with precision engineering. If you're in need of a high-quality holster for your competition shooting needs, look no further than this one!
 
-### [Left-Handed Kydex IWB Holster for Smith & Wesson SD9/SD40 VE](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Left-Handed Kydex IWB Holster for Smith & Wesson SD9/SD40 VE](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=left-handed-kydex-iwb-holster-for-smith-wesson-sd9sd40-ve)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="smith-wesson-sd9-sd40-ve-iwb-left-handed-holster-by-we-the-people-holsters-betsy-ross-flag-kydex-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-wesson-sd9-sd40-ve-iwb-left-handed-holster-by-we-the-people-holsters-betsy-ross-flag-kydex-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=smith-wesson-sd9-sd40-ve-iwb-left-handed-holster-by-we-the-people-holsters-betsy-ross-flag-kydex-1"><img alt="smith-wesson-sd9-sd40-ve-iwb-left-handed-holster-by-we-the-people-holsters-betsy-ross-flag-kydex-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-wesson-sd9-sd40-ve-iwb-left-handed-holster-by-we-the-people-holsters-betsy-ross-flag-kydex-1/public"/></a></div>
 
 I've been using the IWB Holster for S&W SD9/SD40 VE Made in the United States for several months now, and I have to say that it's completely transformed my everyday carry experience.
 
@@ -90,9 +90,9 @@ As a responsible gun owner, safety is always at the top of my mind when carrying
 
 One minor issue I encountered was adjusting the retention screw to find the perfect tension setting for my draw style. Once I found that sweet spot though, everything worked smoothly from then on out! Overall highly recommend this product to anyone looking for an affordable yet high-quality concealment solution for their S&W SD9 or SD40 VE pistol!
 
-### [Comfortable IWB Kydex Holster for Sig Sauer P365 XL](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Comfortable IWB Kydex Holster for Sig Sauer P365 XL](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=comfortable-iwb-kydex-holster-for-sig-sauer-p365-xl)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sig-sauer-p365-xl-right-handed-holster-iwb-by-we-the-people-holsters-realtree-edge-kydex-adjustable-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sig-sauer-p365-xl-right-handed-holster-iwb-by-we-the-people-holsters-realtree-edge-kydex-adjustable-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=sig-sauer-p365-xl-right-handed-holster-iwb-by-we-the-people-holsters-realtree-edge-kydex-adjustable-1"><img alt="sig-sauer-p365-xl-right-handed-holster-iwb-by-we-the-people-holsters-realtree-edge-kydex-adjustable-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sig-sauer-p365-xl-right-handed-holster-iwb-by-we-the-people-holsters-realtree-edge-kydex-adjustable-1/public"/></a></div>
 
 After using the Sig P365 XL IWB Holster for several weeks, my experience has been a combination of positive and negative aspects. The lightweight design and practicality for concealed carry are notable features, offering a great overall option for those prioritizing these factors. However, there have been inconsistencies in retention, with varying levels of security depending on the firearm's positioning. Although the Claw effectively reduces printing on clothing, its installation can be challenging to get right and may require personal adjustments.
 
@@ -100,9 +100,9 @@ One issue I encountered was that the belt clip could slide along my belt when pe
 
 Overall, this is a decent holster with room for improvement in terms of retention consistency and clip stability during physical activities. It does offer solid concealment at an affordable price point compared to other brands in the market. If you're looking for a lightweight option that won't break the bank and doesn't mind occasional adjustments to maintain optimal fitness - this might work well for you!
 
-### [Sig Sauer P365 X Macro Leather Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Sig Sauer P365 X Macro Leather Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=sig-sauer-p365-x-macro-leather-holster-for-concealed-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sig-sauer-p365-x-macro-leather-holster-with-optics-iwb-concealed-carry-holster-100-full-grain-leathe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sig-sauer-p365-x-macro-leather-holster-with-optics-iwb-concealed-carry-holster-100-full-grain-leathe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=sig-sauer-p365-x-macro-leather-holster-with-optics-iwb-concealed-carry-holster-100-full-grain-leathe-1"><img alt="sig-sauer-p365-x-macro-leather-holster-with-optics-iwb-concealed-carry-holster-100-full-grain-leathe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sig-sauer-p365-x-macro-leather-holster-with-optics-iwb-concealed-carry-holster-100-full-grain-leathe-1/public"/></a></div>
 
 The Inside the Waistband Leather Holster for my Sig Sauer P365 X Macro has become an integral part of my daily carry routine. The holster is crafted from high-quality leather, providing durability and protection for my firearm while maintaining a sleek appearance.
 
@@ -110,9 +110,9 @@ What sets this holster apart is its comfort and versatility; it fits snugly on a
 
 Although the holster's clip may not be compatible with larger 1. 5-inch tactical belts, overall satisfaction has been consistently high among users like myself who appreciate the design's precision and attention to detail. My experience with this product has been exceptional in terms of both quality and functionality.
 
-### [Beretta M9/92FS IWB Holster for Left-Handed Shooters](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Beretta M9/92FS IWB Holster for Left-Handed Shooters](https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=beretta-m992fs-iwb-holster-for-left-handed-shooters)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="beretta-m9-92fs-iwb-left-handed-holster-by-we-the-people-holsters-molon-labe-kydex-adjustable-secure-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/beretta-m9-92fs-iwb-left-handed-holster-by-we-the-people-holsters-molon-labe-kydex-adjustable-secure-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=beretta-m9-92fs-iwb-left-handed-holster-by-we-the-people-holsters-molon-labe-kydex-adjustable-secure-1"><img alt="beretta-m9-92fs-iwb-left-handed-holster-by-we-the-people-holsters-molon-labe-kydex-adjustable-secure-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/beretta-m9-92fs-iwb-left-handed-holster-by-we-the-people-holsters-molon-labe-kydex-adjustable-secure-1/public"/></a></div>
 
 I recently started using the IWB holster for Beretta 92fs and it has quickly become my preferred everyday carry option. The Kydex material provides the perfect balance of durability and lightness, ensuring a comfortable fit that stays snugly under my clothes without being noticeable. The adjustable retention lets me set the tension just right, securing my firearm without making it difficult to draw when needed.
 
@@ -136,7 +136,7 @@ When choosing a Han Solo holster, consider the following features:
 
 ### Type of Material
 
-<div><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Han+Solo+Holsters-2/public" alt="Han Solo Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=han-solo-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Han+Solo+Holsters-2/public" alt="Han Solo Holsters-2"></a></div>
 
 Han Solo holsters come in various materials, including:
 
@@ -176,7 +176,7 @@ When comparing Han Solo holsters, consider factors such as:
 
 - Price: Determine your budget before shopping and look for a well-made holster that offers the best value for your money.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Han+Solo+Holsters-3/public" alt="Han Solo Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=han-solo-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Han+Solo+Holsters-3/public" alt="Han Solo Holsters-3"></a></div>
 
 ### Caring for Your Han Solo Holster
 
@@ -198,7 +198,7 @@ With these tips and considerations in mind, you'll be well-equipped to choose th
 
 ### Which types of Han Solo holsters are available?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Han+Solo+Holsters-4/public" alt="Han Solo Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=han-solo-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Han+Solo+Holsters-4/public" alt="Han Solo Holsters-4"></a></div>
 
 Han Solo holsters are available in various designs, including belt holsters, shoulder holsters, and thigh holsters, among others. The choice depends on your preference and intended use.
 
@@ -214,7 +214,7 @@ Yes, there are left-handed Han Solo holsters available to cater to both left- an
 
 To clean your Han Solo holster, use a damp cloth to wipe away dirt and debris. Avoid using water or chemical cleaners, as they may damage the holster material. Regularly inspect your holster for signs of wear and replace it if necessary.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Han+Solo+Holsters-5/public" alt="Han Solo Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=han-solo-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Han+Solo+Holsters-5/public" alt="Han Solo Holsters-5"></a></div>
 
 ### What's the difference between leather and synthetic Han Solo holsters?
 
@@ -232,7 +232,7 @@ Yes, it is safe to carry a loaded gun in a proper Han Solo holster. These holste
 
 ### Can I wear a Han Solo holster with a suit or dress vest?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Han+Solo+Holsters-6/public" alt="Han Solo Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/han-solo-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=han-solo-holsters&utm_term=han-solo-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Han+Solo+Holsters-6/public" alt="Han Solo Holsters-6"></a></div>
 
 Yes, you can wear a Han Solo holster with a suit or dress vest. Choose a suitable holster, such as a shoulder or thigh holster, that will conceal the weapon effectively and allow you to draw it smoothly in an emergency. Make sure the holster fits well and is securely fastened to ensure that it stays in place throughout the day.
 

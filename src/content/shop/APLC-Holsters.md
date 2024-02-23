@@ -16,33 +16,33 @@ Are you tired of awkwardly carrying your gun while out hunting or just going abo
 
 ## The Top 10 Best APLC Holsters
 
-1. [Slim and Discreet IWB Holster for Glock 43/43X/43X MOS](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Klipt IWB Holster for Glock 43/43X offers a sleek, comfortable design, exceptional retention and secure firearm lock, making it an ideal choice for everyday concealed carry.
+1. [Slim and Discreet IWB Holster for Glock 43/43X/43X MOS](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=slim-and-discreet-iwb-holster-for-glock-4343x43x-mos) - The Blade-Tech Klipt IWB Holster for Glock 43/43X offers a sleek, comfortable design, exceptional retention and secure firearm lock, making it an ideal choice for everyday concealed carry.
 
-2. [Slim and Discreet IWB Holster for Sig P320C and M18](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the perfect blend of comfort, security, and functionality with the Klipt IWB Holster for Sig P320C, designed to keep your firearm secure and comfortable while maintaining a sleek and discreet appearance for everyday carry.
+2. [Slim and Discreet IWB Holster for Sig P320C and M18](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=slim-and-discreet-iwb-holster-for-sig-p320c-and-m18) - Experience the perfect blend of comfort, security, and functionality with the Klipt IWB Holster for Sig P320C, designed to keep your firearm secure and comfortable while maintaining a sleek and discreet appearance for everyday carry.
 
-3. [Outside the Waistband Holster for Glock 43/43X](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience top-quality craftsmanship with the Blade-Tech Signature OWB Holster for Glock 43/43X - offering a perfect fit, advanced features, and IDPA legal optic ready speed cut, all at an affordable price point!
+3. [Outside the Waistband Holster for Glock 43/43X](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=outside-the-waistband-holster-for-glock-4343x) - Experience top-quality craftsmanship with the Blade-Tech Signature OWB Holster for Glock 43/43X - offering a perfect fit, advanced features, and IDPA legal optic ready speed cut, all at an affordable price point!
 
-4. [ComfortTac Ultimate Belly Band Holster for Right-Hand Draw](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - ComfortTac's Ultimate Belly Band Holster offers versatile and secure firearm concealment for various carry positions, designed with a comfortable and breathable neoprene band, built-in pocket, and adjustable retention strap for increased draw speed.
+4. [ComfortTac Ultimate Belly Band Holster for Right-Hand Draw](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=comforttac-ultimate-belly-band-holster-for-right-hand-draw) - ComfortTac's Ultimate Belly Band Holster offers versatile and secure firearm concealment for various carry positions, designed with a comfortable and breathable neoprene band, built-in pocket, and adjustable retention strap for increased draw speed.
 
-5. [Outside the Waistband Holster for H&K VP9 with Optic Ready Speed Cut](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Signature Holster for H&K VP9 is a durable and affordable OWB holster with adjustable retention, a positive locking trigger guard, and compatibility with various attachments, perfect for competitive shooters and firearm enthusiasts alike.
+5. [Outside the Waistband Holster for H&K VP9 with Optic Ready Speed Cut](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=outside-the-waistband-holster-for-hk-vp9-with-optic-ready-speed-cut) - The Blade-Tech Signature Holster for H&K VP9 is a durable and affordable OWB holster with adjustable retention, a positive locking trigger guard, and compatibility with various attachments, perfect for competitive shooters and firearm enthusiasts alike.
 
-6. [Signature OWB Holster for Glock 20/21 with Optic Ready Speed Cut](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Signature OWB Holster for Glock 20/21 is an affordable and robust choice for carrying your firearm while maintaining quick draw capabilities, compatible with various attachments, and providing a secure fit for your Glock.
+6. [Signature OWB Holster for Glock 20/21 with Optic Ready Speed Cut](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=signature-owb-holster-for-glock-2021-with-optic-ready-speed-cut) - The Blade-Tech Signature OWB Holster for Glock 20/21 is an affordable and robust choice for carrying your firearm while maintaining quick draw capabilities, compatible with various attachments, and providing a secure fit for your Glock.
 
-7. [Blade-Tech Signature OWB Holster for Glock 34/35](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Blade-Tech Signature OWB Holster for Glock 34/35: Durable, precision-molded American-made holster for secure carry, competitive shooters favorite, IDPA legal optics ready; available in right-handed, outside-the-waistband design.
+7. [Blade-Tech Signature OWB Holster for Glock 34/35](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=blade-tech-signature-owb-holster-for-glock-3435) - Blade-Tech Signature OWB Holster for Glock 34/35: Durable, precision-molded American-made holster for secure carry, competitive shooters favorite, IDPA legal optics ready; available in right-handed, outside-the-waistband design.
 
-8. [1911 3.5" Officer OWB Holster - Secure, Durable & Custom Fit](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Step 1: Analyze the product information and highlights
+8. [1911 3.5" Officer OWB Holster - Secure, Durable & Custom Fit](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=1911-35-officer-owb-holster-secure-durable-custom-fit) - Step 1: Analyze the product information and highlights
 
-9. [Slim and Discreet IWB Holster for Ruger LCP](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - With a sleek design and secure fit, the Blade-Tech Klipt IWB Holster for the Ruger LCP delivers unmatched comfort and retention for all-day IWB carry, suitable for everyday concealed carry.
+9. [Slim and Discreet IWB Holster for Ruger LCP](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=slim-and-discreet-iwb-holster-for-ruger-lcp) - With a sleek design and secure fit, the Blade-Tech Klipt IWB Holster for the Ruger LCP delivers unmatched comfort and retention for all-day IWB carry, suitable for everyday concealed carry.
 
-10. [Custom IWB Kydex Holster for Jericho 941](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience optimal comfort, concealment, and performance with the Alpha Kydex Holster, a durable and ergonomic holster made in America by veterans and law enforcement.
+10. [Custom IWB Kydex Holster for Jericho 941](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=custom-iwb-kydex-holster-for-jericho-941) - Experience optimal comfort, concealment, and performance with the Alpha Kydex Holster, a durable and ergonomic holster made in America by veterans and law enforcement.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Slim and Discreet IWB Holster for Glock 43/43X/43X MOS](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Slim and Discreet IWB Holster for Glock 43/43X/43X MOS](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=slim-and-discreet-iwb-holster-for-glock-4343x43x-mos)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="klipt-iwb-glock-43-43x-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-glock-43-43x-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=klipt-iwb-glock-43-43x-holster-right-handed-inside-the-waistband-klipt-blade-tech-1"><img alt="klipt-iwb-glock-43-43x-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-glock-43-43x-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
 
 I've been using this Blade-Tech Klipt IWB Holster for my Glock 43 / 43X / 43X MOS as an everyday carry option for a few weeks now, and it has exceeded my expectations. The sleek, discreet design of the holster makes it easy to conceal under clothing without adding bulk or discomfort. I particularly appreciate the high sweat guard that keeps my firearm off my body, preventing any irritation from moisture or slide serrations.
 
@@ -52,9 +52,9 @@ In terms of daily use, the holster has performed exceptionally well - providing 
 
 Overall, I highly recommend this Blade-Tech Klipt IWB Holster for anyone in search of an unobtrusive yet secure option for carrying their Glock 43 / 43X / 43X MOS on a daily basis.
 
-### [Slim and Discreet IWB Holster for Sig P320C and M18](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Slim and Discreet IWB Holster for Sig P320C and M18](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=slim-and-discreet-iwb-holster-for-sig-p320c-and-m18)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="klipt-iwb-sig-p320c-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-sig-p320c-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=klipt-iwb-sig-p320c-holster-right-handed-inside-the-waistband-klipt-blade-tech-1"><img alt="klipt-iwb-sig-p320c-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-sig-p320c-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
 
 I recently tried out the Blade-Tech Klipt IWB Holster for my Sig P320C / M18, and it has definitely become a favorite. The slim design is discreet, making it easy to carry every day without feeling too bulky or uncomfortable.
 
@@ -66,9 +66,9 @@ Comfort-wise, this holster excels with its smooth edges and full-length sweat sh
 
 My only minor complaint would be adjusting the cant can be tricky sometimes; an adjustable cant option would be great to have for added convenience. However, overall this is a fantastic carrying option that's well worth considering if you own a Sig P320C / M18 like myself! 👍
 
-### [Outside the Waistband Holster for Glock 43/43X](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Outside the Waistband Holster for Glock 43/43X](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=outside-the-waistband-holster-for-glock-4343x)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glock-43-43x-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g43-g43x--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-43-43x-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g43-g43x--1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=glock-43-43x-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g43-g43x-1"><img alt="glock-43-43x-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g43-g43x--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-43-43x-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g43-g43x--1/public"/></a></div>
 
 I recently purchased the BladeTech Signature OWB Holster due to its affordability and positive reviews. After using it for a few months, I must say that I am quite impressed with its durability, fit, and versatility.
 
@@ -76,9 +76,9 @@ A feature that stands out is the adjustable retention, which allows me to tighte
 
 Although there are some minor downsides, such as releasing from paddle mounts being tricky at times due to their flatness on wider belts, this doesn't overshadow the holster's overall quality. Overall, I highly recommend purchasing a BladeTech Signature OWB Holster for an exceptional yet budget-friendly solution with excellent design and construction elements.
 
-### [ComfortTac Ultimate Belly Band Holster for Right-Hand Draw](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [ComfortTac Ultimate Belly Band Holster for Right-Hand Draw](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=comforttac-ultimate-belly-band-holster-for-right-hand-draw)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="comforttac-belly-band-holster-right-hand-draw-size-regular-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/comforttac-belly-band-holster-right-hand-draw-size-regular-black-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=comforttac-belly-band-holster-right-hand-draw-size-regular-black-1"><img alt="comforttac-belly-band-holster-right-hand-draw-size-regular-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/comforttac-belly-band-holster-right-hand-draw-size-regular-black-1/public"/></a></div>
 
 After using the ComfortTac Belly Band Holster for several weeks, I have found it to be a great concealed carry option. The design allows for smooth and fast draws while keeping your firearm securely in place. One of the notable features is its versatility; it comes in three sizes that cater to different body types, and can be worn in various positions according to personal preferences. The built-in pocket is also handy, providing extra space to carry magazines or small essentials like keys or ID cards.
 
@@ -86,9 +86,9 @@ The breathable neoprene band is comfortable to wear even during hot days, which 
 
 In conclusion, I am pleased with my experience using the ComfortTac Belly Band Holster due to its easy accessibility and discretion combined with convenience. It may have some minor downsides but overall it's a solid product worth trying out!
 
-### [Outside the Waistband Holster for H&K VP9 with Optic Ready Speed Cut](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Outside the Waistband Holster for H&K VP9 with Optic Ready Speed Cut](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=outside-the-waistband-holster-for-hk-vp9-with-optic-ready-speed-cut)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="blade-tech-signature-holster-model-hk-vp9-tek-lok-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-signature-holster-model-hk-vp9-tek-lok-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=blade-tech-signature-holster-model-hk-vp9-tek-lok-1"><img alt="blade-tech-signature-holster-model-hk-vp9-tek-lok-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-signature-holster-model-hk-vp9-tek-lok-1/public"/></a></div>
 
 I recently purchased the Blade-Tech Signature OWB Holster for my H&K VP9 and have been highly impressed with its quality, functionality, and ease of use. The adjustable retention feature is a game-changer as it allows me to customize the fit to my liking, ensuring that my firearm is securely fastened while also enabling a quick draw when needed.
 
@@ -98,9 +98,9 @@ One standout feature of this holster is its IDPA legal optic ready speed cut tha
 
 While there haven't been any issues with durability so far regarding thin sections along critical seam points on certain models (not specific to H&K VP9), some users have reported concerns about their longevity over time; however these potential shortcomings do not detract significantly from its overall performance value proposition: offering excellent quality without sacrificing key attributes like adjustability or safety features such as positive lock trigger guards providing peace mind knowing your weapon secured even during rigorous training exercises! Overall rating—★★★★☆
 
-### [Signature OWB Holster for Glock 20/21 with Optic Ready Speed Cut](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Signature OWB Holster for Glock 20/21 with Optic Ready Speed Cut](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=signature-owb-holster-for-glock-2021-with-optic-ready-speed-cut)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glock-20-21-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g20-g21-ho-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-20-21-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g20-g21-ho-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=glock-20-21-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g20-g21-ho-1"><img alt="glock-20-21-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g20-g21-ho-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-20-21-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g20-g21-ho-1/public"/></a></div>
 
 As a competitive shooter, I have been consistently impressed by the Blade-Tech Signature OWB Holster for my Glock 20/21. The polymers used in its construction are exceptionally strong and durable, providing me with peace of mind when carrying my weapon. I particularly appreciate the IDPA legal Optic Ready Speed Cut, which allows me to clear the muzzle swiftly during intense training sessions or competition matches.
 
@@ -110,9 +110,9 @@ The versatile mounting pattern has improved my ability to adapt to different car
 
 I also appreciate that all these features come at a lower price point than similar products in the market, delivering both performance and value without any trade-offs on quality or functionality. Overall, Blade-Tech Signature OWB Holster has exceeded expectations by keeping my firearm secure while providing speedy draw capabilities - highly recommended!
 
-### [Blade-Tech Signature OWB Holster for Glock 34/35](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Blade-Tech Signature OWB Holster for Glock 34/35](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=blade-tech-signature-owb-holster-for-glock-3435)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glock-34-35-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g34-g35-ho-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-34-35-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g34-g35-ho-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=glock-34-35-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g34-g35-ho-1"><img alt="glock-34-35-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g34-g35-ho-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-34-35-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g34-g35-ho-1/public"/></a></div>
 
 I've been using the Blade-Tech Signature OWB Holster for Glock 34/35 for several months now, and it has quickly become one of my go-to holsters for both training and competitive shooting. The holster's adjustable retention is a standout feature, as it allows me to achieve a perfect fit around my firearm with ease. This not only ensures quick draws but also provides added peace of mind that my gun is securely in place.
 
@@ -120,9 +120,9 @@ The high-strength polymer construction has held up remarkably well during intens
 
 While there may be some limitations when it comes to cant angle and carry height customization compared with other holsters on the market, these minor inconveniences have not significantly impacted performance or comfort during use. Overall, I am extremely impressed with how well this affordable yet high-quality option performs day after day under demanding conditions such as those found in USPSA events. It is clear that Blade-Tech has put thought into designing a product that meets the needs of competitive shooters without breaking the bank.
 
-### [1911 3.5" Officer OWB Holster - Secure, Durable & Custom Fit](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [1911 3.5" Officer OWB Holster - Secure, Durable & Custom Fit](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=1911-35-officer-owb-holster-secure-durable-custom-fit)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="1911-3-5-officer-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-1911--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1911-3-5-officer-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-1911--1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=1911-3-5-officer-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-1911-1"><img alt="1911-3-5-officer-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-1911--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1911-3-5-officer-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-1911--1/public"/></a></div>
 
 After using the Blade-Tech Signature OWB Holster for my 1911 3. 5" Officer for a few months, I can confidently say it's a top-quality holster. Constructed from a strong proprietary blend of polymers, this OWB holster is both durable and rigid, allowing me to securely carry my firearm outside the waistband.
 
@@ -132,9 +132,9 @@ Another plus is its versatility with various belt attachments and compatibility 
 
 In summary, I highly recommend this product to anyone looking for a reliable OWB holster with great features at an affordable price point. Its precision molding guarantees optimal fitment, while its multiple key features make it suitable for competitive shooting, self-defense training, and safety carry alike.
 
-### [Slim and Discreet IWB Holster for Ruger LCP](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Slim and Discreet IWB Holster for Ruger LCP](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=slim-and-discreet-iwb-holster-for-ruger-lcp)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="blade-tech-in-the-waist-band-holster-for-ruger-lcp-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-in-the-waist-band-holster-for-ruger-lcp-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=blade-tech-in-the-waist-band-holster-for-ruger-lcp-1"><img alt="blade-tech-in-the-waist-band-holster-for-ruger-lcp-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-in-the-waist-band-holster-for-ruger-lcp-1/public"/></a></div>
 
 After using the Blade-Tech Klipt IWB Holster for my Ruger LCP for a few weeks, I have to say it's become my go-to holster. The slim and discreet design makes it easy to carry every day, and the high sweat guard effectively keeps my firearm off my body, providing comfort throughout the day.
 
@@ -144,9 +144,9 @@ The smooth edges and full-length sweat guard provide all-day comfort even when w
 
 Overall, while there may be some room for improvement with regards to material durability, this product stands out for its ease of use and ability to keep your firearm securely in place without any fuss or hassle.
 
-### [Custom IWB Kydex Holster for Jericho 941](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Custom IWB Kydex Holster for Jericho 941](https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=custom-iwb-kydex-holster-for-jericho-941)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="iwb-alpha-kydex-holster-custom-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/iwb-alpha-kydex-holster-custom-right-hand-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=iwb-alpha-kydex-holster-custom-right-hand-1"><img alt="iwb-alpha-kydex-holster-custom-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/iwb-alpha-kydex-holster-custom-right-hand-1/public"/></a></div>
 
 I recently had the pleasure of trying out C&G's holster for my Jericho 941 handgun. Overall, I was quite impressed with the construction and design of this product. The kydex material used ensured both durability and comfort, while the customizable retention allowed me to adjust it according to my preference.
 
@@ -160,7 +160,7 @@ In terms of drawbacks, some users may find these additional options unnecessary 
 
 ### Important Features to Consider in APLC Holsters
 
-<div><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/APLC+Holsters-2/public" alt="APLC Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=aplc-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/APLC+Holsters-2/public" alt="APLC Holsters-2"></a></div>
 
 An APLC (All-Purpose Lightweight Carry) holster is designed to fit a wide range of firearms, offering versatility and convenience for gun owners. When choosing an APLC holster, consider these important features:
 
@@ -194,7 +194,7 @@ Selecting the right APLC holster depends on various factors:
 
 - Price Range: Budget considerations may influence your choices, with entry-level to premium options available.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/APLC+Holsters-3/public" alt="APLC Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=aplc-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/APLC+Holsters-3/public" alt="APLC Holsters-3"></a></div>
 
 ### General Advice for Using APLC Holsters
 
@@ -212,7 +212,7 @@ To ensure a safe and comfortable experience with your APLC holster:
 
 ### What types of APLC holsters are available?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/APLC+Holsters-4/public" alt="APLC Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=aplc-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/APLC+Holsters-4/public" alt="APLC Holsters-4"></a></div>
 
 APLC offers a variety of holster styles, including IWB (inside-the-waistband), OWB (outside-the-waistband), ankle, and shoulder holsters. Each type caters to different user preferences and concealed carry needs.
 
@@ -224,7 +224,7 @@ Yes, APLC holsters are crafted using premium-grade materials such as leather, Ky
 
 To find the proper size, locate your firearm's specifications on the manufacturer's website or consult the gun's user manual. Once you have the dimensions, match them to the compatible holster options on the APLC website.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/APLC+Holsters-5/public" alt="APLC Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=aplc-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/APLC+Holsters-5/public" alt="APLC Holsters-5"></a></div>
 
 ### Can I adjust the retention of my APLC holster?
 
@@ -236,7 +236,7 @@ To safely draw and re-holster your firearm, practice proper gun handling techniq
 
 ### What is the difference between a left and right-handed APLC holster?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/APLC+Holsters-6/public" alt="APLC Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/aplc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=aplc-holsters&utm_term=aplc-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/APLC+Holsters-6/public" alt="APLC Holsters-6"></a></div>
 
 Left and right-handed holsters are designed for those who carry on the opposite side of their dominant hand. For example, a left-handed individual would use a right-handed holster to draw their firearm with their left hand. Each holster type features a specific orientation for seamless access and concealment.
 

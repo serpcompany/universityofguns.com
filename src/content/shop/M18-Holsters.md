@@ -18,31 +18,31 @@ From the ruggedly reliable to the sleek and stylish, our selection of M18 holste
 
 ## The Top 9 Best M18 Holsters
 
-1. [Outside the Waistband Holster for Sig P320C/M18](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Signature OWB Holster for Sig P320C/M18 boasts precision-molded fit, premium polymers, and compatibility with various attachments for safe and secure outside waistband (OWB) carry, making it a favorite among competitive shooters.
+1. [Outside the Waistband Holster for Sig P320C/M18](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=outside-the-waistband-holster-for-sig-p320cm18) - The Blade-Tech Signature OWB Holster for Sig P320C/M18 boasts precision-molded fit, premium polymers, and compatibility with various attachments for safe and secure outside waistband (OWB) carry, making it a favorite among competitive shooters.
 
-2. [M&P 1.0 9/40/45 Holster | OWB Concealed Carry Holster | IDPA Legal Optic Ready Speed Cut](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the Blade-Tech Signature OWB Holster for S&W M&P 1.0 - 9/40/45, boasting adjustable retention, versatile compatibility, a heat-resistant polymer build, positive locking trigger guard, and a swift, IDPA-legal speed cut for competitive shooters.
+2. [M&P 1.0 9/40/45 Holster | OWB Concealed Carry Holster | IDPA Legal Optic Ready Speed Cut](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=mp-10-94045-holster-owb-concealed-carry-holster-idpa-legal-optic-ready-speed-cut) - Discover the Blade-Tech Signature OWB Holster for S&W M&P 1.0 - 9/40/45, boasting adjustable retention, versatile compatibility, a heat-resistant polymer build, positive locking trigger guard, and a swift, IDPA-legal speed cut for competitive shooters.
 
-3. [Slim and Discreet IWB Holster for Sig P320C and M18](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the perfect blend of comfort, security, and functionality with the Klipt IWB Holster for Sig P320C, designed to keep your firearm secure and comfortable while maintaining a sleek and discreet appearance for everyday carry.
+3. [Slim and Discreet IWB Holster for Sig P320C and M18](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=slim-and-discreet-iwb-holster-for-sig-p320c-and-m18) - Experience the perfect blend of comfort, security, and functionality with the Klipt IWB Holster for Sig P320C, designed to keep your firearm secure and comfortable while maintaining a sleek and discreet appearance for everyday carry.
 
-4. [Total Eclipse 2.0 Modular Holster for Sig Sauer P320C / M18](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Total Eclipse 2.0 Holster is a versatile, auto-locking, ambidextrous IWB/OWB holster for Sig P320C / M18, boasting superior fit, durability, and unmatched adjustability with quick-release Mods.
+4. [Total Eclipse 2.0 Modular Holster for Sig Sauer P320C / M18](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=total-eclipse-20-modular-holster-for-sig-sauer-p320c-m18) - The Blade-Tech Total Eclipse 2.0 Holster is a versatile, auto-locking, ambidextrous IWB/OWB holster for Sig P320C / M18, boasting superior fit, durability, and unmatched adjustability with quick-release Mods.
 
-5. [Adjustable Retention OWB Holster for S&W M&P 2.0](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unmatched precision and performance with the S&W M&P 2.0 Classic OWB Holster by Blade-Tech, crafted in the USA with adjustable retention, optic ready speed cut, and a lifetime guarantee for secure and safe firearm storage during competition.
+5. [Adjustable Retention OWB Holster for S&W M&P 2.0](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=adjustable-retention-owb-holster-for-sw-mp-20) - Experience unmatched precision and performance with the S&W M&P 2.0 Classic OWB Holster by Blade-Tech, crafted in the USA with adjustable retention, optic ready speed cut, and a lifetime guarantee for secure and safe firearm storage during competition.
 
-6. [Modular Ambidextrous IWB/OWB Holster for Smith & Wesson M&P 2.0 9mm/40 Cal](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the ultimate versatility in concealment carry with the Blade-Tech Total Eclipse 2.0 IWB/OWB Modular Holster for Smith & Wesson M&P 9/40/45, featuring a revolutionary auto-locking design, ambidextrous use, and a secure fit for confident carry.
+6. [Modular Ambidextrous IWB/OWB Holster for Smith & Wesson M&P 2.0 9mm/40 Cal](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=modular-ambidextrous-iwbowb-holster-for-smith-wesson-mp-20-9mm40-cal) - Experience the ultimate versatility in concealment carry with the Blade-Tech Total Eclipse 2.0 IWB/OWB Modular Holster for Smith & Wesson M&P 9/40/45, featuring a revolutionary auto-locking design, ambidextrous use, and a secure fit for confident carry.
 
-7. [Multi-Functional S&W M&P 1.0 .45 Cal Holster for IWB/OWB Carry](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unmatched versatility with Blade-Tech Total Eclipse 2.0 IWB/OWB Modular Holster for S&W M&P 1.0 .45 Cal, featuring auto-locking design, ambidextrous adaptability, and a secure fit for seamless concealed carry.
+7. [Multi-Functional S&W M&P 1.0 .45 Cal Holster for IWB/OWB Carry](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=multi-functional-sw-mp-10-45-cal-holster-for-iwbowb-carry) - Experience unmatched versatility with Blade-Tech Total Eclipse 2.0 IWB/OWB Modular Holster for S&W M&P 1.0 .45 Cal, featuring auto-locking design, ambidextrous adaptability, and a secure fit for seamless concealed carry.
 
-8. [High-Quality OWB Holster for S&W M&P 1.0 Handguns](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The high-strength Boltaron-crafted Blade-Tech Classic OWB Holster for S&W M&P 1.0 offers adjustable retention, IDPA & USPSA legal speed cut, and a positive lock trigger guard for secure firearm storage during tactical or competitive situations.
+8. [High-Quality OWB Holster for S&W M&P 1.0 Handguns](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=high-quality-owb-holster-for-sw-mp-10-handguns) - The high-strength Boltaron-crafted Blade-Tech Classic OWB Holster for S&W M&P 1.0 offers adjustable retention, IDPA & USPSA legal speed cut, and a positive lock trigger guard for secure firearm storage during tactical or competitive situations.
 
-9. [Sig M18 IWB Holster with RMR Compatibility and Tall Sight Channel](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The C&G Holsters Alpha IWB Holster for Sig Sauer P320C/M18 offers top-notch quality, comfort, and secure fit, showcasing American craftsmanship, compatibility with most RMR/Red Dots, and a lifetime guarantee.
+9. [Sig M18 IWB Holster with RMR Compatibility and Tall Sight Channel](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=sig-m18-iwb-holster-with-rmr-compatibility-and-tall-sight-channel) - The C&G Holsters Alpha IWB Holster for Sig Sauer P320C/M18 offers top-notch quality, comfort, and secure fit, showcasing American craftsmanship, compatibility with most RMR/Red Dots, and a lifetime guarantee.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Outside the Waistband Holster for Sig P320C/M18](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Outside the Waistband Holster for Sig P320C/M18](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=outside-the-waistband-holster-for-sig-p320cm18)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sig-p320c-owb-holster-usa-made-fits-sig-sauer-320c-m18-signature-owb-holster-by-blade-tech-holsters--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sig-p320c-owb-holster-usa-made-fits-sig-sauer-320c-m18-signature-owb-holster-by-blade-tech-holsters--1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=sig-p320c-owb-holster-usa-made-fits-sig-sauer-320c-m18-signature-owb-holster-by-blade-tech-holsters-1"><img alt="sig-p320c-owb-holster-usa-made-fits-sig-sauer-320c-m18-signature-owb-holster-by-blade-tech-holsters--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sig-p320c-owb-holster-usa-made-fits-sig-sauer-320c-m18-signature-owb-holster-by-blade-tech-holsters--1/public"/></a></div>
 
 I've been using the Blade-Tech Signature OWB Holster for my Sig P320C/M18 for a few months, and it's proven to be a reliable and secure option for my daily carry. The precision molding ensures that the holster fits snugly, keeping my firearm in place even during vigorous activities like running or hiking.
 
@@ -50,9 +50,9 @@ The adjustable retention feature is particularly helpful as it allows me to cust
 
 My only minor complaint would be the lack of color options available; however, functionality always takes precedence over aesthetics for something as crucial as a carry holster. Overall, if you’re looking for durability, safety, and performance from an outside-the-waistband holster at an affordable price point – then this BladeTech Signature OWB Holster should definitely be on your radar!
 
-### [M&P 1.0 9/40/45 Holster | OWB Concealed Carry Holster | IDPA Legal Optic Ready Speed Cut](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [M&P 1.0 9/40/45 Holster | OWB Concealed Carry Holster | IDPA Legal Optic Ready Speed Cut](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=mp-10-94045-holster-owb-concealed-carry-holster-idpa-legal-optic-ready-speed-cut)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sw-mp-1-0-9-40-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-smit-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-mp-1-0-9-40-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-smit-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=sw-mp-1-0-9-40-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-smit-1"><img alt="sw-mp-1-0-9-40-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-smit-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-mp-1-0-9-40-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-smit-1/public"/></a></div>
 
 As a reviewer who has used the product, I found it to be an excellent choice for carrying outside the waistband due to its durability, compatibility with various attachment options, and precision molding. The adjustable retention feature allowed me to fine-tune the fit of the holster around my firearm, providing both comfort and security.
 
@@ -60,9 +60,9 @@ The proprietary blend of polymers proved to be very durable during my use, and I
 
 However, there were a few initial adjustments needed regarding fitment and retention strength adjustment which were easily rectified by simply loosening or tightening screws. Apart from this minor inconvenience, it was an excellent choice for those looking for a high-quality affordable OWB holster that performed well at the range. Overall, it's definitely worth considering if you're in search of a reliable OWB holster for your firearm needs.
 
-### [Slim and Discreet IWB Holster for Sig P320C and M18](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Slim and Discreet IWB Holster for Sig P320C and M18](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=slim-and-discreet-iwb-holster-for-sig-p320c-and-m18)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="klipt-iwb-sig-p320c-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-sig-p320c-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=klipt-iwb-sig-p320c-holster-right-handed-inside-the-waistband-klipt-blade-tech-1"><img alt="klipt-iwb-sig-p320c-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-sig-p320c-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
 
 I recently tried out the Blade-Tech Klipt IWB Holster for my Sig P320C / M18, and it has definitely become a favorite. The slim design is discreet, making it easy to carry every day without feeling too bulky or uncomfortable.
 
@@ -74,9 +74,9 @@ Comfort-wise, this holster excels with its smooth edges and full-length sweat sh
 
 My only minor complaint would be adjusting the cant can be tricky sometimes; an adjustable cant option would be great to have for added convenience. However, overall this is a fantastic carrying option that's well worth considering if you own a Sig P320C / M18 like myself! 👍
 
-### [Total Eclipse 2.0 Modular Holster for Sig Sauer P320C / M18](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Total Eclipse 2.0 Modular Holster for Sig Sauer P320C / M18](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=total-eclipse-20-modular-holster-for-sig-sauer-p320c-m18)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-sig-p320c-m18-no-light-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-sig-p320c-m18-no-light-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-sig-p320c-m18-no-light-1"><img alt="total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-sig-p320c-m18-no-light-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-sig-p320c-m18-no-light-1/public"/></a></div>
 
 As a firearms instructor, I recently had the opportunity to test the Blade-Tech Total Eclipse 2. 0 IWB/OWB Modular Holster with my Sig P320C / M18. The holster's auto-locking, toolless design made it extremely easy to switch between OWB and IWB carry without any hassle. And the ambidextrous design ensured that both left and right-handed shooters could easily use it.
 
@@ -84,9 +84,9 @@ One of my favorite aspects of this holster is its high-strength, heat-resistant 
 
 The positive lock trigger guard was a great feature that provided me with tactile feedback indicating when my firearm was securely in place. And the audible click when reholstering gave me added confidence that my weapon was safely locked in place every time I reholstered it, allowing me peace of mind while carrying it daily or during training sessions. Overall, I'd highly recommend the Blade-Tech Total Eclipse 2. 0 Holster as an excellent choice for those looking for versatility, reliability, and comfort in their everyday carry or training holsters – especially for users of Sig P320C/M18 handguns!
 
-### [Adjustable Retention OWB Holster for S&W M&P 2.0](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Adjustable Retention OWB Holster for S&W M&P 2.0](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=adjustable-retention-owb-holster-for-sw-mp-20)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sw-mp-2-0-9-40-4-25-classic-owb-holster-right-handed-smith-wesson-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-mp-2-0-9-40-4-25-classic-owb-holster-right-handed-smith-wesson-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=sw-mp-2-0-9-40-4-25-classic-owb-holster-right-handed-smith-wesson-blade-tech-1"><img alt="sw-mp-2-0-9-40-4-25-classic-owb-holster-right-handed-smith-wesson-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-mp-2-0-9-40-4-25-classic-owb-holster-right-handed-smith-wesson-blade-tech-1/public"/></a></div>
 
 After purchasing the Boltaron crafted OWB holster for my S&W M&P 2. 0, I can say it met my expectations and more. With its adjustable retention feature, I was able to fine-tune the tightness of the holster around my firearm ensuring a perfect balance between concealability and quick draw time. The positive locking trigger guard also provides tactile feedback when inserting or removing my gun, which eliminates any doubts about its security.
 
@@ -94,9 +94,9 @@ This holster's optic ready speed cut design makes it stand out for competitive s
 
 I experienced no issues with screw spinning during adjustments but understand that some users may need to apply threadlocker or use rubber bands for extra stability - definitely something to keep in mind before purchasing this product. Overall, I highly recommend this high-quality OWB holster for serious marksmen and competition shooters like myself who demand precision and performance from their gear.
 
-### [Modular Ambidextrous IWB/OWB Holster for Smith & Wesson M&P 2.0 9mm/40 Cal](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Modular Ambidextrous IWB/OWB Holster for Smith & Wesson M&P 2.0 9mm/40 Cal](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=modular-ambidextrous-iwbowb-holster-for-smith-wesson-mp-20-9mm40-cal)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="smith-wesson-mp-9-40-45-4-25-4-6-2-0-total-eclipse-2-0-iwb-owb-modular-holster-left-and-right-handed-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-wesson-mp-9-40-45-4-25-4-6-2-0-total-eclipse-2-0-iwb-owb-modular-holster-left-and-right-handed-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=smith-wesson-mp-9-40-45-4-25-4-6-2-0-total-eclipse-2-0-iwb-owb-modular-holster-left-and-right-handed-1"><img alt="smith-wesson-mp-9-40-45-4-25-4-6-2-0-total-eclipse-2-0-iwb-owb-modular-holster-left-and-right-handed-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-wesson-mp-9-40-45-4-25-4-6-2-0-total-eclipse-2-0-iwb-owb-modular-holster-left-and-right-handed-1/public"/></a></div>
 
 I've been using the Total Eclipse 2. 0 IWB/OWB Modular Holster for my S&W M&P 9mm, and I can confidently say that it's a game-changer. The auto-locking design ensures that my firearm is secure without sacrificing a smooth, quick release when needed. What really sets this holster apart is its modular adaptability - the ability to easily customize the fit and function to match different situations.
 
@@ -104,9 +104,9 @@ The adjustable retention screw is just right; it provides enough tension for a g
 
 Another thing I appreciate about this rig is its high-strength polymer construction, which not only makes it lightweight but also incredibly durable. Overall, the Total Eclipse 2. 0 IWB/OWB Modular Holster offers incredible value with its reliable performance and ergonomic design that perfectly suits any active lifestyle or ever-changing needs in terms of carry options.
 
-### [Multi-Functional S&W M&P 1.0 .45 Cal Holster for IWB/OWB Carry](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Multi-Functional S&W M&P 1.0 .45 Cal Holster for IWB/OWB Carry](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=multi-functional-sw-mp-10-45-cal-holster-for-iwbowb-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sw-mp-1-0-45-cal-iwb-owb-holster-usa-made-total-eclipse-2-0-holster-inside-outside-the-waistband-con-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-mp-1-0-45-cal-iwb-owb-holster-usa-made-total-eclipse-2-0-holster-inside-outside-the-waistband-con-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=sw-mp-1-0-45-cal-iwb-owb-holster-usa-made-total-eclipse-2-0-holster-inside-outside-the-waistband-con-1"><img alt="sw-mp-1-0-45-cal-iwb-owb-holster-usa-made-total-eclipse-2-0-holster-inside-outside-the-waistband-con-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-mp-1-0-45-cal-iwb-owb-holster-usa-made-total-eclipse-2-0-holster-inside-outside-the-waistband-con-1/public"/></a></div>
 
 After using this holster for several weeks, I am thoroughly impressed with its quality and versatility. The build quality is outstanding, displaying thoughtful craftsmanship and attention to detail. One of the most notable features is its ability to accommodate various firearms, making it extremely valuable for those with multiple handguns. Additionally, the adjustable cant and ride height provide a high level of customization and comfort when carrying.
 
@@ -114,9 +114,9 @@ The holster's comfort is another standout aspect, as it remains snug against my 
 
 Furthermore, the ambidextrous design allows users to switch between left- or right-handed carry with ease—a feature that sets it apart from other holsters on the market today. In terms of build quality, versatility, comfort, and retention capabilities at an affordable price point, this holster has truly surpassed my expectations and become my go-to choice for concealed carry in various settings - whether it be in the woods or around town. Highly recommended!
 
-### [High-Quality OWB Holster for S&W M&P 1.0 Handguns](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [High-Quality OWB Holster for S&W M&P 1.0 Handguns](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=high-quality-owb-holster-for-sw-mp-10-handguns)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sw-mp-9-40-45-4-25-owb-holster-from-blade-tech-right-handed-smith-wesson-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-mp-9-40-45-4-25-owb-holster-from-blade-tech-right-handed-smith-wesson-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=sw-mp-9-40-45-4-25-owb-holster-from-blade-tech-right-handed-smith-wesson-blade-tech-1"><img alt="sw-mp-9-40-45-4-25-owb-holster-from-blade-tech-right-handed-smith-wesson-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-mp-9-40-45-4-25-owb-holster-from-blade-tech-right-handed-smith-wesson-blade-tech-1/public"/></a></div>
 
 As someone who regularly carries a firearm, I recently started using Blade-Tech's Classic OWB Holster for my S&W M&P 1. 0, and it's quickly become one of my favorites.
 
@@ -128,9 +128,9 @@ For competitive shooters like myself, the IDPA and USPSA legal optic ready speed
 
 Overall, I have been extremely satisfied with Blade-Tech's Classic OWB Holster as it checks all the boxes for precision fitting, adjustability, durability and customizable options - all without sacrificing comfort while wearing it daily. If you are looking for an OWB holster that combines these features into one reliable package, look no further than Blade-Tech's Classic model!
 
-### [Sig M18 IWB Holster with RMR Compatibility and Tall Sight Channel](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Sig M18 IWB Holster with RMR Compatibility and Tall Sight Channel](https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=sig-m18-iwb-holster-with-rmr-compatibility-and-tall-sight-channel)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cg-holsters-alpha-iwb-holsters-sig-sauer-p320c-m18-right-hand-black-0290-101" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-alpha-iwb-holsters-sig-sauer-p320c-m18-right-hand-black-0290-101/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=cg-holsters-alpha-iwb-holsters-sig-sauer-p320c-m18-right-hand-black-0290-101"><img alt="cg-holsters-alpha-iwb-holsters-sig-sauer-p320c-m18-right-hand-black-0290-101" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-alpha-iwb-holsters-sig-sauer-p320c-m18-right-hand-black-0290-101/public"/></a></div>
 
 As someone who recently purchased the Sig M18 Holsters from C&G, I've been thoroughly impressed with its design and performance. The holster fits perfectly with my Sig P320 RXP, which has a red dot and weapon light attached. Its curved shape allows for easy concealment and makes carrying such a large firearm comfortable.
 
@@ -146,7 +146,7 @@ In conclusion, if you are looking for a comfortable and secure holster for your 
 
 ### Considerations when choosing the right M18 holster
 
-<div><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/M18+Holsters-2/public" alt="M18 Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=m18-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/M18+Holsters-2/public" alt="M18 Holsters-2"></a></div>
 
 When it comes to purchasing an M18 holster, there are several important aspects to take into account:
 
@@ -182,7 +182,7 @@ M18 holsters come in various styles and configurations to cater to different use
 
 - Pocket Holsters: Pocket holsters are specifically designed to be carried in a front or back pant pocket, providing both concealment and quick access to your firearm. However, they may not be as secure as some other carry options.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/M18+Holsters-3/public" alt="M18 Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=m18-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/M18+Holsters-3/public" alt="M18 Holsters-3"></a></div>
 
 ### General advice for M18 holster users
 
@@ -198,7 +198,7 @@ Regardless of your choice of M18 holster, there are a few common tips and sugges
 
 ### What are M18 Holsters?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/M18+Holsters-4/public" alt="M18 Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=m18-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/M18+Holsters-4/public" alt="M18 Holsters-4"></a></div>
 
 M18 Holsters are specially designed holsters meant for carrying and securing M18 model firearms. They provide a safe and convenient way to store and access your M18 weapon when you are on the move or participating in outdoor activities.
 
@@ -210,7 +210,7 @@ The target audience for M18 Holsters includes individuals who own or regularly u
 
 M18 Holsters are usually constructed from high-quality materials like leather, nylon, or Kydex to offer durability and resistance against wear and tear. The choice of material can affect factors such as comfort, flexibility, and ease of cleaning for the user.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/M18+Holsters-5/public" alt="M18 Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=m18-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/M18+Holsters-5/public" alt="M18 Holsters-5"></a></div>
 
 ### What are the key features to look for in M18 Holsters?
 
@@ -222,7 +222,7 @@ The sizing of M18 Holsters depends on the specific model of M18 firearm you own.
 
 ### What are the different styles of M18 Holsters available?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/M18+Holsters-6/public" alt="M18 Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/m18-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m18-holsters&utm_term=m18-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/M18+Holsters-6/public" alt="M18 Holsters-6"></a></div>
 
 M18 Holsters come in various styles and designs, such as belt holsters, thigh holsters, and paddle holsters. Each style offers unique advantages, like extra support, concealment, or quick access depending on your specific needs and preferences.
 

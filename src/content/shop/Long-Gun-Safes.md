@@ -16,51 +16,51 @@ Gun safes are an essential accessory for every firearm owner, providing not only
 
 ## The Top 19 Best Long Gun Safes
 
-1. [Secure 18-Gun Compact Security Cabinet with Key Lock](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Store, protect, and easily organize your firearms and valuables in the secure and durable Stack-On Steel 18 Gun Cabinet, meeting California DOJ safety regulations.
+1. [Secure 18-Gun Compact Security Cabinet with Key Lock](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=secure-18-gun-compact-security-cabinet-with-key-lock) - Store, protect, and easily organize your firearms and valuables in the secure and durable Stack-On Steel 18 Gun Cabinet, meeting California DOJ safety regulations.
 
-2. [Cannon 20+4 Gun Fire-Resistant Safe: Ultimate Protection for Your Valuables](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Cannon TS5722 20+4 gun fire-resistant safe offers exceptional protection and capacity for 24 firearms in a luxurious, well-made, and easy-to-use design, making it a top choice for home security enthusiasts.
+2. [Cannon 20+4 Gun Fire-Resistant Safe: Ultimate Protection for Your Valuables](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=cannon-204-gun-fire-resistant-safe-ultimate-protection-for-your-valuables) - The Cannon TS5722 20+4 gun fire-resistant safe offers exceptional protection and capacity for 24 firearms in a luxurious, well-made, and easy-to-use design, making it a top choice for home security enthusiasts.
 
-3. [Cannon 48 Long Gun + 6 Handgun Safe with E-Lock and 45 Minute Fire Rating](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unmatched security and ample storage with Cannon's TS5934 Gun Safe, offering 48 long-gun and 6 handgun capacity, a 45-minute fire rating, and an electronic lock for reliable protection and easy access.
+3. [Cannon 48 Long Gun + 6 Handgun Safe with E-Lock and 45 Minute Fire Rating](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=cannon-48-long-gun-6-handgun-safe-with-e-lock-and-45-minute-fire-rating) - Experience unmatched security and ample storage with Cannon's TS5934 Gun Safe, offering 48 long-gun and 6 handgun capacity, a 45-minute fire rating, and an electronic lock for reliable protection and easy access.
 
-4. [Secure 40-Gun Safe with Biometric Lock and Sealed Protection](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Sports Afield Preserve SA5940P-BIO offers exceptional protection for up to 40 long guns, boasting fire and water resistance, a 45-minute fire rating, and advanced biometric lock technology, making it a top choice for secure and organized storage.
+4. [Secure 40-Gun Safe with Biometric Lock and Sealed Protection](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=secure-40-gun-safe-with-biometric-lock-and-sealed-protection) - The Sports Afield Preserve SA5940P-BIO offers exceptional protection for up to 40 long guns, boasting fire and water resistance, a 45-minute fire rating, and advanced biometric lock technology, making it a top choice for secure and organized storage.
 
-5. [High-Capacity 5 Gun Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Safely secure your valuables with this sturdy, well-constructed gun safe, featuring a high-strength lock system, wall and floor mounting holes, and keyed access.
+5. [High-Capacity 5 Gun Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=high-capacity-5-gun-safe) - Safely secure your valuables with this sturdy, well-constructed gun safe, featuring a high-strength lock system, wall and floor mounting holes, and keyed access.
 
-6. [5-Gun Secure Metal Storage Cabinet](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - High-Quality 3-Point Locking 5-Gun Starter Metal Security Cabinet – Fully-assembled Black Metal Cabinet with California Department of Justice Approval for Optimal Firearm Storage and Safety.
+6. [5-Gun Secure Metal Storage Cabinet](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=5-gun-secure-metal-storage-cabinet) - High-Quality 3-Point Locking 5-Gun Starter Metal Security Cabinet – Fully-assembled Black Metal Cabinet with California Department of Justice Approval for Optimal Firearm Storage and Safety.
 
-7. [Remington Gun Club 52 Plus 8-Gun Fireproof and Waterproof Gun Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Remington Gun Club 52 Plus 8-Gun Fireproof and Waterproof Gun Safe provides top-notch security and protection for your valuable firearms with its fire-resistant, waterproof design, advanced electronic lock, and convenient interior features.
+7. [Remington Gun Club 52 Plus 8-Gun Fireproof and Waterproof Gun Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=remington-gun-club-52-plus-8-gun-fireproof-and-waterproof-gun-safe) - The Remington Gun Club 52 Plus 8-Gun Fireproof and Waterproof Gun Safe provides top-notch security and protection for your valuable firearms with its fire-resistant, waterproof design, advanced electronic lock, and convenient interior features.
 
-8. [Cabela's Signature 64-Gun Safe with Mechanical Lock](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - A highly secure and spacious 64-gun safe with a mechanical dial lock, 11-gauge steel construction, military-style locking bars, and 75 minutes of fire protection at 1,200°F, ensuring maximum protection and storage for your valuable possessions.
+8. [Cabela's Signature 64-Gun Safe with Mechanical Lock](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=cabelas-signature-64-gun-safe-with-mechanical-lock) - A highly secure and spacious 64-gun safe with a mechanical dial lock, 11-gauge steel construction, military-style locking bars, and 75 minutes of fire protection at 1,200°F, ensuring maximum protection and storage for your valuable possessions.
 
-9. [5-Gun Metal Security Cabinet](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The American Furniture Classics 5 Gun Metal Security Cabinet, Black provides a secure storage solution for up to 5 long guns and comes equipped with soft foam barrel cushioning, carpeted floor, and an advanced 3-point locking system for added protection.
+9. [5-Gun Metal Security Cabinet](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=5-gun-metal-security-cabinet) - The American Furniture Classics 5 Gun Metal Security Cabinet, Black provides a secure storage solution for up to 5 long guns and comes equipped with soft foam barrel cushioning, carpeted floor, and an advanced 3-point locking system for added protection.
 
-10. [Winchester 26 Long Gun Fireproof Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Protect your long guns and valuables with the Winchester 26 Long Gun Safe, boasting a 45-minute fire rating, robust security features, and ample storage for up to 26 long guns.
+10. [Winchester 26 Long Gun Fireproof Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=winchester-26-long-gun-fireproof-safe) - Protect your long guns and valuables with the Winchester 26 Long Gun Safe, boasting a 45-minute fire rating, robust security features, and ample storage for up to 26 long guns.
 
-11. [Wasatch 18 Gun Fire and Water Safe with E-Lock](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Wasatch 18 Gun Safe is an affordable and feature-rich fire and waterproof safe, offering robust protection for your long guns and valuables, with an electronic lock, alarm U function, and ample interior storage for easy organization.
+11. [Wasatch 18 Gun Fire and Water Safe with E-Lock](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=wasatch-18-gun-fire-and-water-safe-with-e-lock) - The Wasatch 18 Gun Safe is an affordable and feature-rich fire and waterproof safe, offering robust protection for your long guns and valuables, with an electronic lock, alarm U function, and ample interior storage for easy organization.
 
-12. [Wasatch 24 Gun Safe with Electronic Lock & Extra Protection](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Wasatch 24 Gun Safe offers exceptional value for fire and water-resistant long gun storage, featuring an electronic lock, ample storage, sturdy construction, and an attractive design, making it a must-have for gun owners.
+12. [Wasatch 24 Gun Safe with Electronic Lock & Extra Protection](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=wasatch-24-gun-safe-with-electronic-lock-extra-protection) - The Wasatch 24 Gun Safe offers exceptional value for fire and water-resistant long gun storage, featuring an electronic lock, ample storage, sturdy construction, and an attractive design, making it a must-have for gun owners.
 
-13. [Browning BF23E 23 Gun Safe with Hammer Gray Textured Finish](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Browning BF23E Gun Safe offers a secure and visually appealing solution for storing up to 23 long guns, featuring a 12-gauge solid steel body, textured finish, and a ThermaBlock 30-minute fire rating.
+13. [Browning BF23E 23 Gun Safe with Hammer Gray Textured Finish](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=browning-bf23e-23-gun-safe-with-hammer-gray-textured-finish) - The Browning BF23E Gun Safe offers a secure and visually appealing solution for storing up to 23 long guns, featuring a 12-gauge solid steel body, textured finish, and a ThermaBlock 30-minute fire rating.
 
-14. [16-Gun Fire-Resistant Dial Lock Gun Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Tracker Safe 16-Gun 30 Min Fire-Resistant Combination Dial Lock Gun Safe in Black offers unmatched security and durability for protecting your cherished firearms and valuables at an affordable price.
+14. [16-Gun Fire-Resistant Dial Lock Gun Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=16-gun-fire-resistant-dial-lock-gun-safe) - The Tracker Safe 16-Gun 30 Min Fire-Resistant Combination Dial Lock Gun Safe in Black offers unmatched security and durability for protecting your cherished firearms and valuables at an affordable price.
 
-15. [Solid Wood 8 Gun Cabinet with Felt Lined Butt Plates and Key Lock System](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The American Furniture Classics 8 Gun Cabinet is a perfect blend of style and function, featuring a sturdy design with richly-finished solid wood, wood veneers, and a locking key system to securely store and display up to 8 long guns.
+15. [Solid Wood 8 Gun Cabinet with Felt Lined Butt Plates and Key Lock System](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=solid-wood-8-gun-cabinet-with-felt-lined-butt-plates-and-key-lock-system) - The American Furniture Classics 8 Gun Cabinet is a perfect blend of style and function, featuring a sturdy design with richly-finished solid wood, wood veneers, and a locking key system to securely store and display up to 8 long guns.
 
-16. [In-Wall Long Gun Safe with Touchpad Control](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discreetly store and access your belongings with the SnapSafe In Wall Safe, offering a secure solution for long gun storage with its digital keypad and safe entry knob.
+16. [In-Wall Long Gun Safe with Touchpad Control](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=in-wall-long-gun-safe-with-touchpad-control) - Discreetly store and access your belongings with the SnapSafe In Wall Safe, offering a secure solution for long gun storage with its digital keypad and safe entry knob.
 
-17. [Premium 16-Gun Metal Cabinet for Secure Storage](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The American Furniture Classics 16 Gun Metal Cabinet boasts a classic design with a scratch-resistant textured black finish, wood grain accents, and a heavy-duty locking mechanism for secure storage and protection of up to 16 long guns and shotguns.
+17. [Premium 16-Gun Metal Cabinet for Secure Storage](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=premium-16-gun-metal-cabinet-for-secure-storage) - The American Furniture Classics 16 Gun Metal Cabinet boasts a classic design with a scratch-resistant textured black finish, wood grain accents, and a heavy-duty locking mechanism for secure storage and protection of up to 16 long guns and shotguns.
 
-18. [Cabela's Signature 25-Gun Mechanical Lock Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Cabela's Signature Mechanical Lock 25-Gun Safe combines exceptional durability, security, and fire protection with stylish design, offering a premium solution for storing and safeguarding up to 25 long guns.
+18. [Cabela's Signature 25-Gun Mechanical Lock Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=cabelas-signature-25-gun-mechanical-lock-safe) - The Cabela's Signature Mechanical Lock 25-Gun Safe combines exceptional durability, security, and fire protection with stylish design, offering a premium solution for storing and safeguarding up to 25 long guns.
 
-19. [Tracker Safe M Series 12-Gun Fire-Rated Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Tracker Safe M Series fire rated gun safe, with its 11-gauge steel, 2 layers of fireboard, and 60-minute fire rating, offers robust protection, ample storage, and sleek design, backed by a 4.9 rating and excellent customer reviews.
+19. [Tracker Safe M Series 12-Gun Fire-Rated Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=tracker-safe-m-series-12-gun-fire-rated-safe) - The Tracker Safe M Series fire rated gun safe, with its 11-gauge steel, 2 layers of fireboard, and 60-minute fire rating, offers robust protection, ample storage, and sleek design, backed by a 4.9 rating and excellent customer reviews.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Secure 18-Gun Compact Security Cabinet with Key Lock](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Secure 18-Gun Compact Security Cabinet with Key Lock](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=secure-18-gun-compact-security-cabinet-with-key-lock)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="stack-on-beveled-18-gun-security-cabinet-steel-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/stack-on-beveled-18-gun-security-cabinet-steel-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=stack-on-beveled-18-gun-security-cabinet-steel-1"><img alt="stack-on-beveled-18-gun-security-cabinet-steel-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/stack-on-beveled-18-gun-security-cabinet-steel-1/public"/></a></div>
 
 I recently purchased the Stack-On 18 Firearm Compact Security Cabinet Locker Gun Safe to secure my collection of firearms. After using it for several months, I have noticed some positive aspects as well as a few areas where it could improve.
 
@@ -70,9 +70,9 @@ However, there are a couple of issues that I have encountered during use. The in
 
 Overall, the Stack-On 18 Firearm Compact Security Cabinet Locker Gun Safe does provide basic protection for your firearms with its sturdy structure and multiple locks. However, if you're looking for something more heavy-duty or long lasting in terms of construction quality, this might not be the ideal option for you.
 
-### [Cannon 20+4 Gun Fire-Resistant Safe: Ultimate Protection for Your Valuables](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Cannon 20+4 Gun Fire-Resistant Safe: Ultimate Protection for Your Valuables](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=cannon-204-gun-fire-resistant-safe-ultimate-protection-for-your-valuables)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cannon-20-long-gun-4-hand-gun-13-1-cu-ft-convertible-safe-30-min-fire-rating-ts5722-h12heb-24" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cannon-20-long-gun-4-hand-gun-13-1-cu-ft-convertible-safe-30-min-fire-rating-ts5722-h12heb-24/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=cannon-20-long-gun-4-hand-gun-13-1-cu-ft-convertible-safe-30-min-fire-rating-ts5722-h12heb-24"><img alt="cannon-20-long-gun-4-hand-gun-13-1-cu-ft-convertible-safe-30-min-fire-rating-ts5722-h12heb-24" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cannon-20-long-gun-4-hand-gun-13-1-cu-ft-convertible-safe-30-min-fire-rating-ts5722-h12heb-24/public"/></a></div>
 
 My experience with the Cannon TS5722 20+4 gun fire-resistant safe has been excellent. I was impressed with the interior luxury, which includes soft materials to prevent scratches, and the adjustable shelving system made organizing my valuables a breeze. The factory-installed door organization kit holds up my pistols securely, providing extra peace of mind.
 
@@ -82,9 +82,9 @@ Although storage capacity is ample for essential items like documents or jewelry
 
 Despite these minor issues, this safe provides great value for money considering its high-quality build combined with security features such as Triple Fin seal protection against drill attacks – making it perfect not only for those looking to protect their valuables but also those seeking a reliable solution to store their firearm collection safely away from children's reach while remaining easily accessible when needed most!
 
-### [Cannon 48 Long Gun + 6 Handgun Safe with E-Lock and 45 Minute Fire Rating](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Cannon 48 Long Gun + 6 Handgun Safe with E-Lock and 45 Minute Fire Rating](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=cannon-48-long-gun-6-handgun-safe-with-e-lock-and-45-minute-fire-rating)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cannon-48-long-gun-6-handgun-e-lock-45-min-fire-rating-gun-safe-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cannon-48-long-gun-6-handgun-e-lock-45-min-fire-rating-gun-safe-black-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=cannon-48-long-gun-6-handgun-e-lock-45-min-fire-rating-gun-safe-black-1"><img alt="cannon-48-long-gun-6-handgun-e-lock-45-min-fire-rating-gun-safe-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cannon-48-long-gun-6-handgun-e-lock-45-min-fire-rating-gun-safe-black-1/public"/></a></div>
 
 I recently purchased the Cannon TS5934 Gun Safe and have been using it for the past month. Assembly was a bit challenging, so I enlisted some help due to its weight. The size is perfect for my storage needs, as it accommodates 48 long guns and 6 handguns comfortably. The door organization is a nice touch, providing ample space for smaller items. The carpeted interior with black leatherette trim ensures that my valuables are protected from scratches and damage.
 
@@ -92,9 +92,9 @@ The electronic lock and keypad work seamlessly, giving me peace of mind about ac
 
 Overall, this product meets most of my expectations in terms of securing my firearms and other valuable items. Despite minor concerns about component quality and fire resistance information, it serves its purpose well in keeping my possessions safe from potential threats such as thieves or fires.
 
-### [Secure 40-Gun Safe with Biometric Lock and Sealed Protection](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Secure 40-Gun Safe with Biometric Lock and Sealed Protection](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=secure-40-gun-safe-with-biometric-lock-and-sealed-protection)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sports-afield-preserve-gun-safe-sa5940p-biometric-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sports-afield-preserve-gun-safe-sa5940p-biometric-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=sports-afield-preserve-gun-safe-sa5940p-biometric-1"><img alt="sports-afield-preserve-gun-safe-sa5940p-biometric-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sports-afield-preserve-gun-safe-sa5940p-biometric-1/public"/></a></div>
 
 I recently purchased the Preserve SA5940P-BIO 20. 55 cu. ft. Fireproof and Waterproof 40-Gun Safe with Biometric Lock for my home, as security is of utmost importance to me. This safe impressed me right from the moment it was delivered, with its industrial-grade steel construction and robust Uni-Weld body. The biometric lock allowed for easy programming of up to 100 unique fingerprints, providing both convenience and extra layer of security when accessing the contents inside.
 
@@ -104,9 +104,9 @@ The interior design is equally impressive, featuring a fully carpeted interior w
 
 Overall, choosing this Preserve gun safe has exceeded my expectations by offering not only top-notch safety features but also user friendly aspects such as multiple entry options (biometric scanning or Fail Safe override keys). With high quality construction and thoughtful design elements throughout both inside and outside; this product has been an exceptional choice in keeping our home secure!
 
-### [High-Capacity 5 Gun Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [High-Capacity 5 Gun Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=high-capacity-5-gun-safe)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="5-gun-safe-american-furniture-classics-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/5-gun-safe-american-furniture-classics-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=5-gun-safe-american-furniture-classics-1"><img alt="5-gun-safe-american-furniture-classics-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/5-gun-safe-american-furniture-classics-1/public"/></a></div>
 
 Man, I've been using this 5 Gun Safe from American Furniture Classics for quite some time now. I've got to say, it's been a real game-changer in securing my firearms. The 3-directional bolt system along with the soft foam pad at the bottom has proved to be a real lifesaver when it comes to keeping my valuables safely stowed away.
 
@@ -116,9 +116,9 @@ However, it's not all smooth sailing. The keyed access can be a bit of a pain at
 
 Overall, I've been quite happy with my purchase. While it may not be perfect, it's certainly done a great job of keeping my firearms safe and secure. So if you're in the market for a gun safe, this one's definitely worth considering.
 
-### [5-Gun Secure Metal Storage Cabinet](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [5-Gun Secure Metal Storage Cabinet](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=5-gun-secure-metal-storage-cabinet)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="american-furniture-classics-5-gun-starter-metal-security-cabinet-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/american-furniture-classics-5-gun-starter-metal-security-cabinet-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=american-furniture-classics-5-gun-starter-metal-security-cabinet-1"><img alt="american-furniture-classics-5-gun-starter-metal-security-cabinet-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/american-furniture-classics-5-gun-starter-metal-security-cabinet-1/public"/></a></div>
 
 I recently got the American Furniture Classics 5 Gun Starter Metal Security Cabinet, and I must say, I'm quite impressed by its design and features. This compact cabinet is perfect for securing my long guns, and it definitely adds a sense of security to my home.
 
@@ -130,9 +130,9 @@ One downside to this cabinet, however, is its assembly. It comes fully assembled
 
 Despite this minor issue, the American Furniture Classics 5 Gun Starter Metal Security Cabinet has been a great addition to my home. It provides peace of mind and ensures that my firearms are kept in a secure and organized space.
 
-### [Remington Gun Club 52 Plus 8-Gun Fireproof and Waterproof Gun Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Remington Gun Club 52 Plus 8-Gun Fireproof and Waterproof Gun Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=remington-gun-club-52-plus-8-gun-fireproof-and-waterproof-gun-safe)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="remington-gun-club-52-plus-6-gun-fireproof-and-waterproof-gun-safe-with-electronic-lock-black-gloss--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/remington-gun-club-52-plus-6-gun-fireproof-and-waterproof-gun-safe-with-electronic-lock-black-gloss--1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=remington-gun-club-52-plus-6-gun-fireproof-and-waterproof-gun-safe-with-electronic-lock-black-gloss-1"><img alt="remington-gun-club-52-plus-6-gun-fireproof-and-waterproof-gun-safe-with-electronic-lock-black-gloss--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/remington-gun-club-52-plus-6-gun-fireproof-and-waterproof-gun-safe-with-electronic-lock-black-gloss--1/public"/></a></div>
 
 Nestled in the heart of my living room, the Remington Gun Club 52 Plus Gun Safe has become a steadfast companion, safeguarding my beloved collection of firearms. It's like a trusty vault, offering not just protection, but also reliable organization that even an obsessive-compulsive like myself can appreciate.
 
@@ -146,9 +146,9 @@ All things considered, the Remington Gun Club 52 Plus Gun Safe is a reliable and
 
 So whether you're preparing for the zombie apocalypse, or just looking to keep your family heirlooms safe, this sturdy and feature-rich safe will be your faithful ally.
 
-### [Cabela's Signature 64-Gun Safe with Mechanical Lock](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Cabela's Signature 64-Gun Safe with Mechanical Lock](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=cabelas-signature-64-gun-safe-with-mechanical-lock)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cabelas-signature-gun-safes-gray-gloss-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cabelas-signature-gun-safes-gray-gloss-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=cabelas-signature-gun-safes-gray-gloss-1"><img alt="cabelas-signature-gun-safes-gray-gloss-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cabelas-signature-gun-safes-gray-gloss-1/public"/></a></div>
 
 I have recently been using the Cabela's Signature Gun Safe in my home, and it has been a game-changer in terms of storing and protecting my valuable firearms. This safe not only offers ample space to store up to 64 long guns, but it also uses a robust mechanical lock to ensure secure entry.
 
@@ -160,9 +160,9 @@ One minor downside worth mentioning is that the handling of this heavy-duty safe
 
 In conclusion, if you're seeking a safe secure that not only protects your firearms but also provides ample storage space, the Cabela's Signature Gun Safe is an excellent choice.
 
-### [5-Gun Metal Security Cabinet](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [5-Gun Metal Security Cabinet](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=5-gun-metal-security-cabinet)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="american-furniture-classics-5-gun-metal-security-cabinet-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/american-furniture-classics-5-gun-metal-security-cabinet-black-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=american-furniture-classics-5-gun-metal-security-cabinet-black-1"><img alt="american-furniture-classics-5-gun-metal-security-cabinet-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/american-furniture-classics-5-gun-metal-security-cabinet-black-1/public"/></a></div>
 
 I recently purchased the American Furniture Classics 5 Gun Metal Security Cabinet in black, and I have to say, it's been a game changer for me. I had been looking for a safe and secure way to store my long guns and handguns, but I didn't want to spend a fortune on a fancy, high-end safe. That's where this little cabinet came in.
 
@@ -174,9 +174,9 @@ However, there were a few downsides to this cabinet as well. The main issue was 
 
 Overall, I would highly recommend the American Furniture Classics 5 Gun Metal Security Cabinet to anyone looking for a secure and affordable way to store their firearms. It's not perfect, but it gets the job done and provides peace of mind, knowing that my guns are safe and protected.
 
-### [Winchester 26 Long Gun Fireproof Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Winchester 26 Long Gun Fireproof Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=winchester-26-long-gun-fireproof-safe)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="winchester-36-long-gun-e-lock-gun-safe-gray-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/winchester-36-long-gun-e-lock-gun-safe-gray-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=winchester-36-long-gun-e-lock-gun-safe-gray-1"><img alt="winchester-36-long-gun-e-lock-gun-safe-gray-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/winchester-36-long-gun-e-lock-gun-safe-gray-1/public"/></a></div>
 
 I recently purchased the Winchester 26 Long Gun Safe, and I couldn't be happier with my decision. As a gun enthusiast, I needed a safe that could not only protect my long guns but also keep them organized. The Winchester safe has exceeded my expectations in terms of storage, accessibility, and security.
 
@@ -190,9 +190,9 @@ However, there are a few cons to consider with this safe. Some users have report
 
 Overall, I highly recommend the Winchester 26 Long Gun Safe to anyone in need of a reliable, secure, and well-organized gun safe. Its steel construction, fire rating, and accessibility features make it a top choice in its price range.
 
-### [Wasatch 18 Gun Fire and Water Safe with E-Lock](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Wasatch 18 Gun Fire and Water Safe with E-Lock](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=wasatch-18-gun-fire-and-water-safe-with-e-lock)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="wasatch-18-gun-fire-and-water-safe-with-e-lock-18egw-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wasatch-18-gun-fire-and-water-safe-with-e-lock-18egw-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=wasatch-18-gun-fire-and-water-safe-with-e-lock-18egw-1"><img alt="wasatch-18-gun-fire-and-water-safe-with-e-lock-18egw-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wasatch-18-gun-fire-and-water-safe-with-e-lock-18egw-1/public"/></a></div>
 
 I've been using this Wasatch 18 Gun Safe for a few months now, and I love it. The 1400-degree fire rating and waterproofing are impressive, giving me peace of mind knowing my guns are well-protected. The electronic lock with its alarm function is user-friendly; plus, the included backup key is a great added security measure.
 
@@ -202,9 +202,9 @@ Now let's talk cons. The safe doesn't actually fit 18 guns, but I've found that 
 
 All in all, I highly recommend the Wasatch 18 Gun Safe for anyone in need of a reliable, secure, and affordable long-gun safe. The quality and features provided at this price point make it a standout option in the gun safe market.
 
-### [Wasatch 24 Gun Safe with Electronic Lock & Extra Protection](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Wasatch 24 Gun Safe with Electronic Lock & Extra Protection](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=wasatch-24-gun-safe-with-electronic-lock-extra-protection)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="wasatch-24-gun-fire-and-water-safe-with-e-lock-24egw-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wasatch-24-gun-fire-and-water-safe-with-e-lock-24egw-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=wasatch-24-gun-fire-and-water-safe-with-e-lock-24egw-1"><img alt="wasatch-24-gun-fire-and-water-safe-with-e-lock-24egw-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wasatch-24-gun-fire-and-water-safe-with-e-lock-24egw-1/public"/></a></div>
 
 I've been using this Wasatch 24 Gun Fire and Water Safe with E-Lock 24EGW for a few months now, and I must say, it's been a game-changer for me. The fire and water resistance are truly impressive - not many safes can boast of such features. The electronic lock with an alarm U function gives me peace of mind knowing that my valuables are secure from both theft and potential disasters.
 
@@ -214,9 +214,9 @@ However, there are a few cons to consider. First, setting up the electronic lock
 
 Overall, I'm very happy with the Wasatch 24 Gun Fire and Water Safe with E-Lock 24EGW. Its unique features, such as the fire and water resistance, electronic lock with an alarm U function, and interior door storage, make it a great choice for those looking to safely store their valuables. Just be prepared for a potentially difficult setup process and a hefty weight if you need to move it around.
 
-### [Browning BF23E 23 Gun Safe with Hammer Gray Textured Finish](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Browning BF23E 23 Gun Safe with Hammer Gray Textured Finish](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=browning-bf23e-23-gun-safe-with-hammer-gray-textured-finish)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="browning-bf23e-23-american-flag-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/browning-bf23e-23-american-flag-gun-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=browning-bf23e-23-american-flag-gun-safe-1"><img alt="browning-bf23e-23-american-flag-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/browning-bf23e-23-american-flag-gun-safe-1/public"/></a></div>
 
 As a proud gun enthusiast, I've always sought after the safest and most secure way to store my collection. That's why I opted for the Browning BF23E American Flag Gun Safe. This sturdy safe provides an ideal space for up to 23 long guns, making it perfect for my growing collection.
 
@@ -228,9 +228,9 @@ However, there's a minor downside to this safe. The floor, which is supposed to 
 
 Overall, I found the Browning BF23E American Flag Gun Safe to be a visually appealing, well-crafted, and highly secure option for safeguarding my firearms. I'm happy to have made this purchase, and I'm confident in the safety it provides for my valuable collection.
 
-### [16-Gun Fire-Resistant Dial Lock Gun Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [16-Gun Fire-Resistant Dial Lock Gun Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=16-gun-fire-resistant-dial-lock-gun-safe)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="tracker-safe-16-gun-30-min-fire-resistant-combination-dial-lock-gun-safe-black-powder-coat-paint-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tracker-safe-16-gun-30-min-fire-resistant-combination-dial-lock-gun-safe-black-powder-coat-paint-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=tracker-safe-16-gun-30-min-fire-resistant-combination-dial-lock-gun-safe-black-powder-coat-paint-1"><img alt="tracker-safe-16-gun-30-min-fire-resistant-combination-dial-lock-gun-safe-black-powder-coat-paint-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tracker-safe-16-gun-30-min-fire-resistant-combination-dial-lock-gun-safe-black-powder-coat-paint-1/public"/></a></div>
 
 As an avid gun collector, I've gone through my fair share of gun safes over the years. However, none of them have given me the peace of mind quite like the Tracker Safe 16-Gun has. This safe offers a secure and elegant storage solution for all of my guns and valuables, and it's fire-resistant too. The combination dial lock is a personal favorite of mine, as it provides that extra layer of security without the risk of losing a key or dealing with a finicky electronic lock.
 
@@ -238,9 +238,9 @@ The Tracker Safe's sleek black exterior not only looks great in my home but also
 
 However, there is one downside to this safe, and that's its weight. At 300 pounds, this safe is not easy to move around, so be sure to choose its permanent location wisely. But overall, I am thrilled with my purchase and would highly recommend the Tracker Safe 16-Gun 30 Min Fire-Resistant Combination Dial Lock Gun Safe to anyone in need of a reliable and secure storage solution for their valuable possessions.
 
-### [Solid Wood 8 Gun Cabinet with Felt Lined Butt Plates and Key Lock System](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Solid Wood 8 Gun Cabinet with Felt Lined Butt Plates and Key Lock System](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=solid-wood-8-gun-cabinet-with-felt-lined-butt-plates-and-key-lock-system)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="american-furniture-classics-8-gun-cabinet-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/american-furniture-classics-8-gun-cabinet-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=american-furniture-classics-8-gun-cabinet-1"><img alt="american-furniture-classics-8-gun-cabinet-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/american-furniture-classics-8-gun-cabinet-1/public"/></a></div>
 
 You know what they say, a well-organized gun collection is worth its weight in gold. I recently purchased the American Furniture Classics 8 Gun Cabinet, and I must say, it has quickly become a statement piece in my living room.
 
@@ -252,9 +252,9 @@ While there's enough room to store up to 8 long guns, I appreciate how the felt-
 
 Although the cabinet did require some adjustments during assembly, such as cutting custom pieces of wood for the floor leveling, I'm overall very satisfied with my purchase. The American Furniture Classics 8 Gun Cabinet has successfully transformed a simple storage area into a display of my passion for firearms. If you're looking to enhance your gun collection's aesthetic while keeping it secure and organized, I highly recommend giving this cabinet a try.
 
-### [In-Wall Long Gun Safe with Touchpad Control](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [In-Wall Long Gun Safe with Touchpad Control](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=in-wall-long-gun-safe-with-touchpad-control)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="snapsafe-in-wall-long-gun-shotgun-safe-digital-keypad-measures-44x-4x16-25-security-cabinet-with-saf-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/snapsafe-in-wall-long-gun-shotgun-safe-digital-keypad-measures-44x-4x16-25-security-cabinet-with-saf-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=snapsafe-in-wall-long-gun-shotgun-safe-digital-keypad-measures-44x-4x16-25-security-cabinet-with-saf-1"><img alt="snapsafe-in-wall-long-gun-shotgun-safe-digital-keypad-measures-44x-4x16-25-security-cabinet-with-saf-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/snapsafe-in-wall-long-gun-shotgun-safe-digital-keypad-measures-44x-4x16-25-security-cabinet-with-saf-1/public"/></a></div>
 
 I've had the pleasure of using the Snapsafe In Wall Long Gun Safe for a few weeks now, and it's truly become an indispensable part of my home security setup. The installation process was relatively straightforward, especially considering the detailed instructions provided in the user manual. It fits seamlessly between most common wall stud placements, making it incredibly easy to conceal in a closet or any other discreet location.
 
@@ -262,9 +262,9 @@ The digital keypad is user-friendly and offers a secure entry option. However, k
 
 The cabinet itself is quite durable, providing ample protection against potential theft attempts. Another feature worth mentioning is its compatibility with mounting bolts, which further enhances its security capabilities. Overall, while there may be some initial struggles with assembly due to its precise nature, I can confidently say that the Snapsafe In Wall Long Gun Safe is a worthwhile investment for anyone seeking a reliable and hidden storage solution.
 
-### [Premium 16-Gun Metal Cabinet for Secure Storage](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Premium 16-Gun Metal Cabinet for Secure Storage](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=premium-16-gun-metal-cabinet-for-secure-storage)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="american-furniture-classics-16-gun-metal-cabinet-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/american-furniture-classics-16-gun-metal-cabinet-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=american-furniture-classics-16-gun-metal-cabinet-1"><img alt="american-furniture-classics-16-gun-metal-cabinet-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/american-furniture-classics-16-gun-metal-cabinet-1/public"/></a></div>
 
 I've had the pleasure of using the American Furniture Classics 16 Gun Metal Cabinet in my home, and it's definitely worth considering for its balance of style, function, and affordability.
 
@@ -276,9 +276,9 @@ However, there were a few drawbacks worth mentioning. Firstly, the assembly proc
 
 Despite these minor concerns, I would recommend the American Furniture Classics 16 Gun Metal Cabinet to anyone looking for an attractive and functional way to store their firearms securely. Its unique blend of style and practicality makes it a solid choice for any home.
 
-### [Cabela's Signature 25-Gun Mechanical Lock Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Cabela's Signature 25-Gun Mechanical Lock Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=cabelas-signature-25-gun-mechanical-lock-safe)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cabelas-signature-mechanical-lock-25-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cabelas-signature-mechanical-lock-25-gun-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=cabelas-signature-mechanical-lock-25-gun-safe-1"><img alt="cabelas-signature-mechanical-lock-25-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cabelas-signature-mechanical-lock-25-gun-safe-1/public"/></a></div>
 
 I recently had the chance to try out the Cabela's Signature Mechanical Lock 25-Gun Safe, and I must say, it's quite the formidable piece of security. The first thing that caught my eye was its sleek gray gloss finish, which looks as good as it performs. But don't be fooled by its beauty; this safe is built to last with an 11-gauge steel construction and up to 75 minutes of fire protection.
 
@@ -288,9 +288,9 @@ However, there were a few cons that came with this product. The weight, at nearl
 
 In summary, the Cabela's Signature Mechanical Lock 25-Gun Safe offers solid protection and plenty of storage space for your long guns. While it may be a tad heavy and have a dated lock system, it's definitely worth considering if you're in the market for a reliable gun safe.
 
-### [Tracker Safe M Series 12-Gun Fire-Rated Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Tracker Safe M Series 12-Gun Fire-Rated Safe](https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=tracker-safe-m-series-12-gun-fire-rated-safe)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="tracker-safe-gun-safe-lock-type-mechanical-dial-size-59h-x-23w-x-20d-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tracker-safe-gun-safe-lock-type-mechanical-dial-size-59h-x-23w-x-20d-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=tracker-safe-gun-safe-lock-type-mechanical-dial-size-59h-x-23w-x-20d-1"><img alt="tracker-safe-gun-safe-lock-type-mechanical-dial-size-59h-x-23w-x-20d-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tracker-safe-gun-safe-lock-type-mechanical-dial-size-59h-x-23w-x-20d-1/public"/></a></div>
 
 I've been using the M Series Tracker Safe Gun Safe in my home for a few months now, and I must say, it has completely transformed my sense of security. The sheer sturdiness of this safe is undeniable - its 11-gauge steel construction gives me peace of mind knowing that my valuables are safe from potential thieves.
 
@@ -302,7 +302,7 @@ All in all, if you're looking for a reliable and secure safe to store your valua
 
 ## Buyer's Guide
 
-<div><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Long+Gun+Safes-2/public" alt="Long Gun Safes-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=long-gun-safes-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Long+Gun+Safes-2/public" alt="Long Gun Safes-2"></a></div>
 
 ### Important Features
 
@@ -328,7 +328,7 @@ Before purchasing a long gun safe, take the following into account:
 
 - Maintenance - Regularly inspect and maintain your safe to ensure its continued effectiveness at protecting your long guns.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Long+Gun+Safes-3/public" alt="Long Gun Safes-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=long-gun-safes-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Long+Gun+Safes-3/public" alt="Long Gun Safes-3"></a></div>
 
 ### General Advice
 
@@ -346,7 +346,7 @@ Remember that investing in a quality long gun safe is not only important for sec
 
 ## FAQ
 
-<div><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Long+Gun+Safes-4/public" alt="Long Gun Safes-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=long-gun-safes-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Long+Gun+Safes-4/public" alt="Long Gun Safes-4"></a></div>
 
 ### What is a long gun safe?
 
@@ -356,7 +356,7 @@ A long gun safe is a secure storage container designed to house rifles, shotguns
 
 Long gun safes not only provide a secure location for storing your valuable firearms, but they also help to keep family members, particularly children, safe by preventing accidental discharges. In addition, a properly secured safe can deter theft and help to ensure that your firearms are not used improperly.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Long+Gun+Safes-5/public" alt="Long Gun Safes-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=long-gun-safes-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Long+Gun+Safes-5/public" alt="Long Gun Safes-5"></a></div>
 
 ### How do I choose the right long gun safe for my needs?
 
@@ -366,7 +366,7 @@ When selecting a long gun safe, consider factors such as the number of firearms 
 
 A biometric long gun safe utilizes fingerprint recognition technology to grant access. This type of lock is extremely secure and allows for quick and easy access in emergency situations. Moreover, it eliminates the need for remembering a combination or keeping track of a key.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Long+Gun+Safes-6/public" alt="Long Gun Safes-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/long-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=long-gun-safes&utm_term=long-gun-safes-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Long+Gun+Safes-6/public" alt="Long Gun Safes-6"></a></div>
 
 ### How do I install a long gun safe?
 

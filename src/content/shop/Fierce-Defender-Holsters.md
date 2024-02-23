@@ -16,31 +16,31 @@ When it comes to finding the perfect holster for your firearm, functionality and
 
 ## The Top 9 Best Fierce Defender Holsters
 
-1. [Custom Mod1 IWB Kydex Holster System for Faxon FX-19](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Mod1 IWB Kydex Holster System - Precision-engineered custom left-hand holster for Sig P365 with open bottom for threads & comps, custom DCC clips, dark wing for added concealment, 100% made in America, and lifetime guarantee.
+1. [Custom Mod1 IWB Kydex Holster System for Faxon FX-19](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=custom-mod1-iwb-kydex-holster-system-for-faxon-fx-19) - Mod1 IWB Kydex Holster System - Precision-engineered custom left-hand holster for Sig P365 with open bottom for threads & comps, custom DCC clips, dark wing for added concealment, 100% made in America, and lifetime guarantee.
 
-2. [IWB Kydex Holster for Smith & Wesson M&P Shield](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Top-notch IWB Holster - Highly secure, custom-fit, inside-the-waistband Kydex holster from We The People, perfect for your Smith & Wesson M&P Shield, M20 or Plus 9mm/40, providing lifetime guarantee confidence.
+2. [IWB Kydex Holster for Smith & Wesson M&P Shield](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=iwb-kydex-holster-for-smith-wesson-mp-shield) - Top-notch IWB Holster - Highly secure, custom-fit, inside-the-waistband Kydex holster from We The People, perfect for your Smith & Wesson M&P Shield, M20 or Plus 9mm/40, providing lifetime guarantee confidence.
 
-3. [Blade-Tech Classic OWB Holster for FN FNX-45 Tactical](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Classic OWB Holster for FN FNX-45 Tactical, crafted in the USA with adjustable retention and modular mounting, offers a secure fit and compatibility with IDPA & USPSA competition, perfect for serious marksmen.
+3. [Blade-Tech Classic OWB Holster for FN FNX-45 Tactical](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=blade-tech-classic-owb-holster-for-fn-fnx-45-tactical) - The Blade-Tech Classic OWB Holster for FN FNX-45 Tactical, crafted in the USA with adjustable retention and modular mounting, offers a secure fit and compatibility with IDPA & USPSA competition, perfect for serious marksmen.
 
-4. [Appendix IWB Holster and Mag Pouch Mod Kit for Glock 19/44/45 Gen 3-5 & 23/32 Gen 3-4](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the Perfect AIWB Carry with Blade-Tech's Total Eclipse 2.0 Holster & Mag Pouch Mod Kit, specifically designed for Glock 19/44/45 Gen 3-5 & 23/32 Gen 3-4, perfectly matching with Streamlight TLR-1.
+4. [Appendix IWB Holster and Mag Pouch Mod Kit for Glock 19/44/45 Gen 3-5 & 23/32 Gen 3-4](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=appendix-iwb-holster-and-mag-pouch-mod-kit-for-glock-194445-gen-3-5-2332-gen-3-4) - Discover the Perfect AIWB Carry with Blade-Tech's Total Eclipse 2.0 Holster & Mag Pouch Mod Kit, specifically designed for Glock 19/44/45 Gen 3-5 & 23/32 Gen 3-4, perfectly matching with Streamlight TLR-1.
 
-5. [IWB/OWB Compatible Kydex Magazine Holder for M&P Shield 9/40 Plus](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Transform your concealed carry experience with our comfortable, NTOA-tested Kydex Magazine Holder, perfect for your M&P Shield 9/40.
+5. [IWB/OWB Compatible Kydex Magazine Holder for M&P Shield 9/40 Plus](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=iwbowb-compatible-kydex-magazine-holder-for-mp-shield-940-plus) - Transform your concealed carry experience with our comfortable, NTOA-tested Kydex Magazine Holder, perfect for your M&P Shield 9/40.
 
-6. [Smith & Wesson M&P Shield IWB Holster with Adjustable Retention Pressure and Carry Angle](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience top-notch gun protection with the Smith & Wesson M&P Shield/M2.0/Plus 9mm/.40/30 Super Carry IWB Right-Handed Holster by We The People Holsters - perfect for secure, comfortable, and concealed carry.
+6. [Smith & Wesson M&P Shield IWB Holster with Adjustable Retention Pressure and Carry Angle](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=smith-wesson-mp-shield-iwb-holster-with-adjustable-retention-pressure-and-carry-angle) - Experience top-notch gun protection with the Smith & Wesson M&P Shield/M2.0/Plus 9mm/.40/30 Super Carry IWB Right-Handed Holster by We The People Holsters - perfect for secure, comfortable, and concealed carry.
 
-7. [Universal Mag Carrier Kydex Concealed Carry IWB Magazine Holster by We The People Holsters](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Universal Mag Carrier by We The People Holsters, a single stack, adjustable IWB magazine carrier for concealed carry in black kydex material.
+7. [Universal Mag Carrier Kydex Concealed Carry IWB Magazine Holster by We The People Holsters](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=universal-mag-carrier-kydex-concealed-carry-iwb-magazine-holster-by-we-the-people-holsters) - Universal Mag Carrier by We The People Holsters, a single stack, adjustable IWB magazine carrier for concealed carry in black kydex material.
 
-8. [Purse Defender Assembly Only for Modular Holsters and Mag Carriers](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Introducing the Purse Defender Assembly Only, featuring secure attachment to various holsters and compatibility with most purses and bags. Experience seamless concealed carry without compromising style and convenience.
+8. [Purse Defender Assembly Only for Modular Holsters and Mag Carriers](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=purse-defender-assembly-only-for-modular-holsters-and-mag-carriers) - Introducing the Purse Defender Assembly Only, featuring secure attachment to various holsters and compatibility with most purses and bags. Experience seamless concealed carry without compromising style and convenience.
 
-9. [Adjustable Cant and Retention IWB Kydex Holster for Ruger LCP 380](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Custom-fit Ruger LCP 380 IWB Kydex Holster for comfort, durability, and adjustable retention perfect for everyday concealed carry and quick draw.
+9. [Adjustable Cant and Retention IWB Kydex Holster for Ruger LCP 380](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=adjustable-cant-and-retention-iwb-kydex-holster-for-ruger-lcp-380) - Custom-fit Ruger LCP 380 IWB Kydex Holster for comfort, durability, and adjustable retention perfect for everyday concealed carry and quick draw.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Custom Mod1 IWB Kydex Holster System for Faxon FX-19](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Custom Mod1 IWB Kydex Holster System for Faxon FX-19](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=custom-mod1-iwb-kydex-holster-system-for-faxon-fx-19)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="mod1-iwb-kydex-holster-system-custom-right-hand-faxon-fx-20" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mod1-iwb-kydex-holster-system-custom-right-hand-faxon-fx-20/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=mod1-iwb-kydex-holster-system-custom-right-hand-faxon-fx-20"><img alt="mod1-iwb-kydex-holster-system-custom-right-hand-faxon-fx-20" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mod1-iwb-kydex-holster-system-custom-right-hand-faxon-fx-20/public"/></a></div>
 
 After using the C&G Mod 1 Kydex Holster for a few weeks, I'm incredibly impressed with its quality and design. The hinge system is a game-changer, providing maximum concealment and comfort while carrying my firearm. The holster fits my pistol securely, without any wiggle room, thanks to the proprietary molds and CNC milling that result in precise detailing. The solid locking mechanism provides an audible "click" when the firearm is holstered, giving me peace of mind about weapon security during physical activity.
 
@@ -48,9 +48,9 @@ What I appreciate most about this holster is how well it conforms to my body dur
 
 One area where there may be room for improvement would be adding versatility in terms of fitting different types of guns or adjustability options based on specific user preferences. Other than that minor suggestion, the C&G Mod 1 Kydex Holster has exceeded my expectations in terms of quality, comfort, and concealment.
 
-### [IWB Kydex Holster for Smith & Wesson M&P Shield](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [IWB Kydex Holster for Smith & Wesson M&P Shield](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=iwb-kydex-holster-for-smith-wesson-mp-shield)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="we-the-people-holsters-constitution-right-hand-iwb-holster-compatible-with-smith-wesson-mp-shield-m2-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/we-the-people-holsters-constitution-right-hand-iwb-holster-compatible-with-smith-wesson-mp-shield-m2-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=we-the-people-holsters-constitution-right-hand-iwb-holster-compatible-with-smith-wesson-mp-shield-m2-1"><img alt="we-the-people-holsters-constitution-right-hand-iwb-holster-compatible-with-smith-wesson-mp-shield-m2-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/we-the-people-holsters-constitution-right-hand-iwb-holster-compatible-with-smith-wesson-mp-shield-m2-1/public"/></a></div>
 
 I recently purchased this Kydex holster for my concealed carry needs and have been using it daily. One of the standout features of this holster is its precise fit for my specific gun model, providing me with an audible click when I securely holster my gun, giving me peace of mind that it's held in place safely.
 
@@ -60,9 +60,9 @@ However, there are a few areas where I believe this product could improve furthe
 
 Overall this Kydex Holster from Odin offers good value for money considering its lifetime guarantee against defects along with other great features like being waterproof and offering a precise fit for your specific gun model.
 
-### [Blade-Tech Classic OWB Holster for FN FNX-45 Tactical](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Blade-Tech Classic OWB Holster for FN FNX-45 Tactical](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=blade-tech-classic-owb-holster-for-fn-fnx-45-tactical)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1"><img alt="fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1/public"/></a></div>
 
 The Blade-Tech Classic OWB Holster has proven to be a reliable and durable option for my FN FNX-45 Tactical. Its high-quality construction, crafted from Boltaron in the USA, provides a precise and secure fit that I can trust on the range or in competition.
 
@@ -72,15 +72,15 @@ Another great aspect of this holster is its modular mounting holes which provide
 
 However, there were some minor issues when initially setting up this product as some adjustment screws spun freely instead of securing into place once set up according to desired positioning - something which was resolved through customer support assistance via email correspondences within a reasonable timeframe nevertheless. Despite these small hiccups, overall –this remains a solid choice worth considering for those looking for reliable carry options.
 
-### [Appendix IWB Holster and Mag Pouch Mod Kit for Glock 19/44/45 Gen 3-5 & 23/32 Gen 3-4](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Appendix IWB Holster and Mag Pouch Mod Kit for Glock 19/44/45 Gen 3-5 & 23/32 Gen 3-4](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=appendix-iwb-holster-and-mag-pouch-mod-kit-for-glock-194445-gen-3-5-2332-gen-3-4)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-glock-19-44-45-gen-3-5-23-32-gen-3-4-s-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-glock-19-44-45-gen-3-5-23-32-gen-3-4-s-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-glock-19-44-45-gen-3-5-23-32-gen-3-4-s-1"><img alt="total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-glock-19-44-45-gen-3-5-23-32-gen-3-4-s-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-glock-19-44-45-gen-3-5-23-32-gen-3-4-s-1/public"/></a></div>
 
 The Blade-Tech Total Eclipse 2. 0 with Total Eclipse 2. 0 Appendix IWB Mag Pouch Mod Kit is an exceptional holster for concealed carry, combining superior build quality, versatility, and comfort. Its durable construction and adjustability for cant and ride height set it apart from other holsters on the market. Additionally, the retention screw allows for a perfect balance between safety measures and quick accessibility. The ability to accommodate a wide range of firearms makes it suitable for carrying regardless of the type of gun you own. The lightness ensures extended periods of wear without feeling weighed down by bulky equipment, even while wearing heavy clothing like jackets or vests. Overall, this ambidextrous option caters to left-handed individuals as well and is an excellent choice among available options within its budget bracket range.
 
-### [IWB/OWB Compatible Kydex Magazine Holder for M&P Shield 9/40 Plus](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [IWB/OWB Compatible Kydex Magazine Holder for M&P Shield 9/40 Plus](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=iwbowb-compatible-kydex-magazine-holder-for-mp-shield-940-plus)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="universal-iwb-owb-compatible-single-kydex-magazine-holder-custom-mp-shield-9-40-plus-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/universal-iwb-owb-compatible-single-kydex-magazine-holder-custom-mp-shield-9-40-plus-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=universal-iwb-owb-compatible-single-kydex-magazine-holder-custom-mp-shield-9-40-plus-1"><img alt="universal-iwb-owb-compatible-single-kydex-magazine-holder-custom-mp-shield-9-40-plus-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/universal-iwb-owb-compatible-single-kydex-magazine-holder-custom-mp-shield-9-40-plus-1/public"/></a></div>
 
 As a satisfied customer and product reviewer, I can attest that the concealed carry holster from Fierce Defender Holsters is an excellent choice for anyone in search of comfort and quality. Made from sturdy Kydex material, it offers enough support and security to ensure that your firearm stays in place throughout the day. The versatility of this holster is also worth noting, as it can be used inside or outside the waistband depending on your personal preference and clothing.
 
@@ -90,9 +90,9 @@ The retention on this holster strikes a good balance between ease of drawing and
 
 Although I did encounter some minor issues with the belt clips being slightly wide/thick making it difficult at times when donning/doffing my belt along with removing/inserting said clip into my waistband – these small inconveniences pale in comparison given how great overall experience provided by such fantastic product quality offered here. . . definitely worth checking out if you’re looking for ultimate reliability & comfort while carrying concealed each day! 4 stars outta 5 only because those few minor issues mentioned earlier though otherwise woulda easily given full 5 stars without hesitation whatsoever =) Highly recommended indeed! ! !
 
-### [Smith & Wesson M&P Shield IWB Holster with Adjustable Retention Pressure and Carry Angle](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Smith & Wesson M&P Shield IWB Holster with Adjustable Retention Pressure and Carry Angle](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=smith-wesson-mp-shield-iwb-holster-with-adjustable-retention-pressure-and-carry-angle)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="smith-wesson-mp-shield-m2-0-plus-9mm-40-30-super-carry-iwb-right-handed-holster-by-we-the-people-hol-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-wesson-mp-shield-m2-0-plus-9mm-40-30-super-carry-iwb-right-handed-holster-by-we-the-people-hol-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=smith-wesson-mp-shield-m2-0-plus-9mm-40-30-super-carry-iwb-right-handed-holster-by-we-the-people-hol-1"><img alt="smith-wesson-mp-shield-m2-0-plus-9mm-40-30-super-carry-iwb-right-handed-holster-by-we-the-people-hol-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-wesson-mp-shield-m2-0-plus-9mm-40-30-super-carry-iwb-right-handed-holster-by-we-the-people-hol-1/public"/></a></div>
 
 For the past couple of months, I've been using this IWB holster for my S&W M&P Shield 9mm, and it's safe to say both the retention and fit are top-notch. It keeps my weapon secure without any worry of it falling out, which is a big plus. However, when it comes to comfort, the design adds some bulk around the firearm area that can make it slightly uncomfortable at times.
 
@@ -100,9 +100,9 @@ A standout feature is its ease of draw - getting my weapon out is smooth like bu
 
 So if you're looking into investing in an IWB holster specifically designed for Smith & Wesson M&P Shield/Plus 9mm/. 40/30 Super Carry pistols (even accommodating red dot sights), then this one might just do the trick! Just remember that while they incorporated useful features like adjustable carry angle or readily adjustable retention pressure into their design process; comfort might not have been a top priority - so keep that in mind when deciding if this product meets your needs accordingly!
 
-### [Universal Mag Carrier Kydex Concealed Carry IWB Magazine Holster by We The People Holsters](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Universal Mag Carrier Kydex Concealed Carry IWB Magazine Holster by We The People Holsters](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=universal-mag-carrier-kydex-concealed-carry-iwb-magazine-holster-by-we-the-people-holsters)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="universal-mag-carrier-kydex-concealed-carry-iwb-magazine-carrier-holster-by-we-the-people-holsters-b-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/universal-mag-carrier-kydex-concealed-carry-iwb-magazine-carrier-holster-by-we-the-people-holsters-b-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=universal-mag-carrier-kydex-concealed-carry-iwb-magazine-carrier-holster-by-we-the-people-holsters-b-1"><img alt="universal-mag-carrier-kydex-concealed-carry-iwb-magazine-carrier-holster-by-we-the-people-holsters-b-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/universal-mag-carrier-kydex-concealed-carry-iwb-magazine-carrier-holster-by-we-the-people-holsters-b-1/public"/></a></div>
 
 When I first received my Universal Mag Carrier Kydex Concealed Carry/Holster by We The People Holsters, I was immediately impressed with its quality and design. This carrier is made from durable Kydex material that ensures a secure grip on my magazines, while still allowing for easy access.
 
@@ -112,9 +112,9 @@ This mag carrier has worked well for both single-stack and double-stack mags, as
 
 In conclusion, this mag carrier has become an essential part of my everyday carry setup offering excellent concealment and reliability while providing fast accessibility when needed.
 
-### [Purse Defender Assembly Only for Modular Holsters and Mag Carriers](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Purse Defender Assembly Only for Modular Holsters and Mag Carriers](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=purse-defender-assembly-only-for-modular-holsters-and-mag-carriers)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="purse-defender-assembly-only-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purse-defender-assembly-only-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=purse-defender-assembly-only-1"><img alt="purse-defender-assembly-only-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purse-defender-assembly-only-1/public"/></a></div>
 
 As a person who always carries a concealed firearm, I was excited to try the Purse Defender. It solved my problem of not wanting to use an unsightly concealed carry purse. The design is quite ingenious!
 
@@ -124,9 +124,9 @@ The high-quality materials and construction are impressive, making it clear Cros
 
 My only minor concern was the lack of specific measurement information on the website; however, their customer service team was helpful in providing the dimensions (9" wide x 6" tall with a base of 3" wide). Overall, I couldn't be happier with my purchase - it provides added safety without sacrificing style or convenience, and it has held up well against daily wear and tear too!
 
-### [Adjustable Cant and Retention IWB Kydex Holster for Ruger LCP 380](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Adjustable Cant and Retention IWB Kydex Holster for Ruger LCP 380](https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=adjustable-cant-and-retention-iwb-kydex-holster-for-ruger-lcp-380)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="warriorland-ruger-lcp-holster-iwb-kydex-holster-fits-ruger-lcp-380-pistol-not-fit-lcp-ii-380-lcp-ii--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/warriorland-ruger-lcp-holster-iwb-kydex-holster-fits-ruger-lcp-380-pistol-not-fit-lcp-ii-380-lcp-ii--1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=warriorland-ruger-lcp-holster-iwb-kydex-holster-fits-ruger-lcp-380-pistol-not-fit-lcp-ii-380-lcp-ii-1"><img alt="warriorland-ruger-lcp-holster-iwb-kydex-holster-fits-ruger-lcp-380-pistol-not-fit-lcp-ii-380-lcp-ii--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/warriorland-ruger-lcp-holster-iwb-kydex-holster-fits-ruger-lcp-380-pistol-not-fit-lcp-ii-380-lcp-ii--1/public"/></a></div>
 
 I recently purchased the WARRIORLAND IWB Kydex Holster specifically for my Ruger LCP 380 pistol, and I must say that I am beyond impressed with its quality and thoughtful design. The holster fits my gun perfectly, as if it were custom-made for it.
 
@@ -158,7 +158,7 @@ Ensures easy and comfortable use even during prolonged periods of carrying.
 
 Ensures quick and efficient drawing of your weapon when needed.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Fierce+Defender+Holsters-2/public" alt="Fierce Defender Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=fierce-defender-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Fierce+Defender+Holsters-2/public" alt="Fierce Defender Holsters-2"></a></div>
 
 ### Considerations in Choosing a Holster
 
@@ -188,7 +188,7 @@ Concealed or open carry; more discreet with larger firearms.
 
 Concealed carry; used for backup or smaller firearms.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Fierce+Defender+Holsters-3/public" alt="Fierce Defender Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=fierce-defender-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Fierce+Defender+Holsters-3/public" alt="Fierce Defender Holsters-3"></a></div>
 
 #### Level of Retention
 
@@ -202,7 +202,7 @@ Some general advice when shopping for holsters:
 
 If possible, handle the holster in person to get a feel for its quality and comfort.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Fierce+Defender+Holsters-4/public" alt="Fierce Defender Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=fierce-defender-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Fierce+Defender+Holsters-4/public" alt="Fierce Defender Holsters-4"></a></div>
 
 #### Consult Reviews and Recommendations
 
@@ -214,7 +214,7 @@ Your specific needs, such as concealed carry verses open carry, will influence w
 
 ## FAQ
 
-<div><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Fierce+Defender+Holsters-5/public" alt="Fierce Defender Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=fierce-defender-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Fierce+Defender+Holsters-5/public" alt="Fierce Defender Holsters-5"></a></div>
 
 ### What is Fierce Defender Holsters?
 
@@ -228,7 +228,7 @@ Fierce Defender Holsters offers a diverse selection of holsters, such as IWB (In
 
 Fierce Defender meticulously designs every holster to ensure functionality, comfort, and durability. They utilize high-quality materials, such as leather, Kydex, and nylon, to craft their products, in addition to using precision manufacturing techniques to create a perfect fit for various firearms.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Fierce+Defender+Holsters-6/public" alt="Fierce Defender Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/fierce-defender-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fierce-defender-holsters&utm_term=fierce-defender-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Fierce+Defender+Holsters-6/public" alt="Fierce Defender Holsters-6"></a></div>
 
 ### What are the benefits of using Fierce Defender Holsters?
 

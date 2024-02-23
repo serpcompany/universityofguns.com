@@ -18,23 +18,23 @@ Are you in search of a perfect fit for your firearm and need a holster that offe
 
 ## The Top 5 Best Custom Made Gun Holsters
 
-1. [Custom Kydex OWB Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience superior comfort and convenience with the top-rated C&G Covert OWB Kydex Pistol and Mag Holster, endorsed by NTOA for unmatched concealed carry performance.
+1. [Custom Kydex OWB Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-made-gun-holsters&utm_term=custom-kydex-owb-holster-for-concealed-carry) - Experience superior comfort and convenience with the top-rated C&G Covert OWB Kydex Pistol and Mag Holster, endorsed by NTOA for unmatched concealed carry performance.
 
-2. [Custom Kydex Holster for Glock 17L (Open Bottom, Tall Sight Channel)](https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Introducing the high-performance Competition IDPA/USPSA/SCSA/3-Gun Kydex Holster designed for seamless left or right draws with a Glock 19/23, boasting durability, quick-draw capabilities, and crafted in the USA.
+2. [Custom Kydex Holster for Glock 17L (Open Bottom, Tall Sight Channel)](https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-made-gun-holsters&utm_term=custom-kydex-holster-for-glock-17l-open-bottom-tall-sight-channel) - Introducing the high-performance Competition IDPA/USPSA/SCSA/3-Gun Kydex Holster designed for seamless left or right draws with a Glock 19/23, boasting durability, quick-draw capabilities, and crafted in the USA.
 
-3. [Custom Competition Kydex Holster for IDPA, USPSA, SCSA, and 3-Gun](https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - C&G Holsters' Competition IDPA/USPSA/3-Gun Kydex Holster provides exceptional durability and quick draw capabilities for right-hand shooters with custom right 2011/Staccato C2 configurations.
+3. [Custom Competition Kydex Holster for IDPA, USPSA, SCSA, and 3-Gun](https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-made-gun-holsters&utm_term=custom-competition-kydex-holster-for-idpa-uspsa-scsa-and-3-gun) - C&G Holsters' Competition IDPA/USPSA/3-Gun Kydex Holster provides exceptional durability and quick draw capabilities for right-hand shooters with custom right 2011/Staccato C2 configurations.
 
-4. [Custom 1791 IWB Holster with Fast Draw Access](https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The 1791 Ultra Custom IWB Holster is a premium, handcrafted leather holster offering optimal comfort, concealment, and quick draw capabilities for a wide range of firearms, suitable for responsible individuals who prioritize concealed carry.
+4. [Custom 1791 IWB Holster with Fast Draw Access](https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-made-gun-holsters&utm_term=custom-1791-iwb-holster-with-fast-draw-access) - The 1791 Ultra Custom IWB Holster is a premium, handcrafted leather holster offering optimal comfort, concealment, and quick draw capabilities for a wide range of firearms, suitable for responsible individuals who prioritize concealed carry.
 
-5. [Custom Right Handed Glock 20/21 TLR1/HL IWB Tactical Kydex Holster (Alpha Upgrade)](https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unmatched precision and comfort with the Alpha Upgrade Custom Made Gun Holsters for Glock 20/21 with TLR1/HL attachments, designed and crafted by Veterans and Law Enforcement professionals in America.
+5. [Custom Right Handed Glock 20/21 TLR1/HL IWB Tactical Kydex Holster (Alpha Upgrade)](https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-made-gun-holsters&utm_term=custom-right-handed-glock-2021-tlr1hl-iwb-tactical-kydex-holster-alpha-upgrade) - Experience unmatched precision and comfort with the Alpha Upgrade Custom Made Gun Holsters for Glock 20/21 with TLR1/HL attachments, designed and crafted by Veterans and Law Enforcement professionals in America.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Custom Kydex OWB Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Custom Kydex OWB Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-made-gun-holsters&utm_term=custom-kydex-owb-holster-for-concealed-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="custom-owb-covert-kydex-pistol-mag-holster-cg-holsters-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/custom-owb-covert-kydex-pistol-mag-holster-cg-holsters-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-made-gun-holsters&utm_term=custom-owb-covert-kydex-pistol-mag-holster-cg-holsters-1"><img alt="custom-owb-covert-kydex-pistol-mag-holster-cg-holsters-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/custom-owb-covert-kydex-pistol-mag-holster-cg-holsters-1/public"/></a></div>
 
 I recently tested the C&G Covert OWB kydex holster, and I must say, it's one of the most comfortable concealed carry solutions I've tried. The adjustable retention screw lets you customize how tightly your gun fits, ensuring a smooth draw when needed while keeping your gun secure. The geometry of this holster works well to keep my firearm in place without causing discomfort or chafing during extended periods of wear.
 
@@ -42,9 +42,9 @@ In terms of design, the sleek appearance and durability provided by the kydex ma
 
 Overall, I highly recommend this product to anyone searching for a reliable and comfortable concealed carry solution that balances functionality with comfort.
 
-### [Custom Kydex Holster for Glock 17L (Open Bottom, Tall Sight Channel)](https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Custom Kydex Holster for Glock 17L (Open Bottom, Tall Sight Channel)](https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-made-gun-holsters&utm_term=custom-kydex-holster-for-glock-17l-open-bottom-tall-sight-channel)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="competition-idpa-uspsa-scsa-3-gun-kydex-holster-custom-cg-holsters-right-glock-19-24" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/competition-idpa-uspsa-scsa-3-gun-kydex-holster-custom-cg-holsters-right-glock-19-24/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-made-gun-holsters&utm_term=competition-idpa-uspsa-scsa-3-gun-kydex-holster-custom-cg-holsters-right-glock-19-24"><img alt="competition-idpa-uspsa-scsa-3-gun-kydex-holster-custom-cg-holsters-right-glock-19-24" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/competition-idpa-uspsa-scsa-3-gun-kydex-holster-custom-cg-holsters-right-glock-19-24/public"/></a></div>
 
 I recently started using Race Holsters for my daily concealed carry needs, and it's been an excellent experience so far. The holster is made from high-quality Kydex material, which provides a custom fit for my firearm, making it comfortable to wear all day. One standout feature is the Tall sight channel (Red Dot/Suppressor height), offering an additional level of security and peace of mind that my firearm is safely and securely holstered while allowing me to use various optics or suppressors without any issues.
 
@@ -52,9 +52,9 @@ The Solid locking retention system offers a tactile "click" when my gun is secur
 
 The Quick Adjust Retention system also allows me to easily adjust the level of retention to suit my specific needs or preferences ensuring that drawing from the holster feels natural and smooth every time. Overall, I highly recommend Race Holsters to anyone looking for a reliable, high-quality Kydex holster providing both comfort and security while carrying their firearm.
 
-### [Custom Competition Kydex Holster for IDPA, USPSA, SCSA, and 3-Gun](https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Custom Competition Kydex Holster for IDPA, USPSA, SCSA, and 3-Gun](https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-made-gun-holsters&utm_term=custom-competition-kydex-holster-for-idpa-uspsa-scsa-and-3-gun)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="competition-idpa-uspsa-scsa-3-gun-kydex-holster-custom-cg-holsters-right-1911-6" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/competition-idpa-uspsa-scsa-3-gun-kydex-holster-custom-cg-holsters-right-1911-6/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-made-gun-holsters&utm_term=competition-idpa-uspsa-scsa-3-gun-kydex-holster-custom-cg-holsters-right-1911-6"><img alt="competition-idpa-uspsa-scsa-3-gun-kydex-holster-custom-cg-holsters-right-1911-6" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/competition-idpa-uspsa-scsa-3-gun-kydex-holster-custom-cg-holsters-right-1911-6/public"/></a></div>
 
 I've been using this custom-made Kydex holster from C&G Holsters for several weeks now, and I must say, it's definitely made a difference in my shooting experience. Not only is it extremely durable, but it also allows for a quick draw - both of which are essential features that any competitive shooter requires.
 
@@ -64,9 +64,9 @@ However, there's one downside worth mentioning. The Kydex material, although str
 
 In conclusion, if you're looking for a reliable and customizable option for your competition holster needs, then I'd highly recommend giving C&G Holsters a try. Their products are well-made, versatile, and backed by excellent customer service. You won't be disappointed!
 
-### [Custom 1791 IWB Holster with Fast Draw Access](https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Custom 1791 IWB Holster with Fast Draw Access](https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-made-gun-holsters&utm_term=custom-1791-iwb-holster-with-fast-draw-access)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="1791-ultra-custom-iwb-sz-0-nsb-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1791-ultra-custom-iwb-sz-0-nsb-rh-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-made-gun-holsters&utm_term=1791-ultra-custom-iwb-sz-0-nsb-rh-1"><img alt="1791-ultra-custom-iwb-sz-0-nsb-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1791-ultra-custom-iwb-sz-0-nsb-rh-1/public"/></a></div>
 
 As a dedicated firearms enthusiast, I'm always on the lookout for the perfect concealed carry holster. I recently came across the 1791 Ultra Custom IWB Holster, and it has quickly become a staple in my EDC setup.
 
@@ -80,9 +80,9 @@ There are, however, a few minor drawbacks to consider. The first is the price ta
 
 All things considered, the 1791 Ultra Custom IWB Holster has been an exceptional addition to my concealed carry setup. Its customizable features, durable construction, and comfortable design make it a worthwhile investment for anyone in search of the perfect holster.
 
-### [Custom Right Handed Glock 20/21 TLR1/HL IWB Tactical Kydex Holster (Alpha Upgrade)](https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Custom Right Handed Glock 20/21 TLR1/HL IWB Tactical Kydex Holster (Alpha Upgrade)](https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-made-gun-holsters&utm_term=custom-right-handed-glock-2021-tlr1hl-iwb-tactical-kydex-holster-alpha-upgrade)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glock-20-21-tlr1-hl-iwb-tactical-kydex-holster-custom-right-hand-yes-alpha-upgrade-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-20-21-tlr1-hl-iwb-tactical-kydex-holster-custom-right-hand-yes-alpha-upgrade-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-made-gun-holsters&utm_term=glock-20-21-tlr1-hl-iwb-tactical-kydex-holster-custom-right-hand-yes-alpha-upgrade-1"><img alt="glock-20-21-tlr1-hl-iwb-tactical-kydex-holster-custom-right-hand-yes-alpha-upgrade-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-20-21-tlr1-hl-iwb-tactical-kydex-holster-custom-right-hand-yes-alpha-upgrade-1/public"/></a></div>
 
 I recently got my hands on this custom-made Glock 20/21 TLR1/HL IWB Tactical Kydex Holster, and I must say, it's been a game-changer in my everyday carry setup. Not only does it provide excellent retention and firm holster fit with an audible and tactile click when securely holstered, but the added functionality of fitting my tlr1 and holosun red dot perfectly has made shootings more efficient than ever.
 
@@ -94,7 +94,7 @@ All in all, this holster has provided me with incredible comfort, concealment, a
 
 ## Buyer's Guide
 
-<div><a href="https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Custom+Made+Gun+Holsters-2/public" alt="Custom Made Gun Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-made-gun-holsters&utm_term=custom-made-gun-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Custom+Made+Gun+Holsters-2/public" alt="Custom Made Gun Holsters-2"></a></div>
 
 ### Important Features of Custom Made Gun Holsters
 
@@ -120,7 +120,7 @@ Before purchasing a custom-made gun holster, consider the following:
 
 - Warranty and return policy: Verify the manufacturer offers a warranty or return policy in case you're not satisfied with the product.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Custom+Made+Gun+Holsters-3/public" alt="Custom Made Gun Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-made-gun-holsters&utm_term=custom-made-gun-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Custom+Made+Gun+Holsters-3/public" alt="Custom Made Gun Holsters-3"></a></div>
 
 ### General Advice for Using Custom Made Gun Holsters
 
@@ -134,7 +134,7 @@ To make the most out of your custom-made gun holster, follow these tips:
 
 ## FAQ
 
-<div><a href="https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Custom+Made+Gun+Holsters-4/public" alt="Custom Made Gun Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-made-gun-holsters&utm_term=custom-made-gun-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Custom+Made+Gun+Holsters-4/public" alt="Custom Made Gun Holsters-4"></a></div>
 
 ### What are custom made gun holsters?
 
@@ -144,7 +144,7 @@ Custom made gun holsters are specially designed holsters that are tailored to fi
 
 Custom holsters offer several advantages over their standard counterparts. They provide a snug and secure fit for your firearm, preventing it from falling out or sliding around. Additionally, custom gun holsters can be more comfortable to wear and are often more durable than mass-produced alternatives.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Custom+Made+Gun+Holsters-5/public" alt="Custom Made Gun Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-made-gun-holsters&utm_term=custom-made-gun-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Custom+Made+Gun+Holsters-5/public" alt="Custom Made Gun Holsters-5"></a></div>
 
 ### What materials are used to make custom gun holsters?
 
@@ -154,7 +154,7 @@ Custom gun holsters can be made from a variety of materials, including leather, 
 
 Lead times for custom gun holsters can vary depending on the manufacturer and the complexity of the design. Generally, you can expect a waiting period of a few weeks to a month, although some manufacturers may offer expedited shipping options for an additional fee.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Custom+Made+Gun+Holsters-6/public" alt="Custom Made Gun Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/custom-made-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-made-gun-holsters&utm_term=custom-made-gun-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Custom+Made+Gun+Holsters-6/public" alt="Custom Made Gun Holsters-6"></a></div>
 
 ### What is the process for ordering a custom made gun holster?
 

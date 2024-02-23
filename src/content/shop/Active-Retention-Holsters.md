@@ -16,31 +16,31 @@ Are you a shooting enthusiast or a responsible gun owner? Look no further! In ou
 
 ## The Top 9 Best Active Retention Holsters
 
-1. [Custom-Crafted IWB Kydex Holster for Poly80 PF940C with RMR/Red Dot Compatibility](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Customized modular IWB Kydex holster for optimal concealment and comfortable use, designed and crafted by veterans and law enforcement with lifetime guarantee.
+1. [Custom-Crafted IWB Kydex Holster for Poly80 PF940C with RMR/Red Dot Compatibility](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=custom-crafted-iwb-kydex-holster-for-poly80-pf940c-with-rmrred-dot-compatibility) - Customized modular IWB Kydex holster for optimal concealment and comfortable use, designed and crafted by veterans and law enforcement with lifetime guarantee.
 
-2. [Comfortable Kydex IWB Holster for Glock 43/43X/MOS](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience superior functionality and unmatched comfort with the c&g Holsters Alpha IWB Holster designed for Glock 43/43X, featuring a quick-ship program and lifetime guarantee by American veterans and law enforcement professionals.
+2. [Comfortable Kydex IWB Holster for Glock 43/43X/MOS](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=comfortable-kydex-iwb-holster-for-glock-4343xmos) - Experience superior functionality and unmatched comfort with the c&g Holsters Alpha IWB Holster designed for Glock 43/43X, featuring a quick-ship program and lifetime guarantee by American veterans and law enforcement professionals.
 
-3. [Ultimate Belly Band Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - ComfortTac Belly Band Holster: The #1 Best Selling Gun Holster with Active Retention technology for smooth, muscle-memory-free draws, customizable fit, and versatile use for ultimate protection and comfort.
+3. [Ultimate Belly Band Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=ultimate-belly-band-holster-for-concealed-carry) - ComfortTac Belly Band Holster: The #1 Best Selling Gun Holster with Active Retention technology for smooth, muscle-memory-free draws, customizable fit, and versatile use for ultimate protection and comfort.
 
-4. [ComfortTac Belly Band Holster for Men and Women](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience comfortable Every Day Carry with ComfortTac's versatile belly band holster, suitable for various firearms and compatible with many popular brands.
+4. [ComfortTac Belly Band Holster for Men and Women](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=comforttac-belly-band-holster-for-men-and-women) - Experience comfortable Every Day Carry with ComfortTac's versatile belly band holster, suitable for various firearms and compatible with many popular brands.
 
-5. [Adjustable Comfortable Belly Band Holster for Left-Handed Users](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - ComfortTac's best-selling belly band holster offers a customizable fit, quick draw speed, and versatile concealing options, perfect for those prioritizing tactical convenience and ease of use.
+5. [Adjustable Comfortable Belly Band Holster for Left-Handed Users](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=adjustable-comfortable-belly-band-holster-for-left-handed-users) - ComfortTac's best-selling belly band holster offers a customizable fit, quick draw speed, and versatile concealing options, perfect for those prioritizing tactical convenience and ease of use.
 
-6. [Springfield XD 4" Barrel Blade-Tech Signature OWB Holster](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Get the most secure and comfortable concealed-carry experience with the Blade-Tech Signature OWB Holster, precision-engineered for a perfect fit and crafted using a custom polymer blend for ultimate durability.
+6. [Springfield XD 4" Barrel Blade-Tech Signature OWB Holster](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=springfield-xd-4-barrel-blade-tech-signature-owb-holster) - Get the most secure and comfortable concealed-carry experience with the Blade-Tech Signature OWB Holster, precision-engineered for a perfect fit and crafted using a custom polymer blend for ultimate durability.
 
-7. [Comfortable Inside-the-Waistband Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Gun Goddess' Inside-the-Waistband Holster: Discreet & Customizable Protection for Active Lifestyles
+7. [Comfortable Inside-the-Waistband Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=comfortable-inside-the-waistband-holster-for-concealed-carry) - Gun Goddess' Inside-the-Waistband Holster: Discreet & Customizable Protection for Active Lifestyles
 
-8. [Mid-Ride Level I Retention Duty Holster with Automatic Locking System (ALS)](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience secure and swift draws with the Model 6390 ALS Mid-Ride Level I Retention Duty Holster, complete with Automatic Locking System, suede lining for gun protection, and a mid-rise belt loop for added concealment.
+8. [Mid-Ride Level I Retention Duty Holster with Automatic Locking System (ALS)](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=mid-ride-level-i-retention-duty-holster-with-automatic-locking-system-als) - Experience secure and swift draws with the Model 6390 ALS Mid-Ride Level I Retention Duty Holster, complete with Automatic Locking System, suede lining for gun protection, and a mid-rise belt loop for added concealment.
 
-9. [ALS Mid-Ride Level I Retention Duty Holster for Active Retention](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Safariland 6390 ALS Mid-Ride Level I Retention Duty Holster offers exceptional security and quick access with its Automatic Locking System (ALS) and suede lining for added protection.
+9. [ALS Mid-Ride Level I Retention Duty Holster for Active Retention](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=als-mid-ride-level-i-retention-duty-holster-for-active-retention) - The Safariland 6390 ALS Mid-Ride Level I Retention Duty Holster offers exceptional security and quick access with its Automatic Locking System (ALS) and suede lining for added protection.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Custom-Crafted IWB Kydex Holster for Poly80 PF940C with RMR/Red Dot Compatibility](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Custom-Crafted IWB Kydex Holster for Poly80 PF940C with RMR/Red Dot Compatibility](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=custom-crafted-iwb-kydex-holster-for-poly80-pf940c-with-rmrred-dot-compatibility)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="mod1-iwb-kydex-holster-system-custom-right-hand-poly80-pf940c-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mod1-iwb-kydex-holster-system-custom-right-hand-poly80-pf940c-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=mod1-iwb-kydex-holster-system-custom-right-hand-poly80-pf940c-1"><img alt="mod1-iwb-kydex-holster-system-custom-right-hand-poly80-pf940c-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mod1-iwb-kydex-holster-system-custom-right-hand-poly80-pf940c-1/public"/></a></div>
 
 I recently had the chance to test out the C&G Holsters Mod 1 Kydex IWB, and it has quickly become one of my favorite holsters. The custom craftsmanship ensures a perfect fit for your specific needs, making it both comfortable and effective in daily use.
 
@@ -52,9 +52,9 @@ The. 093" thickness combined with precision CNC manufacturing (to within. 003 in
 
 I did experience some difficulties installing the extra mag carrier at first but their customer support was quick to respond over email with clear instructions that helped resolve the issue promptly - not enough for me to deduct from my rating or recommendation at all! Overall, if you're looking for a high-quality custom-crafted Kydex IWB holster that delivers on comfort, concealment and security – look no further than C&G Holsters Mod 1 Kydex IWB!
 
-### [Comfortable Kydex IWB Holster for Glock 43/43X/MOS](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Comfortable Kydex IWB Holster for Glock 43/43X/MOS](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=comfortable-kydex-iwb-holster-for-glock-4343xmos)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cg-holsters-alpha-iwb-holstersglock-43-43x-mos-right-hand-black-0064-101" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-alpha-iwb-holstersglock-43-43x-mos-right-hand-black-0064-101/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=cg-holsters-alpha-iwb-holstersglock-43-43x-mos-right-hand-black-0064-101"><img alt="cg-holsters-alpha-iwb-holstersglock-43-43x-mos-right-hand-black-0064-101" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-alpha-iwb-holstersglock-43-43x-mos-right-hand-black-0064-101/public"/></a></div>
 
 As someone who has used this product, I can confidently say that it is one of the most comfortable and high-quality holsters available. The Glock 43X is an amazing gun, and finding the perfect holster for it made carrying my firearm even smoother. The fit and finish of this holster are top-notch; the kydex holds the gun securely while still allowing for easy draw and reholstering, making it a reliable choice in any situation.
 
@@ -64,9 +64,9 @@ One minor adjustment I made was adding a small piece of rubber between the Kydex
 
 Overall, I am extremely satisfied with this product and would recommend it to anybody looking for a reliable and comfortable holster for their Glock 43X or other compatible pistols. C&G Holsters has truly done an outstanding job in designing and delivering a stellar holster that exceeds expectations in both quality and performance. .
 
-### [Ultimate Belly Band Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Ultimate Belly Band Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=ultimate-belly-band-holster-for-concealed-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="comforttac-belly-band-holster-right-hand-draw-size-xl-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/comforttac-belly-band-holster-right-hand-draw-size-xl-black-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=comforttac-belly-band-holster-right-hand-draw-size-xl-black-1"><img alt="comforttac-belly-band-holster-right-hand-draw-size-xl-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/comforttac-belly-band-holster-right-hand-draw-size-xl-black-1/public"/></a></div>
 
 ComfortTac's Ultimate Belly Band Holster is a fantastic option for anyone in the market for a comfortable and reliable gun holster. During my experience with this product, I was particularly impressed by the wide band and thick material, which ensured that I didn't experience any skin irritation.
 
@@ -76,9 +76,9 @@ However, one potential con could be the length of the strap, which may take some
 
 Overall, if you're looking for a comfortable and versatile belly band holster, I highly recommend trying out ComfortTac's Ultimate Belly Band Holster. With its many functional features and customizable fit, it will quickly become your go-to choice for concealed carry convenience. Just remember to spend some time adjusting it properly before use to ensure maximum comfort and ease of access!
 
-### [ComfortTac Belly Band Holster for Men and Women](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [ComfortTac Belly Band Holster for Men and Women](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=comforttac-belly-band-holster-for-men-and-women)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="comforttac-gun-holsters-for-every-day-carry-ultimate-belly-band-pistol-holster-for-men-women-belt-co-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/comforttac-gun-holsters-for-every-day-carry-ultimate-belly-band-pistol-holster-for-men-women-belt-co-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=comforttac-gun-holsters-for-every-day-carry-ultimate-belly-band-pistol-holster-for-men-women-belt-co-1"><img alt="comforttac-gun-holsters-for-every-day-carry-ultimate-belly-band-pistol-holster-for-men-women-belt-co-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/comforttac-gun-holsters-for-every-day-carry-ultimate-belly-band-pistol-holster-for-men-women-belt-co-1/public"/></a></div>
 
 As a user of the belly band holster in my everyday life, I found it to be an adaptable and cozy option for discreet carry. The broad neoprene waistband offers ample space for various firearms, magazines, and additional accessories, making it ideal for those who want to stay prepared without sacrificing comfort.
 
@@ -86,9 +86,9 @@ One unique feature of this holster is its adjustable design; it can cater to dif
 
 Based on my experience with this belly band holster's comfort and practicality for concealed carry, I would recommend giving it a try. Just make sure you have a good return policy in case it doesn't fit quite right for your body type.
 
-### [Adjustable Comfortable Belly Band Holster for Left-Handed Users](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Adjustable Comfortable Belly Band Holster for Left-Handed Users](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=adjustable-comfortable-belly-band-holster-for-left-handed-users)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="comforttac-belly-band-holster-left-hand-draw-size-regular-nude-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/comforttac-belly-band-holster-left-hand-draw-size-regular-nude-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=comforttac-belly-band-holster-left-hand-draw-size-regular-nude-1"><img alt="comforttac-belly-band-holster-left-hand-draw-size-regular-nude-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/comforttac-belly-band-holster-left-hand-draw-size-regular-nude-1/public"/></a></div>
 
 After using the ComfortTac The Ultimate Belly Band Holster for several weeks, I can confidently say that it has been a great addition to my everyday carry routine. Made of high-quality neoprene material, this versatile holster provides both comfort and concealment, allowing me to easily carry my firearm with ease.
 
@@ -100,9 +100,9 @@ However, there are some nuances to consider when using this product. As someone 
 
 Despite these minor concerns, ComfortTac The Ultimate Belly Band Holster remains an essential piece of gear in my daily carry routine thanks largely due its comfort and adaptability features combined together into one convenient package! Overall though despite some issues relating specifically towards certain body types fitting better than others; overall this product has been quite helpful during time spent testing out its capabilities thus far!
 
-### [Springfield XD 4" Barrel Blade-Tech Signature OWB Holster](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Springfield XD 4" Barrel Blade-Tech Signature OWB Holster](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=springfield-xd-4-barrel-blade-tech-signature-owb-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="blade-tech-signature-outside-the-waistband-holster-springfield-xd-4-barrel-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-signature-outside-the-waistband-holster-springfield-xd-4-barrel-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=blade-tech-signature-outside-the-waistband-holster-springfield-xd-4-barrel-1"><img alt="blade-tech-signature-outside-the-waistband-holster-springfield-xd-4-barrel-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-signature-outside-the-waistband-holster-springfield-xd-4-barrel-1/public"/></a></div>
 
 As a seasoned firearm owner, I was thrilled to try out the Blade-Tech Signature Outside-the-waistband (OWB) Holster for my Gen 1 Glock-29. This holster exceeded my expectations in various ways, and I'm excited to share my experience with you.
 
@@ -112,9 +112,9 @@ Another notable safety feature is the integrated positive-lock trigger guard whi
 
 Overall, whether you are a beginner starting your firearms lifestyle journey or an experienced gun enthusiast seeking top quality products available today - the BladeTech Signature Series would be an excellent choice! Plus, their customer service team is known for being quick and helpful when resolving issues related to warranty claims within reasonable expectations according to online reviews. So if you're looking for functional holsters designed specifically for your concealed carry desires – look no further than Blade Tech’s OWB offering! ”
 
-### [Comfortable Inside-the-Waistband Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Comfortable Inside-the-Waistband Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=comfortable-inside-the-waistband-holster-for-concealed-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="quick-clip-inside-the-waistband-holster-gun-goddess-default-title-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/quick-clip-inside-the-waistband-holster-gun-goddess-default-title-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=quick-clip-inside-the-waistband-holster-gun-goddess-default-title-1"><img alt="quick-clip-inside-the-waistband-holster-gun-goddess-default-title-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/quick-clip-inside-the-waistband-holster-gun-goddess-default-title-1/public"/></a></div>
 
 I recently started using this holster and have found it to be incredibly comfortable and well-designed. The adjustable retention feature is a standout, allowing me to customize the fit for my firearm easily. Additionally, the concealment is great, making it ideal for everyday carry purposes.
 
@@ -122,9 +122,9 @@ While I did initially encounter some issues with hardware supplied with one of t
 
 The customer service provided by Gun Goddess has been top-notch as well; their response to inquiries was prompt and they went out of their way to ensure satisfaction with my purchase. Overall, I am pleased with both the product and service received from Gun Goddess and will definitely consider purchasing from them again in the future.
 
-### [Mid-Ride Level I Retention Duty Holster with Automatic Locking System (ALS)](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Mid-Ride Level I Retention Duty Holster with Automatic Locking System (ALS)](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=mid-ride-level-i-retention-duty-holster-with-automatic-locking-system-als)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="model-6390-als-mid-ride-level-i-retention-duty-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/model-6390-als-mid-ride-level-i-retention-duty-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=model-6390-als-mid-ride-level-i-retention-duty-holster-1"><img alt="model-6390-als-mid-ride-level-i-retention-duty-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/model-6390-als-mid-ride-level-i-retention-duty-holster-1/public"/></a></div>
 
 As a satisfied user of this holster, I truly appreciate its functionality and design. Among the features that stood out to me was the Automatic Locking System (ALS) which effectively secures the weapon without any straps or snaps getting in the way. The mid-ride belt loop also adds to the comfort by fitting snugly against my body.
 
@@ -132,15 +132,15 @@ While there were some minor drawbacks, they didn't significantly impact my overa
 
 In conclusion, for anyone seeking a reliable and secure holster, I highly recommend giving this one a try - it's definitely worth its price tag and will meet your expectations.
 
-### [ALS Mid-Ride Level I Retention Duty Holster for Active Retention](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [ALS Mid-Ride Level I Retention Duty Holster for Active Retention](https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=als-mid-ride-level-i-retention-duty-holster-for-active-retention)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="safariland-6390-2192-491-model-6390-als-mid-ride-level-i-retention-duty-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safariland-6390-2192-491-model-6390-als-mid-ride-level-i-retention-duty-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=safariland-6390-2192-491-model-6390-als-mid-ride-level-i-retention-duty-holster-1"><img alt="safariland-6390-2192-491-model-6390-als-mid-ride-level-i-retention-duty-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safariland-6390-2192-491-model-6390-als-mid-ride-level-i-retention-duty-holster-1/public"/></a></div>
 
 This open top holster has been a game-changer for me! The Automatic Locking System (ALS) makes drawing my weapon quick and easy, while the suede lining protects my gun's sights and finish. The mid-ride belt loop ensures a secure fit and allows me to move freely. Many other users have praised its compatibility with various pistols such as para-ordnance double stack p14-45 & p16-40, AMT Hardballer Longslide, and Sig Legion 40cal 229 w olight Valkyrie mini 2. Overall, this holster offers reliable daily carry options for those seeking efficient weapon storage.
 
 ## Buyer's Guide
 
-<div><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Active+Retention+Holsters-2/public" alt="Active Retention Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=active-retention-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Active+Retention+Holsters-2/public" alt="Active Retention Holsters-2"></a></div>
 
 ### Importance of Active Retention Holsters
 
@@ -158,7 +158,7 @@ Active retention holsters are designed to securely hold your firearm in place wi
 
 5. Concealed Carry: Consider whether the holster is suitable for concealed carry, depending on your intended use.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Active+Retention+Holsters-3/public" alt="Active Retention Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=active-retention-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Active+Retention+Holsters-3/public" alt="Active Retention Holsters-3"></a></div>
 
 ### General Advice on Using Active Retention Holsters
 
@@ -172,7 +172,7 @@ Active retention holsters are designed to securely hold your firearm in place wi
 
 An active retention holster is a valuable asset for gun owners prioritizing safety, security, and quick access during high-pressure situations. By focusing on important features, considerations, and general advice, you can make an informed decision when choosing the best active retention holster for your needs.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Active+Retention+Holsters-4/public" alt="Active Retention Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=active-retention-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Active+Retention+Holsters-4/public" alt="Active Retention Holsters-4"></a></div>
 
 ## FAQ
 
@@ -180,7 +180,7 @@ An active retention holster is a valuable asset for gun owners prioritizing safe
 
 Active retention holsters are a category of gun holsters designed to securely hold a firearm in place using mechanical means. These holsters feature a mechanism that actively locks the firearm into the holster, providing an enhanced level of safety and retention compared to traditional holsters. They are usually used by those carrying concealed firearms or for those participating in sports and outdoor activities.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Active+Retention+Holsters-5/public" alt="Active Retention Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=active-retention-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Active+Retention+Holsters-5/public" alt="Active Retention Holsters-5"></a></div>
 
 ### How do Active Retention Holsters work?
 
@@ -194,7 +194,7 @@ Active retention holsters typically use a trigger guard lock to securely hold th
 
 - Efficient draw: The use of mechanical locks often allows for a more efficient and smoother draw, making it easier and faster to access the firearm when needed.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Active+Retention+Holsters-6/public" alt="Active Retention Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/active-retention-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=active-retention-holsters&utm_term=active-retention-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Active+Retention+Holsters-6/public" alt="Active Retention Holsters-6"></a></div>
 
 ### Who should use Active Retention Holsters?
 

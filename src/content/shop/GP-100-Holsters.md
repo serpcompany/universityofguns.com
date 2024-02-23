@@ -16,31 +16,31 @@ If you’re on the hunt for the perfect GP 100 holster that offers comfort, dura
 
 ## The Top 9 Best GP 100 Holsters
 
-1. [Rugged Leather Holster for Ruger Security Six Revolvers](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - High-quality and durable Ruger Security Six Revolver Holster, handcrafted from full grain leather for a comfortable and secure fit, suitable for both indoor and outdoor use.
+1. [Rugged Leather Holster for Ruger Security Six Revolvers](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=rugged-leather-holster-for-ruger-security-six-revolvers) - High-quality and durable Ruger Security Six Revolver Holster, handcrafted from full grain leather for a comfortable and secure fit, suitable for both indoor and outdoor use.
 
-2. [LockLeather OWB Hybrid Kydex Holster with Retention Clip and Magazine Carrier](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The LockLeather OWB Holster offers versatile, secure, and comfortable concealed or open-carry options for 1,000+ gun models, with premium American-made leather and an adjustable magazine carrier for a seamless draw!
+2. [LockLeather OWB Hybrid Kydex Holster with Retention Clip and Magazine Carrier](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=lockleather-owb-hybrid-kydex-holster-with-retention-clip-and-magazine-carrier) - The LockLeather OWB Holster offers versatile, secure, and comfortable concealed or open-carry options for 1,000+ gun models, with premium American-made leather and an adjustable magazine carrier for a seamless draw!
 
-3. [Covert OWB Belt Holster for Beretta M9A3/M9A4 - Left Hand Black](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unbeatable precision and comfort with the Covert OWB Belt Holster for Staccato C2 by Cardini & Grimm, meticulously crafted by Veterans and Law Enforcement, ensuring 100% made in America quality and a lifetime guarantee.
+3. [Covert OWB Belt Holster for Beretta M9A3/M9A4 - Left Hand Black](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=covert-owb-belt-holster-for-beretta-m9a3m9a4-left-hand-black) - Experience unbeatable precision and comfort with the Covert OWB Belt Holster for Staccato C2 by Cardini & Grimm, meticulously crafted by Veterans and Law Enforcement, ensuring 100% made in America quality and a lifetime guarantee.
 
-4. [Covert Kydex OWB Holster for Beretta M9A3/M9A4 with Tall Sight Channel and Custom Belt Loops](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The C&G 2750-100 OWB Covert Beretta M9A3/M9A4 holster is a high-quality, American-made option for concealed carrying your firearm with precision, comfort, and ultimate customization, perfect for those seeking unmatched durability, quality, and support.
+4. [Covert Kydex OWB Holster for Beretta M9A3/M9A4 with Tall Sight Channel and Custom Belt Loops](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=covert-kydex-owb-holster-for-beretta-m9a3m9a4-with-tall-sight-channel-and-custom-belt-loops) - The C&G 2750-100 OWB Covert Beretta M9A3/M9A4 holster is a high-quality, American-made option for concealed carrying your firearm with precision, comfort, and ultimate customization, perfect for those seeking unmatched durability, quality, and support.
 
-5. [Outside the Waistband Holster for Glock 43/43X/MOS](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - C&G's Covert OWB holster offers unparalleled comfort, sleek design, and secure fit for G43/G43X/MOS pistols, made in America by Veterans and Law Enforcement.
+5. [Outside the Waistband Holster for Glock 43/43X/MOS](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=outside-the-waistband-holster-for-glock-4343xmos) - C&G's Covert OWB holster offers unparalleled comfort, sleek design, and secure fit for G43/G43X/MOS pistols, made in America by Veterans and Law Enforcement.
 
-6. [Dual Position Phoenix Holster for Semi-Automatic Pistols and Revolvers](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Stylish and secure, the Galco Phx126 Dual Position Phoenix sports a dual-position design, premium leather and silicone suede lining, adjustable tension, and compatibility with both semiautomatics and double-action revolvers.
+6. [Dual Position Phoenix Holster for Semi-Automatic Pistols and Revolvers](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=dual-position-phoenix-holster-for-semi-automatic-pistols-and-revolvers) - Stylish and secure, the Galco Phx126 Dual Position Phoenix sports a dual-position design, premium leather and silicone suede lining, adjustable tension, and compatibility with both semiautomatics and double-action revolvers.
 
-7. [Secure Leather Holster for Ruger GP100 and Similar Revolvers](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Durable and highly secure, the DeSantis Gunhide Thumb Break Scabbard is perfect for concealed carry of your 3" Colt Python, 10mm L-Frame or 3" GP100, with optimal draw angle and adjustable tension for a custom fit and easy access.
+7. [Secure Leather Holster for Ruger GP100 and Similar Revolvers](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=secure-leather-holster-for-ruger-gp100-and-similar-revolvers) - Durable and highly secure, the DeSantis Gunhide Thumb Break Scabbard is perfect for concealed carry of your 3" Colt Python, 10mm L-Frame or 3" GP100, with optimal draw angle and adjustable tension for a custom fit and easy access.
 
-8. [Upside Down Shoulder Holster for Ruger GP100](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the Kenai Chest Holster by GunfightersINC - perfect for Ruger GP100, offering unparalleled durability, comfort, and performance for all your outdoor adventures!
+8. [Upside Down Shoulder Holster for Ruger GP100](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=upside-down-shoulder-holster-for-ruger-gp100) - Discover the Kenai Chest Holster by GunfightersINC - perfect for Ruger GP100, offering unparalleled durability, comfort, and performance for all your outdoor adventures!
 
-9. [Conceal Carry Pocket Holster for North American Arms HPK-L](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unmatched concealed carry comfort and security with the North American Arms HPK-L Pocket Holster, designed for seamless integration with your daily attire and guaranteed to make every carry a breeze.
+9. [Conceal Carry Pocket Holster for North American Arms HPK-L](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=conceal-carry-pocket-holster-for-north-american-arms-hpk-l) - Experience unmatched concealed carry comfort and security with the North American Arms HPK-L Pocket Holster, designed for seamless integration with your daily attire and guaranteed to make every carry a breeze.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Rugged Leather Holster for Ruger Security Six Revolvers](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Rugged Leather Holster for Ruger Security Six Revolvers](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=rugged-leather-holster-for-ruger-security-six-revolvers)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="ruger-security-six-revolver-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ruger-security-six-revolver-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=ruger-security-six-revolver-holster-1"><img alt="ruger-security-six-revolver-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ruger-security-six-revolver-holster-1/public"/></a></div>
 
 I recently started using this rugged, full grain leather holster made for Ruger double action Six revolvers and I must say, it has truly exceeded my expectations. The quality of the English Bridle leather is exceptional and the distressed brown Crazy Horse Water Buffalo leather adds a unique touch to its appearance.
 
@@ -48,9 +48,9 @@ One of the standout features for me is how well it fits my Ruger Security Six li
 
 Overall, I am extremely satisfied with this high-quality holster and would definitely recommend it to others looking for a reliable and durable option for their revolver. As much as I love this product, I do wish there were more color options available to match different personal styles.
 
-### [LockLeather OWB Hybrid Kydex Holster with Retention Clip and Magazine Carrier](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [LockLeather OWB Hybrid Kydex Holster with Retention Clip and Magazine Carrier](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=lockleather-owb-hybrid-kydex-holster-with-retention-clip-and-magazine-carrier)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="lockleather-owb-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lockleather-owb-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=lockleather-owb-holster-1"><img alt="lockleather-owb-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lockleather-owb-holster-1/public"/></a></div>
 
 I recently purchased the Lock Leather Magazine and OWB Open/Concealed Carry Click Retention Hybrid Kydex Holster for my firearm and I am very pleased with its performance. The integrated LockLeather retention clip and the additional magazine carrier with retention screw have been game changers in terms of security and reliability when carrying my weapon. The thin profile of the holster ensures that it hugs my firearm close to my body, making concealed carry a breeze.
 
@@ -60,9 +60,9 @@ One minor downside is that it's slightly longer than necessary for me personally
 
 Overall, I am highly satisfied with this product as it offers me a secure way to carry my firearm while maintaining a low-profile appearance. And with its 4. 5-star rating from over 7000 reviews, you can trust that you are getting a reliable product worth investing in!
 
-### [Covert OWB Belt Holster for Beretta M9A3/M9A4 - Left Hand Black](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Covert OWB Belt Holster for Beretta M9A3/M9A4 - Left Hand Black](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=covert-owb-belt-holster-for-beretta-m9a3m9a4-left-hand-black)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cg-holsters-covert-owb-belt-holster-beretta-m9a3-m9a4-left-hand-black-2751-101" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-covert-owb-belt-holster-beretta-m9a3-m9a4-left-hand-black-2751-101/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=cg-holsters-covert-owb-belt-holster-beretta-m9a3-m9a4-left-hand-black-2751-101"><img alt="cg-holsters-covert-owb-belt-holster-beretta-m9a3-m9a4-left-hand-black-2751-101" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-covert-owb-belt-holster-beretta-m9a3-m9a4-left-hand-black-2751-101/public"/></a></div>
 
 As a reviewer who has used the Beretta M9A3 Kydex holster by C&G Holsters, I'm happy to say that it exceeded my expectations. The quality of the Kydex material and craftsmanship is top-notch, evident as soon as you hold this holster in your hands. It fits my Beretta M9A3 snugly and securely, allowing for smooth draws with ease.
 
@@ -72,9 +72,9 @@ What really impressed me was the attention to detail in the finish quality of th
 
 While there are no major cons with this product, one suggestion for improvement could be offering an option for a QLS attachment as well as smaller belt loop sizes for those who prefer narrower belts. However, these minor points don't take away from how fantastic this product is overall. Based on my experience with this holster, I would highly recommend C&G Holsters to anyone searching for a high-quality Kydex holster that delivers in both performance and comfort!
 
-### [Covert Kydex OWB Holster for Beretta M9A3/M9A4 with Tall Sight Channel and Custom Belt Loops](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Covert Kydex OWB Holster for Beretta M9A3/M9A4 with Tall Sight Channel and Custom Belt Loops](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=covert-kydex-owb-holster-for-beretta-m9a3m9a4-with-tall-sight-channel-and-custom-belt-loops)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cg-2750-100-owb-covert-beretta-m9a3-m9a4-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-2750-100-owb-covert-beretta-m9a3-m9a4-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=cg-2750-100-owb-covert-beretta-m9a3-m9a4-1"><img alt="cg-2750-100-owb-covert-beretta-m9a3-m9a4-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-2750-100-owb-covert-beretta-m9a3-m9a4-1/public"/></a></div>
 
 I recently had the opportunity to test and review the C&G Beretta 92FS/96/M9A3/Vertec OWB Covert Kydex Holster, and I must say it has exceeded my expectations. The first thing that truly impressed me was the precision build quality of this holster - the edges were smooth, clean, and perfectly fit together with a high level of detail. Additionally, the gun print on the outside adds an extra touch of style.
 
@@ -82,9 +82,9 @@ The gun retention is also top-notch; there's a satisfying click when locking you
 
 One area for improvement could be offering an option for QLS attachment, but overall great job by C&G team in providing attention towards craftsmanship while delivering high-quality results along with impressive customer service shown through fast delivery timescales too!
 
-### [Outside the Waistband Holster for Glock 43/43X/MOS](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Outside the Waistband Holster for Glock 43/43X/MOS](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=outside-the-waistband-holster-for-glock-4343xmos)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cg-holsters-covert-cg-0060-100-owb-covert-g43-g43x-mos-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-covert-cg-0060-100-owb-covert-g43-g43x-mos-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=cg-holsters-covert-cg-0060-100-owb-covert-g43-g43x-mos-1"><img alt="cg-holsters-covert-cg-0060-100-owb-covert-g43-g43x-mos-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-covert-cg-0060-100-owb-covert-g43-g43x-mos-1/public"/></a></div>
 
 As a user who values comfort and durability in a holster, I was impressed with C&G's Covert OWB Kydex Holster. The holster is made in America by veterans and law enforcement officers, instilling confidence in its quality.
 
@@ -94,9 +94,9 @@ The holster is exceptionally comfortable to wear throughout the day, staying sec
 
 Although I had to make some modifications for better fitment around the mag release due to personal preference, overall I found this holster well-made and well-designed for daily use. With features like ease of setup and attachment mount type options (belt loop/slot), this is a versatile option for anyone looking for a comfortable carry solution for their Glock 43 or similar model firearm.
 
-### [Dual Position Phoenix Holster for Semi-Automatic Pistols and Revolvers](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Dual Position Phoenix Holster for Semi-Automatic Pistols and Revolvers](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=dual-position-phoenix-holster-for-semi-automatic-pistols-and-revolvers)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="galco-phx126-dual-position-phoenix-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/galco-phx126-dual-position-phoenix-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=galco-phx126-dual-position-phoenix-1"><img alt="galco-phx126-dual-position-phoenix-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/galco-phx126-dual-position-phoenix-1/public"/></a></div>
 
 As a gun owner, I understand the importance of having a high-quality holster that not only protects my weapon but also allows for smooth and swift draws. That's why I decided to give the Dual Position Phoenix Holster by Galco a try. From the moment I received it, I was impressed with its construction - made from premium saddle leather and lined with silicone suede for added protection. The adjustable tension screw allowed me to customize the fit to my handgun, ensuring that it stays securely in place while still being easily accessible.
 
@@ -104,9 +104,9 @@ One of my favorite features is the versatile carry positions - strong side or cr
 
 However, one potential downside is that some people may find the sight rails to be less protective than expected since they do not cover every part of the sights completely. But overall, this exceptional sportsman’s holster has exceeded my expectations in terms of quality and functionality, making it an excellent choice for gun owners looking for reliable protection with smooth accessibility!
 
-### [Secure Leather Holster for Ruger GP100 and Similar Revolvers](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Secure Leather Holster for Ruger GP100 and Similar Revolvers](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=secure-leather-holster-for-ruger-gp100-and-similar-revolvers)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="desantis-gunhide-thumb-break-scabbard-belt-holster-fits-3-colt-python-3-ruger-gp100-2-1-2-3-sw-l-fra-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/desantis-gunhide-thumb-break-scabbard-belt-holster-fits-3-colt-python-3-ruger-gp100-2-1-2-3-sw-l-fra-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=desantis-gunhide-thumb-break-scabbard-belt-holster-fits-3-colt-python-3-ruger-gp100-2-1-2-3-sw-l-fra-1"><img alt="desantis-gunhide-thumb-break-scabbard-belt-holster-fits-3-colt-python-3-ruger-gp100-2-1-2-3-sw-l-fra-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/desantis-gunhide-thumb-break-scabbard-belt-holster-fits-3-colt-python-3-ruger-gp100-2-1-2-3-sw-l-fra-1/public"/></a></div>
 
 As a firearm enthusiast, I have incorporated the Ruger Gp100 Leather Holster into my daily routine for several months now. The high-quality leather construction provides durability and long-lasting performance. This holster offers precise molding, ensuring that it fits my firearm securely and comfortably. The thumb break and tension device add an extra level of security, guaranteeing that my firearm stays firmly in place while on the move.
 
@@ -114,15 +114,15 @@ The concealment capabilities of this holster are excellent - its high-riding des
 
 However, there are areas where the Ruger Gp100 Leather Holster can improve upon; like adding additional features to enhance the user experience further. Overall, this holster has earned its 5-star rating from me due to its exceptional functionality and durable build quality but could benefit from some updates to appeal to a broader range of users.
 
-### [Upside Down Shoulder Holster for Ruger GP100](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Upside Down Shoulder Holster for Ruger GP100](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=upside-down-shoulder-holster-for-ruger-gp100)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="gunfightersinc-kenai-chest-holster-ruger-gp100-black-black-black-harness-left-hand-kn-gp100-10113" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gunfightersinc-kenai-chest-holster-ruger-gp100-black-black-black-harness-left-hand-kn-gp100-10113/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=gunfightersinc-kenai-chest-holster-ruger-gp100-black-black-black-harness-left-hand-kn-gp100-10113"><img alt="gunfightersinc-kenai-chest-holster-ruger-gp100-black-black-black-harness-left-hand-kn-gp100-10113" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gunfightersinc-kenai-chest-holster-ruger-gp100-black-black-black-harness-left-hand-kn-gp100-10113/public"/></a></div>
 
 The Kenai Chest Holster is an excellent choice for anyone looking for a comfortable and secure way to carry a firearm during outdoor activities. The combination of Kydex and Nylon materials provides great retention without adding unnecessary weight, and the holster is built to withstand challenging conditions. This product boasts a 5-star rating from users who appreciate its comfort, security, and durability. One downside to note is that the included accessories are limited to the standard options, so customization may be more limited than some users might desire. Overall, the Kenai Chest Holster is definitely worth considering for your next adventure - just be sure to explore your accessory options if you're looking to add extra features.
 
-### [Conceal Carry Pocket Holster for North American Arms HPK-L](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Conceal Carry Pocket Holster for North American Arms HPK-L](https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=conceal-carry-pocket-holster-for-north-american-arms-hpk-l)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="north-american-arms-hpk-l-pocket-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/north-american-arms-hpk-l-pocket-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=north-american-arms-hpk-l-pocket-holster-1"><img alt="north-american-arms-hpk-l-pocket-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/north-american-arms-hpk-l-pocket-holster-1/public"/></a></div>
 
 Since I always carry a revolver, finding a pocket holster that would both protect my GP 100 and prevent it from wearing holes in my pockets was essential. That's when I stumbled upon this pocket holster and decided to give it a try. From the moment I started using it, I was impressed with its quality and performance.
 
@@ -132,11 +132,11 @@ I am happy to report that since using this product, I have experienced no more h
 
 Overall, this GP 100 Pocket Holster has exceeded my expectations by providing great protection for both me and my gun while keeping things quiet in-pocket – making it an essential item for anyone who carries their revolver frequently like myself!
 
-<div><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/GP+100+Holsters-2/public" alt="GP 100 Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=gp-100-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/GP+100+Holsters-2/public" alt="GP 100 Holsters-2"></a></div>
 
 ## Buyer's Guide
 
-<div><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/GP+100+Holsters-3/public" alt="GP 100 Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=gp-100-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/GP+100+Holsters-3/public" alt="GP 100 Holsters-3"></a></div>
 
 ### Important Features to Look for in GP 100 Holsters
 
@@ -150,7 +150,7 @@ Looking for the perfect GP 100 holster can be an overwhelming task due to the wi
 
 - Accessibility: Make sure the holster allows easy and quick access to your firearm, especially during emergencies.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/GP+100+Holsters-4/public" alt="GP 100 Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=gp-100-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/GP+100+Holsters-4/public" alt="GP 100 Holsters-4"></a></div>
 
 ### Considerations for Choosing the Right GP 100 Holster
 
@@ -164,7 +164,7 @@ Besides the core features mentioned above, there are additional factors you shou
 
 - Maintenance and Durability: Invest in a holster that is easy to clean and maintain, and is made from durable materials that can withstand regular use without showing signs of wear and tear.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/GP+100+Holsters-5/public" alt="GP 100 Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=gp-100-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/GP+100+Holsters-5/public" alt="GP 100 Holsters-5"></a></div>
 
 ### General Advice for Using GP 100 Holsters
 
@@ -178,7 +178,7 @@ To ensure maximum safety and effectiveness when using your GP 100 holster, adher
 
 - Carry Concealed Safely: If you choose to carry your firearm concealed, follow all laws and regulations pertaining to concealed carry, and always practice safe handling procedures.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/GP+100+Holsters-6/public" alt="GP 100 Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/gp-100-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gp-100-holsters&utm_term=gp-100-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/GP+100+Holsters-6/public" alt="GP 100 Holsters-6"></a></div>
 
 ## FAQ
 

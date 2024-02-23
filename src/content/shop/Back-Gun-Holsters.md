@@ -16,35 +16,35 @@ Discover the latest and greatest back gun holsters for safe and comfortable carr
 
 ## The Top 11 Best Back Gun Holsters
 
-1. [Urban Carry LockLeather OWB Combo Holster with Magazine Pouch](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The LockLeather OWB+Mag Holster is a versatile and comfortable leather holster designed to fit single or double-stack caliber magazines securely for seamless concealed or open carry, perfect for everyday use and rigorous activities.
+1. [Urban Carry LockLeather OWB Combo Holster with Magazine Pouch](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=urban-carry-lockleather-owb-combo-holster-with-magazine-pouch) - The LockLeather OWB+Mag Holster is a versatile and comfortable leather holster designed to fit single or double-stack caliber magazines securely for seamless concealed or open carry, perfect for everyday use and rigorous activities.
 
-2. [Tactical Multi-Purpose Belly Band Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Mission First Tactical MFT Belly Band Holster offers comfort, versatility, and superior features for various activities, suitable for waist sizes 26"-52" and catering to both left and right-handed individuals.
+2. [Tactical Multi-Purpose Belly Band Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=tactical-multi-purpose-belly-band-holster) - The Mission First Tactical MFT Belly Band Holster offers comfort, versatility, and superior features for various activities, suitable for waist sizes 26"-52" and catering to both left and right-handed individuals.
 
-3. [Galco Miami Classic 1911 Tan Right Hand Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Galco Miami Classic 1911 Holster - A timeless, fully modular leather shoulder system designed for comfort, fit, and durability, trusted by professionals worldwide.
+3. [Galco Miami Classic 1911 Tan Right Hand Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=galco-miami-classic-1911-tan-right-hand-holster) - Galco Miami Classic 1911 Holster - A timeless, fully modular leather shoulder system designed for comfort, fit, and durability, trusted by professionals worldwide.
 
-4. [Ruger 57 Speed Scabbard Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Desantis 002 Speed Scabbard Holster is a high-quality, right-hand draw leather holster designed for professionals, offering precise fit and firearm retention without a thumb break, perfect for those carrying a Ruger 57 with or without red dot sights.
+4. [Ruger 57 Speed Scabbard Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=ruger-57-speed-scabbard-holster) - The Desantis 002 Speed Scabbard Holster is a high-quality, right-hand draw leather holster designed for professionals, offering precise fit and firearm retention without a thumb break, perfect for those carrying a Ruger 57 with or without red dot sights.
 
-5. [Versacarry Distressed Brown OWB Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Versacarry Guardian OWB Holster is a premium leather holster that offers comfort and protection for your concealed carry pistol, with a unique design that accelerates break-in time and a right-handed draw.
+5. [Versacarry Distressed Brown OWB Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=versacarry-distressed-brown-owb-holster) - The Versacarry Guardian OWB Holster is a premium leather holster that offers comfort and protection for your concealed carry pistol, with a unique design that accelerates break-in time and a right-handed draw.
 
-6. [VersaCarry Mayhem Right-Handed Shoulder Holster for Glock 19](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - VersaCarry Mayhem Shoulder Holster provides optimal comfort and adjustment options for all-day carry while securely holding Glock 19 and featuring ergonomically designed leather straps, dual mag pouches, and adjustable belt loop straps.
+6. [VersaCarry Mayhem Right-Handed Shoulder Holster for Glock 19](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=versacarry-mayhem-right-handed-shoulder-holster-for-glock-19) - VersaCarry Mayhem Shoulder Holster provides optimal comfort and adjustment options for all-day carry while securely holding Glock 19 and featuring ergonomically designed leather straps, dual mag pouches, and adjustable belt loop straps.
 
-7. [Galco MIami Classic II Shoulder Holster for Sig P365, Premium Leather Concealment, Comfortable Spider Harness, Modular Design](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unmatched comfort and convenience with Galco's Miami Classic II Shoulder Holster, featuring premium steerhide construction, swiveling Flexalon back plate, and modular design for versatile accessory attachment.
+7. [Galco MIami Classic II Shoulder Holster for Sig P365, Premium Leather Concealment, Comfortable Spider Harness, Modular Design](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=galco-miami-classic-ii-shoulder-holster-for-sig-p365-premium-leather-concealment-comfortable-spider-harness-modular-design) - Experience unmatched comfort and convenience with Galco's Miami Classic II Shoulder Holster, featuring premium steerhide construction, swiveling Flexalon back plate, and modular design for versatile accessory attachment.
 
-8. [Galco Classic Lite 2.0 Shoulder Gun Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Galco Classic Lite 2.0 Shoulder System is a premium, center cut steerhide holster with a comfortable medium-width harness and swiveling Flexalon backplate, perfect for those seeking a reliable and efficient horizontal gun carry solution.
+8. [Galco Classic Lite 2.0 Shoulder Gun Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=galco-classic-lite-20-shoulder-gun-holster) - The Galco Classic Lite 2.0 Shoulder System is a premium, center cut steerhide holster with a comfortable medium-width harness and swiveling Flexalon backplate, perfect for those seeking a reliable and efficient horizontal gun carry solution.
 
-9. [Galco Classic Lite 2.0 Right-Handed J-Frame Leather Shoulder Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Galco Classic Lite 2.0 is a premium, lightweight shoulder holster designed for right-hand use and made from natural leather, offering durable, comfortable firearm carry for S&W J-Frame and Charter Arms Undercover 2" models.
+9. [Galco Classic Lite 2.0 Right-Handed J-Frame Leather Shoulder Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=galco-classic-lite-20-right-handed-j-frame-leather-shoulder-holster) - The Galco Classic Lite 2.0 is a premium, lightweight shoulder holster designed for right-hand use and made from natural leather, offering durable, comfortable firearm carry for S&W J-Frame and Charter Arms Undercover 2" models.
 
-10. [T-Series L3D Duty Holster: Streamlined, Secure Protection](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The T-Series L3D Duty Holster offers a secure, streamlined design for efficient drawing in high-pressure situations, with reinforced polymer and hydrophobic lining ensuring dependable performance in various environments.
+10. [T-Series L3D Duty Holster: Streamlined, Secure Protection](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=t-series-l3d-duty-holster-streamlined-secure-protection) - The T-Series L3D Duty Holster offers a secure, streamlined design for efficient drawing in high-pressure situations, with reinforced polymer and hydrophobic lining ensuring dependable performance in various environments.
 
-11. [Inner Waistband Holster for Sig P365](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience exceptional comfort and versatility with the Reckoning Holster, boasting superb retention adjustment, compatibility with various drawing positions, and an array of customizable features for your Sig Sauer P365 or Springfield Armory Hellcat.
+11. [Inner Waistband Holster for Sig P365](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=inner-waistband-holster-for-sig-p365) - Experience exceptional comfort and versatility with the Reckoning Holster, boasting superb retention adjustment, compatibility with various drawing positions, and an array of customizable features for your Sig Sauer P365 or Springfield Armory Hellcat.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Urban Carry LockLeather OWB Combo Holster with Magazine Pouch](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Urban Carry LockLeather OWB Combo Holster with Magazine Pouch](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=urban-carry-lockleather-owb-combo-holster-with-magazine-pouch)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="lockleather-owbmag-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lockleather-owbmag-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=lockleather-owbmag-holster-1"><img alt="lockleather-owbmag-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lockleather-owbmag-holster-1/public"/></a></div>
 
 I've been using the Urban Carry LockLeather Combo holster on a daily basis and I must say that its design is both practical and comfortable. The leather is smooth yet tough, allowing it to snugly wrap around my waist without any discomfort or snagging. Despite being well-made, it effectively conceals my firearm so there are no visible bulges or lines under my clothing.
 
@@ -52,9 +52,9 @@ The retention clip is a standout feature, offering unmatched security for my gun
 
 Overall, this has been an excellent product choice that offers safety, convenience and style without compromising comfort. While there might be some minor imperfections depending on personal preferences, they are easily resolved and don't take away from the overall quality of the holster. I would definitely recommend this to others looking for an efficient and dependable holster for everyday use.
 
-### [Tactical Multi-Purpose Belly Band Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Tactical Multi-Purpose Belly Band Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=tactical-multi-purpose-belly-band-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="mission-first-tactical-mft-belly-band-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mission-first-tactical-mft-belly-band-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=mission-first-tactical-mft-belly-band-holster-1"><img alt="mission-first-tactical-mft-belly-band-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mission-first-tactical-mft-belly-band-holster-1/public"/></a></div>
 
 As someone who's been using this Mission First Tactical MFT Belly Band Holster for a while now, I can tell you it's a game-changer. It's versatile and comfortable, perfect for activities like walks, jogs, hikes, bike rides, and even everyday use. The 3D Spacer Mesh Fabric ensures all-day carrying comfort, and the breathable open-air weave keeps you cool and dry.
 
@@ -66,9 +66,9 @@ One issue some users reported was that the holster might be a tight fit for cert
 
 In conclusion, I highly recommend the Mission First Tactical MFT Belly Band Holster. It's comfortable, versatile, and packed with useful features that make it stand out from the competition.
 
-### [Galco Miami Classic 1911 Tan Right Hand Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Galco Miami Classic 1911 Tan Right Hand Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=galco-miami-classic-1911-tan-right-hand-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="galco-miami-classic-1911-3-5-right-hand-tan-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/galco-miami-classic-1911-3-5-right-hand-tan-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=galco-miami-classic-1911-3-5-right-hand-tan-holster-1"><img alt="galco-miami-classic-1911-3-5-right-hand-tan-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/galco-miami-classic-1911-3-5-right-hand-tan-holster-1/public"/></a></div>
 
 I recently had the chance to try out the Galco Miami Classic holster for my 1911 gun, and I must say, it's been a game-changer. As soon as I put it on, the first thing that stood out was how incredibly comfortable it was. The premium steerhide material felt great against my skin, and the spider harness ensured a perfect fit no matter what size shirt I wore.
 
@@ -78,9 +78,9 @@ However, there are some downsides to consider. The initial tightness of the hols
 
 Overall, I've been very happy with my Galco Miami Classic 1911 holster. Its comfort, ease of use, and customization options make it an excellent choice for any 1911 gun owner looking to upgrade their carry method.
 
-### [Ruger 57 Speed Scabbard Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Ruger 57 Speed Scabbard Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=ruger-57-speed-scabbard-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="desantis-002-speed-scabbard-holster-rh-tan-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/desantis-002-speed-scabbard-holster-rh-tan-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=desantis-002-speed-scabbard-holster-rh-tan-1"><img alt="desantis-002-speed-scabbard-holster-rh-tan-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/desantis-002-speed-scabbard-holster-rh-tan-1/public"/></a></div>
 
 I recently had the pleasure of using the Desantis 002 Speed Scabbard holster in my daily life, and I have to say, it's a game-changer for those who prefer a holster without a thumb break. The first thing that struck me about this holster was its precise fit. It's designed to accommodate the Ruger 57 with or without red dot sights, and it held my firearm securely without any issues.
 
@@ -90,9 +90,9 @@ Although I'm right-handed, I appreciate that this holster is available in a righ
 
 While there's not much to complain about, some users might find that the lack of a thumb break could be a disadvantage, as it may not provide the same level of security as other holsters on the market. However, for those who prioritize comfort and convenience, the Desantis 002 Speed Scabbard holster is definitely worth considering.
 
-### [Versacarry Distressed Brown OWB Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Versacarry Distressed Brown OWB Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=versacarry-distressed-brown-owb-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="versacarry-guardian-owb-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/versacarry-guardian-owb-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=versacarry-guardian-owb-holster-1"><img alt="versacarry-guardian-owb-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/versacarry-guardian-owb-holster-1/public"/></a></div>
 
 Finding the perfect holster can be a daunting task, but the VersaCarry Guardian OWB Holster has made it an enjoyable experience for me. As someone who carries a full-sized 1911, I was initially skeptical about how concealable it would be. However, the forward cant design ensures the gun stays tight against my body, while the raised protective backing provides both comfort and protection.
 
@@ -104,9 +104,9 @@ All in all, the VersaCarry Guardian OWB Holster has made concealed carry comfort
 
 Remember, this is just an example of a review and should not be used as an actual review. Always share your honest experience with the product.
 
-### [VersaCarry Mayhem Right-Handed Shoulder Holster for Glock 19](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [VersaCarry Mayhem Right-Handed Shoulder Holster for Glock 19](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=versacarry-mayhem-right-handed-shoulder-holster-for-glock-19)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="versacarry-mayhem-shoulder-holster-glock-20" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/versacarry-mayhem-shoulder-holster-glock-20/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=versacarry-mayhem-shoulder-holster-glock-20"><img alt="versacarry-mayhem-shoulder-holster-glock-20" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/versacarry-mayhem-shoulder-holster-glock-20/public"/></a></div>
 
 I've been using the VersaCarry Mayhem Shoulder Holster for my Glock 19 for a while now, and I must say, it's been an absolute game-changer. Gone are the days of straining my back and hips with a bulky belt-mounted holster. This shoulder rig truly delivers all-day carry comfort.
 
@@ -116,9 +116,9 @@ The dual off-hand magazine pouches are an excellent addition, allowing me to car
 
 On the downside, the polymer material isn't as luxurious as premium leather. However, the benefits of the lighter, more comfortable design outweigh the minor loss in aesthetic appeal for me. All in all, the VersaCarry Mayhem Shoulder Holster gets the job done, and it does so in absolute comfort.
 
-### [Galco MIami Classic II Shoulder Holster for Sig P365, Premium Leather Concealment, Comfortable Spider Harness, Modular Design](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Galco MIami Classic II Shoulder Holster for Sig P365, Premium Leather Concealment, Comfortable Spider Harness, Modular Design](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=galco-miami-classic-ii-shoulder-holster-for-sig-p365-premium-leather-concealment-comfortable-spider-harness-modular-design)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="galco-miami-classic-ii-shoulder-holster-black-sig-p365-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/galco-miami-classic-ii-shoulder-holster-black-sig-p365-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=galco-miami-classic-ii-shoulder-holster-black-sig-p365-1"><img alt="galco-miami-classic-ii-shoulder-holster-black-sig-p365-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/galco-miami-classic-ii-shoulder-holster-black-sig-p365-1/public"/></a></div>
 
 I recently got my hands on the Galco Miami Classic II Shoulder Holster and let me tell you, it's a game-changer! This beauty is not only sleek and stylish but also incredibly comfortable to wear. The premium steerhide holster and magazine carrier make it feel like you're carrying a piece of quality craftsmanship.
 
@@ -128,9 +128,9 @@ However, there are some cons that I need to mention. While walking my dog, both 
 
 All in all, I am absolutely thrilled with the Galco Miami Classic II Shoulder Holster! The quality is top-notch, and I feel confident knowing that it's going to last me a long time. If you're in the market for a new concealed carrying solution, I highly recommend giving this holster a try.
 
-### [Galco Classic Lite 2.0 Shoulder Gun Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Galco Classic Lite 2.0 Shoulder Gun Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=galco-classic-lite-20-shoulder-gun-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="galco-classic-lite-2-0-shoulder-system-cl2-203" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/galco-classic-lite-2-0-shoulder-system-cl2-203/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=galco-classic-lite-2-0-shoulder-system-cl2-203"><img alt="galco-classic-lite-2-0-shoulder-system-cl2-203" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/galco-classic-lite-2-0-shoulder-system-cl2-203/public"/></a></div>
 
 As an avid shooter, I've tried countless holster systems over the years. When I heard about the Galco Classic Lite 2.0 Shoulder System, I was intrigued. To my delight, it did not disappoint.
 
@@ -142,9 +142,9 @@ However, this system isn't perfect. The lack of adjustability in the magazine ca
 
 In conclusion, if you're looking for a stylish yet functional shoulder holster system, look no further than the Galco Classic Lite 2.0. Its durable construction and practical design make it a reliable choice in any shooting situation.
 
-### [Galco Classic Lite 2.0 Right-Handed J-Frame Leather Shoulder Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Galco Classic Lite 2.0 Right-Handed J-Frame Leather Shoulder Holster](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=galco-classic-lite-20-right-handed-j-frame-leather-shoulder-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="galco-classic-lite-2-0-j-frame-rh-natural-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/galco-classic-lite-2-0-j-frame-rh-natural-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=galco-classic-lite-2-0-j-frame-rh-natural-1"><img alt="galco-classic-lite-2-0-j-frame-rh-natural-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/galco-classic-lite-2-0-j-frame-rh-natural-1/public"/></a></div>
 
 I recently got the opportunity to test out the Galco Classic Lite 2.0 J-Frame RH Natural and I must say, it's been a real game-changer for me. As someone who needs to carry a firearm on a daily basis, finding a comfortable and reliable holster is absolutely crucial. That's where this little beauty comes in.
 
@@ -158,9 +158,9 @@ Now, I will say that there are a couple of minor drawbacks to this holster. For 
 
 But overall, I am absolutely thrilled with my experience using the Galco Classic Lite 2.0 J-Frame RH Natural. Its combination of quality materials, adjustable fit, and secure design make it the perfect choice for anyone in need of a reliable shoulder holster.
 
-### [T-Series L3D Duty Holster: Streamlined, Secure Protection](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [T-Series L3D Duty Holster: Streamlined, Secure Protection](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=t-series-l3d-duty-holster-streamlined-secure-protection)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="t-series-l3d-duty-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/t-series-l3d-duty-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=t-series-l3d-duty-holster-1"><img alt="t-series-l3d-duty-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/t-series-l3d-duty-holster-1/public"/></a></div>
 
 Once upon a time, I decided to upgrade my old holster for my Sig Sauer 320 handgun. Out of all the options available on the market, I was drawn to the T-Series L3D Duty Holster, and boy, am I glad I made that decision!
 
@@ -174,9 +174,9 @@ Now, let's talk about the cons. There's not much to complain about with this hol
 
 In conclusion, the T-Series L3D Duty Holster has been a game-changer for me. Its combination of style, efficiency, and security makes it the perfect companion for my Sig Sauer 320 handgun. If you're in the market for a new holster, I highly recommend giving this one a try. You won't be disappointed!
 
-### [Inner Waistband Holster for Sig P365](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Inner Waistband Holster for Sig P365](https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=inner-waistband-holster-for-sig-p365)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="crossbreed-reckoning-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crossbreed-reckoning-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=crossbreed-reckoning-holster-1"><img alt="crossbreed-reckoning-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crossbreed-reckoning-holster-1/public"/></a></div>
 
 While I've always been a fan of traditional leather holsters, the Crossbreed Reckoning Holster has been a game-changer for me. The moment I put it on, I could feel the difference - it's light, comfortable, and fits perfectly for my Sig P365. The right-hand draw has made my draw speed effortless, and the inside-the-waistband design allows me to keep my Sig concealed without compromising on accessibility.
 
@@ -190,7 +190,7 @@ In conclusion, the Crossbreed Reckoning Holster offers a perfect blend of comfor
 
 ## Buyer's Guide
 
-<div><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Back+Gun+Holsters-2/public" alt="Back Gun Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=back-gun-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Back+Gun+Holsters-2/public" alt="Back Gun Holsters-2"></a></div>
 
 ### Important Features of Back Gun Holsters
 
@@ -212,7 +212,7 @@ Here are some things you should think about before buying a back gun holster:
 
 - Your body type: Back gun holsters come in various sizes. Choose one that suits your body shape and size, so it doesn't restrict your movement.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Back+Gun+Holsters-3/public" alt="Back Gun Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=back-gun-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Back+Gun+Holsters-3/public" alt="Back Gun Holsters-3"></a></div>
 
 ### General Advice for Using Back Gun Holsters
 
@@ -226,7 +226,7 @@ To get the most out of your back gun holster, keep these tips in mind:
 
 ## FAQ
 
-<div><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Back+Gun+Holsters-4/public" alt="Back Gun Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=back-gun-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Back+Gun+Holsters-4/public" alt="Back Gun Holsters-4"></a></div>
 
 ### What are back gun holsters?
 
@@ -244,7 +244,7 @@ Benefits of back gun holsters include:
 
 - Distributions weight evenly across your torso
 
-<div><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Back+Gun+Holsters-5/public" alt="Back Gun Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=back-gun-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Back+Gun+Holsters-5/public" alt="Back Gun Holsters-5"></a></div>
 
 ### What types of firearms can be carried in back gun holsters?
 
@@ -264,7 +264,7 @@ Consider the following factors when selecting a back gun holster:
 
 5. Concealment capabilities
 
-<div><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Back+Gun+Holsters-6/public" alt="Back Gun Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/back-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=back-gun-holsters&utm_term=back-gun-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Back+Gun+Holsters-6/public" alt="Back Gun Holsters-6"></a></div>
 
 ### Do back gun holsters require any special clothing to wear?
 

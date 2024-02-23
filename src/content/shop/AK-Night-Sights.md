@@ -19,15 +19,15 @@ Looking for top-notch AK night sights to enhance your shooter's experience in lo
 
 ## The Top 5 Best AK Night Sights
 
-1. [YITAHOME Multi-Functional Sleeper Sofa Bed with Linen Fabric, Light Gray](https://serp.ly/@universityofguns/amazon/ak-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - The HHA 3019 Optimizer Lite .019 1 Pin Sight is a top-notch 20-80-yard targeting solution, offering fully protected fiber optics, tool-free adjustments, and a sleek 1 5/8" housing for precise and hassle-free performance.
+1. [YITAHOME Multi-Functional Sleeper Sofa Bed with Linen Fabric, Light Gray](https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ak-night-sights&utm_term=yitahome-multi-functional-sleeper-sofa-bed-with-linen-fabric-light-gray) - The HHA 3019 Optimizer Lite .019 1 Pin Sight is a top-notch 20-80-yard targeting solution, offering fully protected fiber optics, tool-free adjustments, and a sleek 1 5/8" housing for precise and hassle-free performance.
 
-2. [Accurate Adjustable 1-Pin Archery Sight for RH/LH Shooters](https://serp.ly/@universityofguns/amazon/ak-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Experience unmatched accuracy with the Axcel Accutouch Plus Carbon Pro Sight AV-41 1 Pin .019 RH/LH, offering seamless 1st, 2nd, and 3rd axis adjustments, Accu-Click system, carbon bar dovetail mount, and a 45-degree facing sight tape.
+2. [Accurate Adjustable 1-Pin Archery Sight for RH/LH Shooters](https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ak-night-sights&utm_term=accurate-adjustable-1-pin-archery-sight-for-rhlh-shooters) - Experience unmatched accuracy with the Axcel Accutouch Plus Carbon Pro Sight AV-41 1 Pin .019 RH/LH, offering seamless 1st, 2nd, and 3rd axis adjustments, Accu-Click system, carbon bar dovetail mount, and a 45-degree facing sight tape.
 
-3. [Birchwood Casey Super Bright Pen Kit (Green, Red, White)](https://serp.ly/@universityofguns/amazon/ak-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Perfectly bright and easy touch-up for chipped, dull or scratched sights; add a new level of visibility with this set of vivid green, red and white dot pistol sights by Birchwood Casey.
+3. [Birchwood Casey Super Bright Pen Kit (Green, Red, White)](https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ak-night-sights&utm_term=birchwood-casey-super-bright-pen-kit-green-red-white) - Perfectly bright and easy touch-up for chipped, dull or scratched sights; add a new level of visibility with this set of vivid green, red and white dot pistol sights by Birchwood Casey.
 
-4. [Axcel ArmorTech 5-Pin Sight - .019 - Black](https://serp.ly/@universityofguns/amazon/ak-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Experience unparalleled precision and reliability with the Axcel ArmorTech HD Sight - 5-Pin - .019 - Black, boasting Armor Fiber Technology, click-adjust windage and elevation, and adjustable second- and third-axis features.
+4. [Axcel ArmorTech 5-Pin Sight - .019 - Black](https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ak-night-sights&utm_term=axcel-armortech-5-pin-sight-019-black) - Experience unparalleled precision and reliability with the Axcel ArmorTech HD Sight - 5-Pin - .019 - Black, boasting Armor Fiber Technology, click-adjust windage and elevation, and adjustable second- and third-axis features.
 
-5. [Carbon Hybrid 5-Pin Sight for Enhanced Durability and Brightness](https://serp.ly/@universityofguns/amazon/ak-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Truglo's Carbon Hybrid 5 Pin Sight offers a superior blend of lightweight carbon and aluminum, resulting in a high-performing, vibration-reducing archery choice that boasts increased durability, brightness, and an extended sight radius.
+5. [Carbon Hybrid 5-Pin Sight for Enhanced Durability and Brightness](https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ak-night-sights&utm_term=carbon-hybrid-5-pin-sight-for-enhanced-durability-and-brightness) - Truglo's Carbon Hybrid 5 Pin Sight offers a superior blend of lightweight carbon and aluminum, resulting in a high-performing, vibration-reducing archery choice that boasts increased durability, brightness, and an extended sight radius.
 
 *As an Amazon™ Associate, we earn from qualifying purchases.*
 
@@ -35,9 +35,9 @@ Looking for top-notch AK night sights to enhance your shooter's experience in lo
 ## Reviews
 
 
-### [YITAHOME Multi-Functional Sleeper Sofa Bed with Linen Fabric, Light Gray](https://serp.ly/@universityofguns/amazon/ak-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [YITAHOME Multi-Functional Sleeper Sofa Bed with Linen Fabric, Light Gray](https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ak-night-sights&utm_term=yitahome-multi-functional-sleeper-sofa-bed-with-linen-fabric-light-gray)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hha-3019-optimizer-lite-019-1-pin-sight-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-3019-optimizer-lite-019-1-pin-sight-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ak-night-sights&utm_term=hha-3019-optimizer-lite-019-1-pin-sight-1"><img alt="hha-3019-optimizer-lite-019-1-pin-sight-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-3019-optimizer-lite-019-1-pin-sight-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 When I first decided to switch to a single pin adjustable sight, I was a bit skeptical about how it would perform. But, after using the HHA 3019 Optimizer Lite, my doubts were put to rest instantly. It not only tightened up my groups but also opened up my sight picture, making my shooting experience much more enjoyable. 
 
@@ -48,9 +48,9 @@ However, there is one concern that I need to address. Mounting a quiver on your 
 In conclusion, the HHA 3019 Optimizer Lite provides excellent value with its quality construction, easy installation, and user-friendly features. It's a perfect choice for those seeking a one-pin sight for their shooting needs. 
 
 
-### [Accurate Adjustable 1-Pin Archery Sight for RH/LH Shooters](https://serp.ly/@universityofguns/amazon/ak-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Accurate Adjustable 1-Pin Archery Sight for RH/LH Shooters](https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ak-night-sights&utm_term=accurate-adjustable-1-pin-archery-sight-for-rhlh-shooters)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="axcel-accutouch-plus-carbon-pro-sight-av-41-1-pin-019-rh-lh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/axcel-accutouch-plus-carbon-pro-sight-av-41-1-pin-019-rh-lh-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ak-night-sights&utm_term=axcel-accutouch-plus-carbon-pro-sight-av-41-1-pin-019-rh-lh-1"><img alt="axcel-accutouch-plus-carbon-pro-sight-av-41-1-pin-019-rh-lh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/axcel-accutouch-plus-carbon-pro-sight-av-41-1-pin-019-rh-lh-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I recently purchased the Axcel Accutouch Plus Carbon Pro Sight AV-41, and I have to say, it's been a game-changer for my shooting experience. The Accu-Click system is a standout feature that sets it apart from other sights on the market. It allows me to set "clicks" at specific distances, making it incredibly easy to adjust the sight. The 45-degree facing sight tape also makes it much easier to see where the yardage indicator is set, which is a huge plus. 
 
@@ -61,9 +61,9 @@ On the downside, I have found that when I adjust the sight beyond 70 yards, my a
 Overall, I am extremely satisfied with the Axcel Accutouch Plus Carbon Pro Sight AV-41. Its adjustability, ease of use, and high-quality construction make it a must-have for any avid shooter. I'm confident that this sight will serve me well for years to come. 
 
 
-### [Birchwood Casey Super Bright Pen Kit (Green, Red, White)](https://serp.ly/@universityofguns/amazon/ak-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Birchwood Casey Super Bright Pen Kit (Green, Red, White)](https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ak-night-sights&utm_term=birchwood-casey-super-bright-pen-kit-green-red-white)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="birchwood-casey-super-bright-pen-kit-green-red-white-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/birchwood-casey-super-bright-pen-kit-green-red-white-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ak-night-sights&utm_term=birchwood-casey-super-bright-pen-kit-green-red-white-1"><img alt="birchwood-casey-super-bright-pen-kit-green-red-white-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/birchwood-casey-super-bright-pen-kit-green-red-white-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 So there I was, with my beloved handgun, all scratched up and starting to lose its shine. I knew I needed to do something about it and that's when I stumbled upon this magical little thing called Birchwood Casey - Super Bright Pen Kit. Now, first off, let me tell you about its color palette - I had the trifecta of green, red, and white! 
 
@@ -76,9 +76,9 @@ However, there were a couple of cons that I encountered while using this product
 In conclusion, I'd say that the Birchwood Casey - Super Bright Pen Kit is a game-changer for anyone looking to bring new life to their old sights. Its vibrant color options and ease of use make it a must-have for any shooter aiming to improve their target acquisition. So go ahead and give your handgun the love and attention it deserves - I promise, you won't be disappointed! 
 
 
-### [Axcel ArmorTech 5-Pin Sight - .019 - Black](https://serp.ly/@universityofguns/amazon/ak-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Axcel ArmorTech 5-Pin Sight - .019 - Black](https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ak-night-sights&utm_term=axcel-armortech-5-pin-sight-019-black)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="axcel-armortech-hd-sight-5-pin-019-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/axcel-armortech-hd-sight-5-pin-019-black-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ak-night-sights&utm_term=axcel-armortech-hd-sight-5-pin-019-black-1"><img alt="axcel-armortech-hd-sight-5-pin-019-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/axcel-armortech-hd-sight-5-pin-019-black-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Axcel ArmorTech HD Sight for quite some time now and I couldn't be happier. It's like having the precision of a sniper's rifle in my archery set. 
 
@@ -87,9 +87,9 @@ The 'Armor Fiber Technology' is a game-changer - it not only safeguards the fibe
 However, I must admit, the pins can get too bright in broad daylight, requiring some masking tape to tone it down. Nonetheless, it's a solid, well-built sight that I trust entirely. 
 
 
-### [Carbon Hybrid 5-Pin Sight for Enhanced Durability and Brightness](https://serp.ly/@universityofguns/amazon/ak-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Carbon Hybrid 5-Pin Sight for Enhanced Durability and Brightness](https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ak-night-sights&utm_term=carbon-hybrid-5-pin-sight-for-enhanced-durability-and-brightness)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="truglo-carbon-hybrid-5-pin-sight-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-carbon-hybrid-5-pin-sight-black-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ak-night-sights&utm_term=truglo-carbon-hybrid-5-pin-sight-black-1"><img alt="truglo-carbon-hybrid-5-pin-sight-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-carbon-hybrid-5-pin-sight-black-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the Truglo Carbon Hybrid 5-Pin Sight and was excited to give it a try. What really stood out to me was the unique blend of carbon composite and aluminum materials that made this sight incredibly lightweight without compromising durability. The Hybrid construction also ensured that vibrations from shooting were significantly reduced, making for a smoother bow experience. 
 
@@ -104,7 +104,7 @@ In conclusion, the Truglo Carbon Hybrid 5-Pin Sight is a solid choice for anyone
 
 None
 
-<div><a href="https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/AK-Night-Sights-2/w=720,h=540,fit=pad,background=black" alt="AK-Night-Sights-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ak-night-sights&utm_term=ak-night-sights-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/AK-Night-Sights-2/w=720,h=540,fit=pad,background=black" alt="AK-Night-Sights-2"></a></div>
 
 
 ## FAQ
@@ -114,7 +114,7 @@ None
 
 AK Night Sights refer to aiming devices specifically designed for use with AK-style firearms in low-light or nighttime environments. These night sights utilize high visibility tritium inserts to provide the shooter with a glowing aim point, enhancing accuracy and speed in low-light conditions. 
 
-<div><a href="https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/AK-Night-Sights-3/w=720,h=540,fit=pad,background=black" alt="AK-Night-Sights-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ak-night-sights&utm_term=ak-night-sights-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/AK-Night-Sights-3/w=720,h=540,fit=pad,background=black" alt="AK-Night-Sights-3"></a></div>
 
 
 ### What types of AK rifles are compatible with night sights?
@@ -126,7 +126,7 @@ AK Night Sights are designed to fit various AK-style rifles, including the AK-47
 
 AK Night Sights employ tritium gas-filled vials, which emit a soft green or yellowish light when exposed to radiation. This light is visible when shooters aim their firearms in low-light or nighttime conditions. The tritium is housed within the front and rear sight posts, providing a clear and easily visible aiming point for the shooter. 
 
-<div><a href="https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/AK-Night-Sights-4/w=720,h=540,fit=pad,background=black" alt="AK-Night-Sights-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ak-night-sights&utm_term=ak-night-sights-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/AK-Night-Sights-4/w=720,h=540,fit=pad,background=black" alt="AK-Night-Sights-4"></a></div>
 
 
 ### Are AK Night Sights easy to install?
@@ -138,7 +138,7 @@ Most AK Night Sights are designed to be relatively easy to install by the end-us
 
 Adjusting AK Night Sights is essential to achieve precise shot placement. Front sight posts can be adjusted for windage (left-right) by loosening the set screw, sliding the post in the desired direction, and retightening the screw. Rear sight leaves can be adjusted for windage or elevation (up-down) by loosening the set screw and moving the leaf in the desired direction before retightening the screw. Once both front and rear sights are adjusted, verify zero on your AK rifle using a shooting target. 
 
-<div><a href="https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/AK-Night-Sights-5/w=720,h=540,fit=pad,background=black" alt="AK-Night-Sights-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ak-night-sights&utm_term=ak-night-sights-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/AK-Night-Sights-5/w=720,h=540,fit=pad,background=black" alt="AK-Night-Sights-5"></a></div>
 
 
 ### How often do AK Night Sights need to be replaced?
@@ -160,7 +160,7 @@ The lifespan of tritium inserts within AK Night Sights can vary depending on usa
 
 These brands offer a range of quality AK Night Sights designed for optimal performance in low-light environments, often including additional features such as protectors and adjustment tools. 
 
-<div><a href="https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/AK-Night-Sights-6/w=720,h=540,fit=pad,background=black" alt="AK-Night-Sights-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/ak-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ak-night-sights&utm_term=ak-night-sights-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/AK-Night-Sights-6/w=720,h=540,fit=pad,background=black" alt="AK-Night-Sights-6"></a></div>
 
 
 ### How much do AK Night Sights typically cost?

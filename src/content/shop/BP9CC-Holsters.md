@@ -16,33 +16,33 @@ Are you looking for the perfect holster for your BP9CC? Our comprehensive guide 
 
 ## The Top 10 Best BP9CC Holsters
 
-1. [Ruger LC9/LC9S IWB Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Klipt IWB Holster is a sleek, lightweight everyday carry solution for your Ruger LC9/LC9S, offering secure retention, comfy wear, and easy adjustability.
+1. [Ruger LC9/LC9S IWB Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=ruger-lc9lc9s-iwb-holster-for-concealed-carry) - The Klipt IWB Holster is a sleek, lightweight everyday carry solution for your Ruger LC9/LC9S, offering secure retention, comfy wear, and easy adjustability.
 
-2. [Blade-Tech Classic OWB Holster for H&K VP9: Competition-Ready and Customizable](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unparalleled precision and competition-ready performance with the H&K VP9 OWB Holster from Blade-Tech, offering adjustable retention, high-strength Boltaron, and compatibility with IDPA & USPSA speed cut.
+2. [Blade-Tech Classic OWB Holster for H&K VP9: Competition-Ready and Customizable](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=blade-tech-classic-owb-holster-for-hk-vp9-competition-ready-and-customizable) - Experience unparalleled precision and competition-ready performance with the H&K VP9 OWB Holster from Blade-Tech, offering adjustable retention, high-strength Boltaron, and compatibility with IDPA & USPSA speed cut.
 
-3. [Outside the Waistband Holster for H&K VP9 with Optic Ready Speed Cut](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Signature Holster for H&K VP9 is a durable and affordable OWB holster with adjustable retention, a positive locking trigger guard, and compatibility with various attachments, perfect for competitive shooters and firearm enthusiasts alike.
+3. [Outside the Waistband Holster for H&K VP9 with Optic Ready Speed Cut](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=outside-the-waistband-holster-for-hk-vp9-with-optic-ready-speed-cut) - The Blade-Tech Signature Holster for H&K VP9 is a durable and affordable OWB holster with adjustable retention, a positive locking trigger guard, and compatibility with various attachments, perfect for competitive shooters and firearm enthusiasts alike.
 
-4. [Sig P220/P226 OWB Holster for Competitive Shooters](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Blade-Tech's Signature OWB Holster for Sig P220/P226 offers unbeatable durability, adjustable retention, positive locking trigger guard, and compatibility with a wide range of attachments, making it a favorite among competitive shooters.
+4. [Sig P220/P226 OWB Holster for Competitive Shooters](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=sig-p220p226-owb-holster-for-competitive-shooters) - Blade-Tech's Signature OWB Holster for Sig P220/P226 offers unbeatable durability, adjustable retention, positive locking trigger guard, and compatibility with a wide range of attachments, making it a favorite among competitive shooters.
 
-5. [Ruger LC9 / LC9s / LC380 / EC9s IWB Kydex Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discreet and secure, the Amberide Inside Waistband Holster protects your Ruger LC9 or LC380 for comfortable, reliable carry in any situation, with adjustable cant and retention for a customized fit.
+5. [Ruger LC9 / LC9s / LC380 / EC9s IWB Kydex Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=ruger-lc9-lc9s-lc380-ec9s-iwb-kydex-holster-for-concealed-carry) - Discreet and secure, the Amberide Inside Waistband Holster protects your Ruger LC9 or LC380 for comfortable, reliable carry in any situation, with adjustable cant and retention for a customized fit.
 
-6. [IWB Kydex Holster for Ruger LC9, LC9s, LC380, EC9s - Adjustable Retention & Carry Options](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - This IWB holster for Ruger LC9 & EC9s is constructed with durable Kydex, offering adjustable retention, ride, and cant while minimizing contact with your body. Comfort, concealment, and security are key factors in this hand-molded, right-handed holster.
+6. [IWB Kydex Holster for Ruger LC9, LC9s, LC380, EC9s - Adjustable Retention & Carry Options](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=iwb-kydex-holster-for-ruger-lc9-lc9s-lc380-ec9s-adjustable-retention-carry-options) - This IWB holster for Ruger LC9 & EC9s is constructed with durable Kydex, offering adjustable retention, ride, and cant while minimizing contact with your body. Comfort, concealment, and security are key factors in this hand-molded, right-handed holster.
 
-7. [Ruger LC9/LC9S/LC380/EC9/EC9S Polymer OWB Holster with Belt Clip](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Gun&Flower Polymer OWB Holster with Belt Clip - Customized Perfect Fit for Ruger LC9/LC9S/LC380/EC9/EC9S Pistol. Offering Adjustable Cant, Right-Hand Draw, and Fast Delivery in the USA! Free Return, Exchange, and Lifetime Warranty.
+7. [Ruger LC9/LC9S/LC380/EC9/EC9S Polymer OWB Holster with Belt Clip](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=ruger-lc9lc9slc380ec9ec9s-polymer-owb-holster-with-belt-clip) - Gun&Flower Polymer OWB Holster with Belt Clip - Customized Perfect Fit for Ruger LC9/LC9S/LC380/EC9/EC9S Pistol. Offering Adjustable Cant, Right-Hand Draw, and Fast Delivery in the USA! Free Return, Exchange, and Lifetime Warranty.
 
-8. [Custom Right Hand VP9 OWB Kydex Holster with Adjustable Retention](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - C&G Holsters' VP9 OWB Covert Kydex Holster boasts a custom craft, adjustable retention system, and compatibility with RMR Red Dots, to provide exceptional comfort, concealment, and precision for your H&K VP9.
+8. [Custom Right Hand VP9 OWB Kydex Holster with Adjustable Retention](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=custom-right-hand-vp9-owb-kydex-holster-with-adjustable-retention) - C&G Holsters' VP9 OWB Covert Kydex Holster boasts a custom craft, adjustable retention system, and compatibility with RMR Red Dots, to provide exceptional comfort, concealment, and precision for your H&K VP9.
 
-9. [Bersa BP9CC IWB Kydex Holster with Adjustable Retention and Carry Options](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the perfect blend of comfort and concealment with the Bersa BP9CC IWB Holster by We The People Holsters, featuring adjustable retention, ride, cant, and belt clip, made from durable Kydex material, all hand-molded and assembled in Las Vegas, NV.
+9. [Bersa BP9CC IWB Kydex Holster with Adjustable Retention and Carry Options](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=bersa-bp9cc-iwb-kydex-holster-with-adjustable-retention-and-carry-options) - Discover the perfect blend of comfort and concealment with the Bersa BP9CC IWB Holster by We The People Holsters, featuring adjustable retention, ride, cant, and belt clip, made from durable Kydex material, all hand-molded and assembled in Las Vegas, NV.
 
-10. [Smith & Wesson M&P 9 Shield EZ IWB Holster - Adjustable Cant and Thin Green Line Design](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the ultimate in discreet, reliable carry with the Smith & Wesson M&P 9 Shield EZ IWB Holster by We The People Holsters, combining exceptional comfort, durability, and adjustability for a premium, American-made accessory.
+10. [Smith & Wesson M&P 9 Shield EZ IWB Holster - Adjustable Cant and Thin Green Line Design](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=smith-wesson-mp-9-shield-ez-iwb-holster-adjustable-cant-and-thin-green-line-design) - Experience the ultimate in discreet, reliable carry with the Smith & Wesson M&P 9 Shield EZ IWB Holster by We The People Holsters, combining exceptional comfort, durability, and adjustability for a premium, American-made accessory.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Ruger LC9/LC9S IWB Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Ruger LC9/LC9S IWB Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=ruger-lc9lc9s-iwb-holster-for-concealed-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="klipt-iwb-ruger-lc9-lc9s-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-ruger-lc9-lc9s-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=klipt-iwb-ruger-lc9-lc9s-holster-right-handed-inside-the-waistband-klipt-blade-tech-1"><img alt="klipt-iwb-ruger-lc9-lc9s-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-ruger-lc9-lc9s-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
 
 As an avid and consistent user of this product, I am able to confirm its effectiveness, comfort, and practicality. The sleek design is ideal for everyday concealment as it adds minimal bulk to the wearer's clothing. The belt clip makes it simple to put on and take off, adding a layer of convenience to the overall user experience.
 
@@ -52,9 +52,9 @@ This product also demonstrates impressive heat resistance, maintaining its shape
 
 In conclusion, this product offers an excellent balance of features, benefits, affordability and ease of use that make it my go-to choice for concealed carry. With its comfortability, practicality, and reliability - this holster has become an essential part of my everyday routine due to these reasons.
 
-### [Blade-Tech Classic OWB Holster for H&K VP9: Competition-Ready and Customizable](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Blade-Tech Classic OWB Holster for H&K VP9: Competition-Ready and Customizable](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=blade-tech-classic-owb-holster-for-hk-vp9-competition-ready-and-customizable)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hk-vp9-owb-holster-right-handed-hk-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hk-vp9-owb-holster-right-handed-hk-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=hk-vp9-owb-holster-right-handed-hk-blade-tech-1"><img alt="hk-vp9-owb-holster-right-handed-hk-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hk-vp9-owb-holster-right-handed-hk-blade-tech-1/public"/></a></div>
 
 After using the Blade-Tech Classic OWB holster for my EDC pistol, I can confidently say that I am highly impressed with its quality and features. The materials used in its construction are high-strength Boltaron, making it durable and long-lasting. One of the standout features of this holster is its adjustable retention, allowing for a customized fit to your specific gun model. This is great for those who want a personalized experience when carrying their firearm.
 
@@ -62,9 +62,9 @@ Another great aspect of this holster is the positive locking trigger guard which
 
 In terms of comfort, the Blade-Tech Classic OWB holster does not disappoint as it can be worn comfortably throughout an entire day without issue. With a lifetime guarantee from Blade-Tech, investing in this product ensures reliability and longevity in securing your firearm while providing superior functionality in daily carry or competitive settings. Overall, I am very satisfied with my purchase and would recommend this product to anyone looking for a high-quality, reliable holster that offers both security and performance enhancements.
 
-### [Outside the Waistband Holster for H&K VP9 with Optic Ready Speed Cut](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Outside the Waistband Holster for H&K VP9 with Optic Ready Speed Cut](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=outside-the-waistband-holster-for-hk-vp9-with-optic-ready-speed-cut)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="blade-tech-signature-holster-model-hk-vp9-tek-lok-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-signature-holster-model-hk-vp9-tek-lok-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=blade-tech-signature-holster-model-hk-vp9-tek-lok-1"><img alt="blade-tech-signature-holster-model-hk-vp9-tek-lok-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-signature-holster-model-hk-vp9-tek-lok-1/public"/></a></div>
 
 I recently purchased the Blade-Tech Signature OWB Holster for my H&K VP9 and have been highly impressed with its quality, functionality, and ease of use. The adjustable retention feature is a game-changer as it allows me to customize the fit to my liking, ensuring that my firearm is securely fastened while also enabling a quick draw when needed.
 
@@ -74,9 +74,9 @@ One standout feature of this holster is its IDPA legal optic ready speed cut tha
 
 While there haven't been any issues with durability so far regarding thin sections along critical seam points on certain models (not specific to H&K VP9), some users have reported concerns about their longevity over time; however these potential shortcomings do not detract significantly from its overall performance value proposition: offering excellent quality without sacrificing key attributes like adjustability or safety features such as positive lock trigger guards providing peace mind knowing your weapon secured even during rigorous training exercises! Overall rating—★★★★☆
 
-### [Sig P220/P226 OWB Holster for Competitive Shooters](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Sig P220/P226 OWB Holster for Competitive Shooters](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=sig-p220p226-owb-holster-for-competitive-shooters)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sig-p220-p226-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-sig-saue-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sig-p220-p226-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-sig-saue-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=sig-p220-p226-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-sig-saue-1"><img alt="sig-p220-p226-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-sig-saue-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sig-p220-p226-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-sig-saue-1/public"/></a></div>
 
 The Blade-Tech Signature OWB Holster for the Sig Sauer P220/P226 was an excellent addition to my daily carry routine. The adjustable retention feature was a standout, as it allowed me to dial in the perfect level of security for my firearm while still providing easy access when needed. This added peace of mind was especially noticeable during long days on the job, where it prevented any unwanted movement or shifting.
 
@@ -84,9 +84,9 @@ I also appreciated the holster's compatibility with various attachments due to i
 
 However, there were a few areas where I think improvements could be made. For instance, while the optic ready speed cut did help clear out my muzzle quickly during training sessions, it wasn't quite as effective as I had hoped – especially when using certain types of optics on my gun. Additionally, although adjusting retention worked well most times; there were moments where minor tweaking felt necessary but proved too difficult due to the limited options available at hand (either tightening or loosening). Despite these minor shortcomings though overall experience with this holster was quite positive given its quality construction coupled up by reasonable price point offered by Blade Tech.
 
-### [Ruger LC9 / LC9s / LC380 / EC9s IWB Kydex Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Ruger LC9 / LC9s / LC380 / EC9s IWB Kydex Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=ruger-lc9-lc9s-lc380-ec9s-iwb-kydex-holster-for-concealed-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="ruger-lc9-lc9s-ruger-lc380-ruger-ec9s-iwb-holster-black-right-hand-draw-iwb-amberide-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ruger-lc9-lc9s-ruger-lc380-ruger-ec9s-iwb-holster-black-right-hand-draw-iwb-amberide-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=ruger-lc9-lc9s-ruger-lc380-ruger-ec9s-iwb-holster-black-right-hand-draw-iwb-amberide-1"><img alt="ruger-lc9-lc9s-ruger-lc380-ruger-ec9s-iwb-holster-black-right-hand-draw-iwb-amberide-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ruger-lc9-lc9s-ruger-lc380-ruger-ec9s-iwb-holster-black-right-hand-draw-iwb-amberide-1/public"/></a></div>
 
 The holster is specifically designed for Ruger LC9, LC9s, LC380 and EC9s models, making it a perfect fit for these gun types. The robust construction from. 08" KYDEX & Boltaron material ensures durability while remaining lightweight for comfortable carry throughout the day. I appreciated the adjustable retention pressure which allowed me to customize its tightness for smooth and fast draw without worrying about accidental exposure.
 
@@ -96,15 +96,15 @@ As far as carrying options go, the 1. 5” standard belt clip offers adjustable 
 
 Overall, despite some minor complaints from other users regarding fitting and retention issues that might vary depending on gun model or user preference; I would definitely recommend this product to others seeking reliable protection and discreet carry of their handgun while being out and about during daily activities or excursions within legal boundaries
 
-### [IWB Kydex Holster for Ruger LC9, LC9s, LC380, EC9s - Adjustable Retention & Carry Options](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [IWB Kydex Holster for Ruger LC9, LC9s, LC380, EC9s - Adjustable Retention & Carry Options](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=iwb-kydex-holster-for-ruger-lc9-lc9s-lc380-ec9s-adjustable-retention-carry-options)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="ruger-lc9-lc9s-lc380-ec9s-iwb-right-handed-holster-by-we-the-people-holsters-topographic-gray-kydex--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ruger-lc9-lc9s-lc380-ec9s-iwb-right-handed-holster-by-we-the-people-holsters-topographic-gray-kydex--1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=ruger-lc9-lc9s-lc380-ec9s-iwb-right-handed-holster-by-we-the-people-holsters-topographic-gray-kydex-1"><img alt="ruger-lc9-lc9s-lc380-ec9s-iwb-right-handed-holster-by-we-the-people-holsters-topographic-gray-kydex--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ruger-lc9-lc9s-lc380-ec9s-iwb-right-handed-holster-by-we-the-people-holsters-topographic-gray-kydex--1/public"/></a></div>
 
 After using the IWB Holster for Ruger LC9 & Ruger EC9s, I found it to be comfortable and discrete. The Kydex material provided a slim profile and easy concealment. Adjustable retention, ride, and cant allowed for flexibility while the sweat guard minimized contact between my gun and body. However, the secure belt clip could be improved for easier draws. Overall, this holster is a quality option for anyone seeking an affordable, custom-fit solution specifically designed for their Ruger LC9/EC9 model pistol.
 
-### [Ruger LC9/LC9S/LC380/EC9/EC9S Polymer OWB Holster with Belt Clip](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Ruger LC9/LC9S/LC380/EC9/EC9S Polymer OWB Holster with Belt Clip](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=ruger-lc9lc9slc380ec9ec9s-polymer-owb-holster-with-belt-clip)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="ruger-lc9-lc9s-lc380-ec9-ec9s-polymer-owb-holster-with-belt-clip-gun-flower-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ruger-lc9-lc9s-lc380-ec9-ec9s-polymer-owb-holster-with-belt-clip-gun-flower-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=ruger-lc9-lc9s-lc380-ec9-ec9s-polymer-owb-holster-with-belt-clip-gun-flower-1"><img alt="ruger-lc9-lc9s-lc380-ec9-ec9s-polymer-owb-holster-with-belt-clip-gun-flower-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ruger-lc9-lc9s-lc380-ec9-ec9s-polymer-owb-holster-with-belt-clip-gun-flower-1/public"/></a></div>
 
 I recently had the opportunity to try the Gun&Flower Polymer OWB Holster with Belt Clip Fit for Ruger LC9/LC9S/LC380/EC9/EC9S Pistol, and I must say it has been a great experience. The adjustable cant feature allows me to position the holster according to my personal preference, and it stays snug in place thanks to its secure belt clip.
 
@@ -112,9 +112,9 @@ The holster offers a comfortable fit against my waistline while remaining lightw
 
 What stands out about this product is its impressive quality and performance at an affordable price tag. Overall, I would highly recommend this holster as an excellent value for those looking for an outside waistband option with great design features such as adjustable canting and a secure belt clip attachment system.
 
-### [Custom Right Hand VP9 OWB Kydex Holster with Adjustable Retention](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Custom Right Hand VP9 OWB Kydex Holster with Adjustable Retention](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=custom-right-hand-vp9-owb-kydex-holster-with-adjustable-retention)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hk-vp9-owb-covert-kydex-holster-custom-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hk-vp9-owb-covert-kydex-holster-custom-right-hand-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=hk-vp9-owb-covert-kydex-holster-custom-right-hand-1"><img alt="hk-vp9-owb-covert-kydex-holster-custom-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hk-vp9-owb-covert-kydex-holster-custom-right-hand-1/public"/></a></div>
 
 I've been using C&G Holsters for my H&K VP9 for quite some time now, and I must say that it has exceeded my expectations. The quality of materials used and craftsmanship is exceptional. The holster fits my gun perfectly, which is a testament to the outstanding attention to detail in its design.
 
@@ -124,9 +124,9 @@ The open bottom design of the C&G Holster allows it to fit different threaded ba
 
 Apart from being an excellent product itself, C&G Holsters have an impressive customer service record - they were prompt in addressing an issue I had with a loose clip by sending me a replacement part shortly afterward. Overall, if you're looking for high-quality holster that offers fantastic retention, customization options, and top-notch customer service - C&G Holsters should definitely be at the top of your list!
 
-### [Bersa BP9CC IWB Kydex Holster with Adjustable Retention and Carry Options](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Bersa BP9CC IWB Kydex Holster with Adjustable Retention and Carry Options](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=bersa-bp9cc-iwb-kydex-holster-with-adjustable-retention-and-carry-options)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="bersa-bp9cc-iwb-right-handed-holster-by-we-the-people-holsters-gun-flag-kydex-adjustable-secure-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bersa-bp9cc-iwb-right-handed-holster-by-we-the-people-holsters-gun-flag-kydex-adjustable-secure-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=bersa-bp9cc-iwb-right-handed-holster-by-we-the-people-holsters-gun-flag-kydex-adjustable-secure-1"><img alt="bersa-bp9cc-iwb-right-handed-holster-by-we-the-people-holsters-gun-flag-kydex-adjustable-secure-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bersa-bp9cc-iwb-right-handed-holster-by-we-the-people-holsters-gun-flag-kydex-adjustable-secure-1/public"/></a></div>
 
 After using the Bersa BP9CC IWB Holster for a while now, I can confidently say that it has become an essential part of my daily carry. The Kydex construction offers exceptional durability, allowing for effortless concealment under various clothing types. The comfort and discreetness provided by this holster make carrying my Bersa BP9CC throughout the day a breeze.
 
@@ -136,9 +136,9 @@ The protective sweat guard does an excellent job at minimizing contact between m
 
 Overall, I highly recommend this holster to fellow owners of a Bersa BP9CC as it offers outstanding value with its lifetime guarantee and exceptional hand-molded quality originating from Las Vegas, NV.
 
-### [Smith & Wesson M&P 9 Shield EZ IWB Holster - Adjustable Cant and Thin Green Line Design](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Smith & Wesson M&P 9 Shield EZ IWB Holster - Adjustable Cant and Thin Green Line Design](https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=smith-wesson-mp-9-shield-ez-iwb-holster-adjustable-cant-and-thin-green-line-design)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="smith-wesson-mp-9-shield-ez-iwb-right-handed-holster-by-we-the-people-holsters-thin-green-line-kydex-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-wesson-mp-9-shield-ez-iwb-right-handed-holster-by-we-the-people-holsters-thin-green-line-kydex-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=smith-wesson-mp-9-shield-ez-iwb-right-handed-holster-by-we-the-people-holsters-thin-green-line-kydex-1"><img alt="smith-wesson-mp-9-shield-ez-iwb-right-handed-holster-by-we-the-people-holsters-thin-green-line-kydex-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-wesson-mp-9-shield-ez-iwb-right-handed-holster-by-we-the-people-holsters-thin-green-line-kydex-1/public"/></a></div>
 
 As someone who has recently used the IWB Holster for S&W M&P 9 Shield EZ, I can attest to its excellent design and functionality. The holster is made from. 08-inch KYDEX material, providing a lightweight and moisture-resistant structure that ensures a comfortable fit even during extended use. One of my favorite features is the adjustable cant, which ranges from zero to 15 degrees, allowing you to customize your carrying position according to your preferences.
 
@@ -148,7 +148,7 @@ Overall, despite these drawbacks, the high ratings (4 out of 5 stars) suggest ma
 
 ## Buyer's Guide
 
-<div><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/BP9CC+Holsters-2/public" alt="BP9CC Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=bp9cc-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/BP9CC+Holsters-2/public" alt="BP9CC Holsters-2"></a></div>
 
 ### Important Features to Consider
 
@@ -178,7 +178,7 @@ Selecting the right holster can impact your overall experience with a firearm. H
 
 By considering these features and advice, you'll be well-equipped to choose the perfect holster for your BP9CC, ensuring a safe and enjoyable experience with your firearm.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/BP9CC+Holsters-3/public" alt="BP9CC Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=bp9cc-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/BP9CC+Holsters-3/public" alt="BP9CC Holsters-3"></a></div>
 
 ## FAQ
 
@@ -186,7 +186,7 @@ By considering these features and advice, you'll be well-equipped to choose the 
 
 BP9CC holsters are designed to carry and protect the BP9CC pistol. They are specifically tailored to hold this type of firearm, ensuring both safety and easy access when needed.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/BP9CC+Holsters-4/public" alt="BP9CC Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=bp9cc-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/BP9CC+Holsters-4/public" alt="BP9CC Holsters-4"></a></div>
 
 ### Why choose a BP9CC holster over a generic holster?
 
@@ -196,7 +196,7 @@ Custom-fit holsters like the ones for the BP9CC provide a snug fit that secures 
 
 BP9CC holsters can be made from a variety of materials, including leather, polymer, and other synthetic materials. Each material has its own advantages and disadvantages in terms of durability, concealment, weight, and comfort.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/BP9CC+Holsters-5/public" alt="BP9CC Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=bp9cc-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/BP9CC+Holsters-5/public" alt="BP9CC Holsters-5"></a></div>
 
 ### How well do BP9CC holsters conceal the firearm?
 
@@ -206,7 +206,7 @@ Concealment depends on the type of BP9CC holster being used, as well as the size
 
 When selecting a BP9CC holster, consider factors such as the level of concealment required, comfort, durability, and ease of draw. Additionally, think about the specific situations in which you will likely need to access and use your firearm.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/BP9CC+Holsters-6/public" alt="BP9CC Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/bp9cc-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=bp9cc-holsters&utm_term=bp9cc-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/BP9CC+Holsters-6/public" alt="BP9CC Holsters-6"></a></div>
 
 ### What is the difference between IWB (Inside Waistband) and OWB (Outside Waistband) holsters for the BP9CC?
 

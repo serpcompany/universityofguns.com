@@ -18,33 +18,33 @@ Whether you're an avid hunter, a competitive shooter, or just someone who values
 
 ## The Top 10 Best LaserMax Holsters
 
-1. [Custom Mod1 IWB Kydex Holster System for Faxon FX-19](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Mod1 IWB Kydex Holster System - Precision-engineered custom left-hand holster for Sig P365 with open bottom for threads & comps, custom DCC clips, dark wing for added concealment, 100% made in America, and lifetime guarantee.
+1. [Custom Mod1 IWB Kydex Holster System for Faxon FX-19](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=custom-mod1-iwb-kydex-holster-system-for-faxon-fx-19) - Mod1 IWB Kydex Holster System - Precision-engineered custom left-hand holster for Sig P365 with open bottom for threads & comps, custom DCC clips, dark wing for added concealment, 100% made in America, and lifetime guarantee.
 
-2. [Custom Kydex Holster System for Walther PDP 4" - Right Hand, IWB Orientation](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - 5-star Mod1 IWB Kydex Holster System for Walther PDP 4" crafted custom to fit your needs, 100% American made by veterans and law enforcement, adjustable for retention, and designed for optimal concealment and comfort.
+2. [Custom Kydex Holster System for Walther PDP 4" - Right Hand, IWB Orientation](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=custom-kydex-holster-system-for-walther-pdp-4-right-hand-iwb-orientation) - 5-star Mod1 IWB Kydex Holster System for Walther PDP 4" crafted custom to fit your needs, 100% American made by veterans and law enforcement, adjustable for retention, and designed for optimal concealment and comfort.
 
-3. [Slim IWB Holster for Smith & Wesson .380 Bodyguard with Laser](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Klipt IWB Holster for the Smith & Wesson .380 Bodyguard w/ Laser offers a slim, discreet design for everyday carry, featuring high sweat guard, easy on/off belt clip, built-in retention, and made with heat-resistant polymer in the USA.
+3. [Slim IWB Holster for Smith & Wesson .380 Bodyguard with Laser](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=slim-iwb-holster-for-smith-wesson-380-bodyguard-with-laser) - The Klipt IWB Holster for the Smith & Wesson .380 Bodyguard w/ Laser offers a slim, discreet design for everyday carry, featuring high sweat guard, easy on/off belt clip, built-in retention, and made with heat-resistant polymer in the USA.
 
-4. [Custom IWB Kydex Holster for Sig P365 with Adjustable Retention](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the ultimate in customization and comfort with C&G Holsters' Mod1 IWB Kydex Holster System for Sig P365, offering unmatched precision, durability, and support for your everyday carry with a lifetime guarantee.
+4. [Custom IWB Kydex Holster for Sig P365 with Adjustable Retention](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=custom-iwb-kydex-holster-for-sig-p365-with-adjustable-retention) - Experience the ultimate in customization and comfort with C&G Holsters' Mod1 IWB Kydex Holster System for Sig P365, offering unmatched precision, durability, and support for your everyday carry with a lifetime guarantee.
 
-5. [Universal Mag Carrier Kydex Concealed Carry IWB Magazine Holster by We The People Holsters](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Universal Mag Carrier by We The People Holsters, a single stack, adjustable IWB magazine carrier for concealed carry in black kydex material.
+5. [Universal Mag Carrier Kydex Concealed Carry IWB Magazine Holster by We The People Holsters](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=universal-mag-carrier-kydex-concealed-carry-iwb-magazine-holster-by-we-the-people-holsters) - Universal Mag Carrier by We The People Holsters, a single stack, adjustable IWB magazine carrier for concealed carry in black kydex material.
 
-6. [Versatile and Comfortable IWB Holster for Multiple Clip Styles](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience optimal comfort and concealed carry versatility with the quick-ship UltiClip Inside-the-Waistband Holster, boasting multiple clip styles, various colors and patterns, and the guarantee of swift delivery from Gun Goddess.
+6. [Versatile and Comfortable IWB Holster for Multiple Clip Styles](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=versatile-and-comfortable-iwb-holster-for-multiple-clip-styles) - Experience optimal comfort and concealed carry versatility with the quick-ship UltiClip Inside-the-Waistband Holster, boasting multiple clip styles, various colors and patterns, and the guarantee of swift delivery from Gun Goddess.
 
-7. [Custom Kydex IWB Holster for Sig P365-XMACRO](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience premium comfort and concealment with the Mod1 IWB Kydex Holster System, featuring customizable orientation, attachments, and sweat guard sizes, backed by a lifetime guarantee and made in America by veterans and law enforcement.
+7. [Custom Kydex IWB Holster for Sig P365-XMACRO](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=custom-kydex-iwb-holster-for-sig-p365-xmacro) - Experience premium comfort and concealment with the Mod1 IWB Kydex Holster System, featuring customizable orientation, attachments, and sweat guard sizes, backed by a lifetime guarantee and made in America by veterans and law enforcement.
 
-8. [IWB Kydex Holster for Glock 19 & 19X - Adjustable & Secure](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Glock 19 and 19X IWB Left-Handed Holster by We The People Holsters - Secure, Adjustable, Durable Kydex, Compatible with Red Dots and Ideal for Concealed Carry
+8. [IWB Kydex Holster for Glock 19 & 19X - Adjustable & Secure](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=iwb-kydex-holster-for-glock-19-19x-adjustable-secure) - Glock 19 and 19X IWB Left-Handed Holster by We The People Holsters - Secure, Adjustable, Durable Kydex, Compatible with Red Dots and Ideal for Concealed Carry
 
-9. [Secure IWB Holster for Glock 43/43X with Adjustable Retention & Ride](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - We The People Holsters' Glock 43/43X IWB Holster offers optimal concealment and adjustable features for a comfortable and secure carry experience, specifically designed for right-handed use.
+9. [Secure IWB Holster for Glock 43/43X with Adjustable Retention & Ride](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=secure-iwb-holster-for-glock-4343x-with-adjustable-retention-ride) - We The People Holsters' Glock 43/43X IWB Holster offers optimal concealment and adjustable features for a comfortable and secure carry experience, specifically designed for right-handed use.
 
-10. [Comfortable Concealed Carry Kydex Mag Holster for M&P 10/45 (Double Stack)](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the best in concealed carry comfort with our Lasermax Holsters Universal IWB/OWB Single Kydex Magazine Holder, designed for M&P 10/45 (Double Stack) and endorsed by the NTOA.
+10. [Comfortable Concealed Carry Kydex Mag Holster for M&P 10/45 (Double Stack)](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=comfortable-concealed-carry-kydex-mag-holster-for-mp-1045-double-stack) - Experience the best in concealed carry comfort with our Lasermax Holsters Universal IWB/OWB Single Kydex Magazine Holder, designed for M&P 10/45 (Double Stack) and endorsed by the NTOA.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Custom Mod1 IWB Kydex Holster System for Faxon FX-19](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Custom Mod1 IWB Kydex Holster System for Faxon FX-19](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=custom-mod1-iwb-kydex-holster-system-for-faxon-fx-19)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="mod1-iwb-kydex-holster-system-custom-right-hand-faxon-fx-20" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mod1-iwb-kydex-holster-system-custom-right-hand-faxon-fx-20/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=mod1-iwb-kydex-holster-system-custom-right-hand-faxon-fx-20"><img alt="mod1-iwb-kydex-holster-system-custom-right-hand-faxon-fx-20" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mod1-iwb-kydex-holster-system-custom-right-hand-faxon-fx-20/public"/></a></div>
 
 After using the C&G Mod 1 Kydex Holster for a few weeks, I'm incredibly impressed with its quality and design. The hinge system is a game-changer, providing maximum concealment and comfort while carrying my firearm. The holster fits my pistol securely, without any wiggle room, thanks to the proprietary molds and CNC milling that result in precise detailing. The solid locking mechanism provides an audible "click" when the firearm is holstered, giving me peace of mind about weapon security during physical activity.
 
@@ -52,9 +52,9 @@ What I appreciate most about this holster is how well it conforms to my body dur
 
 One area where there may be room for improvement would be adding versatility in terms of fitting different types of guns or adjustability options based on specific user preferences. Other than that minor suggestion, the C&G Mod 1 Kydex Holster has exceeded my expectations in terms of quality, comfort, and concealment.
 
-### [Custom Kydex Holster System for Walther PDP 4" - Right Hand, IWB Orientation](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Custom Kydex Holster System for Walther PDP 4" - Right Hand, IWB Orientation](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=custom-kydex-holster-system-for-walther-pdp-4-right-hand-iwb-orientation)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="mod1-iwb-kydex-holster-system-custom-right-hand-walther-pdp-5" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mod1-iwb-kydex-holster-system-custom-right-hand-walther-pdp-5/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=mod1-iwb-kydex-holster-system-custom-right-hand-walther-pdp-5"><img alt="mod1-iwb-kydex-holster-system-custom-right-hand-walther-pdp-5" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mod1-iwb-kydex-holster-system-custom-right-hand-walther-pdp-5/public"/></a></div>
 
 My daily carry routine has significantly improved since switching to the C&G holster a few weeks ago. The proprietary molds, CNC milled design, and precision craftsmanship deliver unmatched comfort and concealment. I opted for the modular belt clips, which have been durable and secure throughout my use. The hinge system makes adjusting the holster angle easy for comfortable concealment even with my larger pistol under a t-shirt.
 
@@ -62,9 +62,9 @@ What sets C&G apart from other holsters is their commitment to quality. Every as
 
 While I am generally thrilled with this purchase, I do wish there were more options for customization like color choices or different sweat guard sizes. Additionally, while it excels in comfort, the fit could be more snug to reduce any potential movement while carrying. Despite these minor drawbacks, I would still recommend C&G Holsters as an excellent choice for anyone in the market for a new concealed carry solution.
 
-### [Slim IWB Holster for Smith & Wesson .380 Bodyguard with Laser](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Slim IWB Holster for Smith & Wesson .380 Bodyguard with Laser](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=slim-iwb-holster-for-smith-wesson-380-bodyguard-with-laser)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="klipt-iwb-holster-for-smith-wesson-380-bodyguard-with-laser-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-holster-for-smith-wesson-380-bodyguard-with-laser-klipt-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=klipt-iwb-holster-for-smith-wesson-380-bodyguard-with-laser-klipt-blade-tech-1"><img alt="klipt-iwb-holster-for-smith-wesson-380-bodyguard-with-laser-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-holster-for-smith-wesson-380-bodyguard-with-laser-klipt-blade-tech-1/public"/></a></div>
 
 As a firearm owner, I've tried out numerous concealed carry holsters, but none have been as impressive as the Blade-Tech Klipt IWB Holster for the S&W. 380 Bodyguard w/ Laser. This holster is lightweight and comfortable, which makes it perfect for everyday use. It features a high sweat guard that keeps your skin dry and comfortable while also preventing slide serrations from causing discomfort.
 
@@ -72,9 +72,9 @@ The built-in retention on this holster gives me added peace of mind while carryi
 
 Overall, if you're looking for an excellent concealed carry option with comfort and practicality in mind, the Blade-Tech Klipt IWB Holster for the S&W. 380 Bodyguard w/ Laser should be at the top of your list. It stays securely on belts up to 1. 5 inches wide until you need to take it off and provides all-day comfort thanks to its slim design and high-strength construction from heat resistant polymer right here in the USA!
 
-### [Custom IWB Kydex Holster for Sig P365 with Adjustable Retention](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Custom IWB Kydex Holster for Sig P365 with Adjustable Retention](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=custom-iwb-kydex-holster-for-sig-p365-with-adjustable-retention)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="mod1-iwb-kydex-holster-system-custom-right-hand-sig-p365-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mod1-iwb-kydex-holster-system-custom-right-hand-sig-p365-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=mod1-iwb-kydex-holster-system-custom-right-hand-sig-p365-1"><img alt="mod1-iwb-kydex-holster-system-custom-right-hand-sig-p365-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mod1-iwb-kydex-holster-system-custom-right-hand-sig-p365-1/public"/></a></div>
 
 I was thrilled when I received my custom-made C&G Holsters holster that catered to my specific needs. The moment I put it on, I could immediately feel the comfort and security it provided, with its excellent concealment options. To my surprise, even under a regular T-shirt, it seemed virtually invisible!
 
@@ -82,9 +82,9 @@ The hinge system incorporated by the company is truly remarkable as it conforms 
 
 I am simply blown away by how well-crafted and designed this holster is, keeping user convenience in mind. It's durable and boasts quality features that make it hard for me not to gush about how impressed I am. If you've been searching for a perfect concealed carry system that checks all the right boxes, look no further than C&G Holsters – their products are guaranteed not to disappoint!
 
-### [Universal Mag Carrier Kydex Concealed Carry IWB Magazine Holster by We The People Holsters](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Universal Mag Carrier Kydex Concealed Carry IWB Magazine Holster by We The People Holsters](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=universal-mag-carrier-kydex-concealed-carry-iwb-magazine-holster-by-we-the-people-holsters)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="universal-mag-carrier-kydex-concealed-carry-iwb-magazine-carrier-holster-by-we-the-people-holsters-b-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/universal-mag-carrier-kydex-concealed-carry-iwb-magazine-carrier-holster-by-we-the-people-holsters-b-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=universal-mag-carrier-kydex-concealed-carry-iwb-magazine-carrier-holster-by-we-the-people-holsters-b-1"><img alt="universal-mag-carrier-kydex-concealed-carry-iwb-magazine-carrier-holster-by-we-the-people-holsters-b-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/universal-mag-carrier-kydex-concealed-carry-iwb-magazine-carrier-holster-by-we-the-people-holsters-b-1/public"/></a></div>
 
 When I first received my Universal Mag Carrier Kydex Concealed Carry/Holster by We The People Holsters, I was immediately impressed with its quality and design. This carrier is made from durable Kydex material that ensures a secure grip on my magazines, while still allowing for easy access.
 
@@ -94,9 +94,9 @@ This mag carrier has worked well for both single-stack and double-stack mags, as
 
 In conclusion, this mag carrier has become an essential part of my everyday carry setup offering excellent concealment and reliability while providing fast accessibility when needed.
 
-### [Versatile and Comfortable IWB Holster for Multiple Clip Styles](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Versatile and Comfortable IWB Holster for Multiple Clip Styles](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=versatile-and-comfortable-iwb-holster-for-multiple-clip-styles)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="ulticlip-inside-the-waistband-quick-ship-holster-gun-goddess-default-title-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ulticlip-inside-the-waistband-quick-ship-holster-gun-goddess-default-title-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=ulticlip-inside-the-waistband-quick-ship-holster-gun-goddess-default-title-1"><img alt="ulticlip-inside-the-waistband-quick-ship-holster-gun-goddess-default-title-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ulticlip-inside-the-waistband-quick-ship-holster-gun-goddess-default-title-1/public"/></a></div>
 
 I recently purchased the Gun Goddess holster for my Taurus G3, and I'm happy to say it's become my go-to choice for concealed carry. The robust kydex construction offers durability, while the UltiClip secures the holster in place even when wearing light summer garments.
 
@@ -106,9 +106,9 @@ The diverse customization options truly make this product stand out. I enjoyed s
 
 In summary, the Gun Goddess holster has exceeded expectations in terms of quality, comfortability, and versatility while carrying daily. Highly recommended for anyone seeking a top-notch concealed carry solution!
 
-### [Custom Kydex IWB Holster for Sig P365-XMACRO](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Custom Kydex IWB Holster for Sig P365-XMACRO](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=custom-kydex-iwb-holster-for-sig-p365-xmacro)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="mod1-iwb-kydex-holster-system-custom-right-hand-sig-p365-xmacro-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mod1-iwb-kydex-holster-system-custom-right-hand-sig-p365-xmacro-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=mod1-iwb-kydex-holster-system-custom-right-hand-sig-p365-xmacro-1"><img alt="mod1-iwb-kydex-holster-system-custom-right-hand-sig-p365-xmacro-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mod1-iwb-kydex-holster-system-custom-right-hand-sig-p365-xmacro-1/public"/></a></div>
 
 I've been using C&G Holsters for quite some time now, and I'm really impressed with the quality and comfort they provide. The customized fit, designed specifically for my firearm, has made a huge difference in how I carry my weapon.
 
@@ -122,9 +122,9 @@ In terms of usability, C&G Holsters offer ease of use due to their proprietary m
 
 Overall, my experience with C&G Holsters has been exceptional - they are made with high-quality materials built to last while providing excellent concealment options tailored specifically for you! If you are looking for an effective Kydex holster option that you can count on day after day - give C&G Holsters a try!
 
-### [IWB Kydex Holster for Glock 19 & 19X - Adjustable & Secure](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [IWB Kydex Holster for Glock 19 & 19X - Adjustable & Secure](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=iwb-kydex-holster-for-glock-19-19x-adjustable-secure)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glock-19-19x-iwb-left-handed-holster-by-we-the-people-holsters-camo-kydex-adjustable-secure-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-19-19x-iwb-left-handed-holster-by-we-the-people-holsters-camo-kydex-adjustable-secure-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=glock-19-19x-iwb-left-handed-holster-by-we-the-people-holsters-camo-kydex-adjustable-secure-1"><img alt="glock-19-19x-iwb-left-handed-holster-by-we-the-people-holsters-camo-kydex-adjustable-secure-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-19-19x-iwb-left-handed-holster-by-we-the-people-holsters-camo-kydex-adjustable-secure-1/public"/></a></div>
 
 After carrying my Glock 19 in the IWB holster by We The People Holsters for a couple of weeks, I've noticed that it's become an essential part of my everyday carry routine. The Kydex material is sturdy yet lightweight, making it comfortable to wear all day long without any discomfort.
 
@@ -134,9 +134,9 @@ However, one downside I've experienced is with the sweat guard feature which did
 
 Overall, I would recommend this Glock 19 IWB Holster by We The People Holsters for anyone looking for a reliable and comfortable concealed carry option that provides excellent adjustability options at an affordable price point - just keep in mind its shortcomings when it comes to dealing with excessive perspiration.
 
-### [Secure IWB Holster for Glock 43/43X with Adjustable Retention & Ride](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Secure IWB Holster for Glock 43/43X with Adjustable Retention & Ride](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=secure-iwb-holster-for-glock-4343x-with-adjustable-retention-ride)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glock-43-43x-iwb-right-handed-holster-by-we-the-people-holsters-black-kydex-adjustable-secure-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-43-43x-iwb-right-handed-holster-by-we-the-people-holsters-black-kydex-adjustable-secure-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=glock-43-43x-iwb-right-handed-holster-by-we-the-people-holsters-black-kydex-adjustable-secure-1"><img alt="glock-43-43x-iwb-right-handed-holster-by-we-the-people-holsters-black-kydex-adjustable-secure-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-43-43x-iwb-right-handed-holster-by-we-the-people-holsters-black-kydex-adjustable-secure-1/public"/></a></div>
 
 I recently started using the Glock 43/43X IWB Right-Handed Holster by We The People Holsters, and I must say that it has quickly become one of my favorite holsters for concealed carry. The high-quality Kydex material used in its construction ensures that it maintains a thin profile, which helps with maximum concealment under various types of clothing. Additionally, the material is comfortable to wear all day long, making it perfect for those long days at work or outings on weekends.
 
@@ -148,9 +148,9 @@ A unique aspect about this product compared other similar ones on market today w
 
 Overall though minor downside could point towards slightly higher price range compared basic leather alternatives available elsewhere; however considering overall quality craftsmanship materials used combined wth additional benefits mentioned previously (customizability comfort factor among others) easily justify spend ultimately getting peace mind knowing well protected carrying weapon securely discreetly fashion possible makes difference world difference here. . . So if looking reliable versatile option look further than Glock 43/43X IWB Right-Handed Holster We The People Holsters – highly recommend giving try see what talking about yourself! !
 
-### [Comfortable Concealed Carry Kydex Mag Holster for M&P 10/45 (Double Stack)](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Comfortable Concealed Carry Kydex Mag Holster for M&P 10/45 (Double Stack)](https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=comfortable-concealed-carry-kydex-mag-holster-for-mp-1045-double-stack)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="universal-iwb-owb-compatible-single-kydex-magazine-holder-custom-mp-10-45-double-stack-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/universal-iwb-owb-compatible-single-kydex-magazine-holder-custom-mp-10-45-double-stack-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=universal-iwb-owb-compatible-single-kydex-magazine-holder-custom-mp-10-45-double-stack-1"><img alt="universal-iwb-owb-compatible-single-kydex-magazine-holder-custom-mp-10-45-double-stack-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/universal-iwb-owb-compatible-single-kydex-magazine-holder-custom-mp-10-45-double-stack-1/public"/></a></div>
 
 After using this Inside the Waistband (IWB) Kydex Mag Holster for several months, I can confidently say that it is one of the best and most comfortable concealed carry options available. The holster's design prioritizes both comfort and concealability, making it easy to wear all day long without any issues. Additionally, the adjustable retention screws offer a level of customization that ensures my magazines stay securely in place while still allowing for a smooth draw when needed.
 
@@ -162,7 +162,7 @@ In conclusion, despite these minor shortcomings, this National Tactical Officers
 
 ## Buyer's Guide
 
-<div><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/LaserMax+Holsters-2/public" alt="LaserMax Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=lasermax-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/LaserMax+Holsters-2/public" alt="LaserMax Holsters-2"></a></div>
 
 ### Features of LaserMax Holsters
 
@@ -188,7 +188,7 @@ Before making a purchase, consider the following factors when selecting the best
 
 - Comfort: Make sure the chosen holster is comfortable to wear, especially if you plan on carrying it for extended periods.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/LaserMax+Holsters-3/public" alt="LaserMax Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=lasermax-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/LaserMax+Holsters-3/public" alt="LaserMax Holsters-3"></a></div>
 
 ### General Advice for Using LaserMax Holsters
 
@@ -204,7 +204,7 @@ To ensure optimal performance and safety when using LaserMax Holsters, keep the 
 
 ## FAQ
 
-<div><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/LaserMax+Holsters-4/public" alt="LaserMax Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=lasermax-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/LaserMax+Holsters-4/public" alt="LaserMax Holsters-4"></a></div>
 
 ### What is a LaserMax Holster?
 
@@ -222,7 +222,7 @@ LaserMax Holsters come in various designs and models to suit different firearms 
 
 - Concealed Carry Holsters
 
-<div><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/LaserMax+Holsters-5/public" alt="LaserMax Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=lasermax-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/LaserMax+Holsters-5/public" alt="LaserMax Holsters-5"></a></div>
 
 ### How do I choose the right LaserMax Holster for my firearm?
 
@@ -240,7 +240,7 @@ Choosing the right LaserMax Holster depends on several factors such as the type 
 
 LaserMax Holsters are specifically designed to be compatible with LaserMax laser sights. However, it's essential to ensure that the holster you choose is suitable for your specific firearm and laser sight model.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/LaserMax+Holsters-6/public" alt="LaserMax Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/lasermax-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lasermax-holsters&utm_term=lasermax-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/LaserMax+Holsters-6/public" alt="LaserMax Holsters-6"></a></div>
 
 ### How do I properly install a LaserMax Holster?
 

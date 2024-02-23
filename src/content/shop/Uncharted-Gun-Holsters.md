@@ -16,33 +16,33 @@ Feeling the weight of your firearm on your hip can be a reassuring sensation, bu
 
 ## The Top 10 Best Uncharted Gun Holsters
 
-1. [Urban Carry LockLeather OWB Combo Holster with Magazine Pouch](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The LockLeather OWB+Mag Holster is a versatile and comfortable leather holster designed to fit single or double-stack caliber magazines securely for seamless concealed or open carry, perfect for everyday use and rigorous activities.
+1. [Urban Carry LockLeather OWB Combo Holster with Magazine Pouch](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=urban-carry-lockleather-owb-combo-holster-with-magazine-pouch) - The LockLeather OWB+Mag Holster is a versatile and comfortable leather holster designed to fit single or double-stack caliber magazines securely for seamless concealed or open carry, perfect for everyday use and rigorous activities.
 
-2. [Custom Comfort Flex Holster for S&W M&P Shield](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The VersaCarry Comfort Flex Deluxe IWB Holster offers a comfortable and secure inside-the-waistband carry solution with custom-molded polymer front, closed-cell foam padding, and adjustable draw tension for optimal concealed firearm protection.
+2. [Custom Comfort Flex Holster for S&W M&P Shield](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=custom-comfort-flex-holster-for-sw-mp-shield) - The VersaCarry Comfort Flex Deluxe IWB Holster offers a comfortable and secure inside-the-waistband carry solution with custom-molded polymer front, closed-cell foam padding, and adjustable draw tension for optimal concealed firearm protection.
 
-3. [Alien Gear ShapeShift Modular Holster System](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Get versatile with the Alien Gear ShapeShift Core Carry Pack, offering easy conversion between IWB, Appendix, OWB belt slide, and OWB paddle holsters, all built to last and made in the USA.
+3. [Alien Gear ShapeShift Modular Holster System](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=alien-gear-shapeshift-modular-holster-system) - Get versatile with the Alien Gear ShapeShift Core Carry Pack, offering easy conversion between IWB, Appendix, OWB belt slide, and OWB paddle holsters, all built to last and made in the USA.
 
-4. [Leapers UTG Law Enforcement Reversible Shoulder Holster](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience seamless concealed carry with Leapers UTG Law Enforcement Reversible Shoulder Holster-Blk, the perfect blend of affordability and quality, providing comfort, adjustability, and secure fitment for most compact to full size pistols.
+4. [Leapers UTG Law Enforcement Reversible Shoulder Holster](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=leapers-utg-law-enforcement-reversible-shoulder-holster) - Experience seamless concealed carry with Leapers UTG Law Enforcement Reversible Shoulder Holster-Blk, the perfect blend of affordability and quality, providing comfort, adjustability, and secure fitment for most compact to full size pistols.
 
-5. [Alien Gear ShapeShift Modular Holster System for 1911 5" Government](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Alien Gear ShapeShift Holster D Core Carry Pack is a versatile and transformable holster system that easily adapts to four distinct carrying styles for a comfortable, secure, and adaptive concealed carry experience.
+5. [Alien Gear ShapeShift Modular Holster System for 1911 5" Government](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=alien-gear-shapeshift-modular-holster-system-for-1911-5-government) - The Alien Gear ShapeShift Holster D Core Carry Pack is a versatile and transformable holster system that easily adapts to four distinct carrying styles for a comfortable, secure, and adaptive concealed carry experience.
 
-6. [Rough Rider Optics Compatible OWB Holster](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Versacarry Rough Rider OWB RH Holster is a premium, optics-compatible leather holster designed for comfort, support, and minimal break-in time, fitting Glock 42 and similar handguns.
+6. [Rough Rider Optics Compatible OWB Holster](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=rough-rider-optics-compatible-owb-holster) - The Versacarry Rough Rider OWB RH Holster is a premium, optics-compatible leather holster designed for comfort, support, and minimal break-in time, fitting Glock 42 and similar handguns.
 
-7. [Comfortable and Retention Uncle Mike's Off-Duty and Concealment Pro-Pak Nylon Horizontal Shoulder Holster, Black](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience a comfortable, secure and lightweight Off-Duty and Concealment Pro-Pak Nylon Horizontal Shoulder Holster from Uncle Mike's, perfect for discreet and swift access to your firearm while jogging or during off-duty hours.
+7. [Comfortable and Retention Uncle Mike's Off-Duty and Concealment Pro-Pak Nylon Horizontal Shoulder Holster, Black](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=comfortable-and-retention-uncle-mikes-off-duty-and-concealment-pro-pak-nylon-horizontal-shoulder-holster-black) - Experience a comfortable, secure and lightweight Off-Duty and Concealment Pro-Pak Nylon Horizontal Shoulder Holster from Uncle Mike's, perfect for discreet and swift access to your firearm while jogging or during off-duty hours.
 
-8. [Guardian Arc Angel OWB Holster](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Versacarry Guardian Arc Angel OWB Holster (Size 3) provides a comfortable, reliable, and secure way to carry your firearm, featuring water buffalo leather and Flex Vent Technology for added flexibility and ventilation.
+8. [Guardian Arc Angel OWB Holster](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=guardian-arc-angel-owb-holster) - The Versacarry Guardian Arc Angel OWB Holster (Size 3) provides a comfortable, reliable, and secure way to carry your firearm, featuring water buffalo leather and Flex Vent Technology for added flexibility and ventilation.
 
-9. [Versacarry Trooper Adjustable Thumb Break Holster](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Unveil the Versacarry Trooper Holster, a masterfully crafted OWB size 2 model that boasts a comfy, secure, and expedited break-in design, making your draw a breeze.
+9. [Versacarry Trooper Adjustable Thumb Break Holster](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=versacarry-trooper-adjustable-thumb-break-holster) - Unveil the Versacarry Trooper Holster, a masterfully crafted OWB size 2 model that boasts a comfy, secure, and expedited break-in design, making your draw a breeze.
 
-10. [Uncharted" Alien Gear Roswell IWB Holster for M&P9/40 Shield/M.20/Plus](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Alien Gear Holsters Roswell IWB Holster is a high-quality, American-made concealed carry holster, perfect for strong-side or appendix carry, featuring adjustable grip angle, ride height, and comes with a carry claw and muzzle wedge.
+10. [Uncharted" Alien Gear Roswell IWB Holster for M&P9/40 Shield/M.20/Plus](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=uncharted-alien-gear-roswell-iwb-holster-for-mp940-shieldm20plus) - The Alien Gear Holsters Roswell IWB Holster is a high-quality, American-made concealed carry holster, perfect for strong-side or appendix carry, featuring adjustable grip angle, ride height, and comes with a carry claw and muzzle wedge.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Urban Carry LockLeather OWB Combo Holster with Magazine Pouch](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Urban Carry LockLeather OWB Combo Holster with Magazine Pouch](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=urban-carry-lockleather-owb-combo-holster-with-magazine-pouch)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="lockleather-owbmag-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lockleather-owbmag-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=lockleather-owbmag-holster-1"><img alt="lockleather-owbmag-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lockleather-owbmag-holster-1/public"/></a></div>
 
 I've been using the Urban Carry LockLeather Combo holster on a daily basis and I must say that its design is both practical and comfortable. The leather is smooth yet tough, allowing it to snugly wrap around my waist without any discomfort or snagging. Despite being well-made, it effectively conceals my firearm so there are no visible bulges or lines under my clothing.
 
@@ -50,9 +50,9 @@ The retention clip is a standout feature, offering unmatched security for my gun
 
 Overall, this has been an excellent product choice that offers safety, convenience and style without compromising comfort. While there might be some minor imperfections depending on personal preferences, they are easily resolved and don't take away from the overall quality of the holster. I would definitely recommend this to others looking for an efficient and dependable holster for everyday use.
 
-### [Custom Comfort Flex Holster for S&W M&P Shield](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Custom Comfort Flex Holster for S&W M&P Shield](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=custom-comfort-flex-holster-for-sw-mp-shield)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="versacarry-comfort-flex-custom-holster-iwb-sw-mp-shield-brwn-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/versacarry-comfort-flex-custom-holster-iwb-sw-mp-shield-brwn-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=versacarry-comfort-flex-custom-holster-iwb-sw-mp-shield-brwn-1"><img alt="versacarry-comfort-flex-custom-holster-iwb-sw-mp-shield-brwn-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/versacarry-comfort-flex-custom-holster-iwb-sw-mp-shield-brwn-1/public"/></a></div>
 
 I recently had the chance to try out the VersaCarry Comfort Flex Custom IWB holster for my Smith & Wesson M&P Shield. This holster is designed to be worn inside the waistband, providing both concealment and comfort. It's been a game-changer for me in terms of carrying my firearm discreetly and comfortably.
 
@@ -62,9 +62,9 @@ However, one downside I've noticed is that the holster tends to scratch the slid
 
 Overall, I've had a positive experience with the VersaCarry Comfort Flex Custom IWB holster. It provides excellent concealment and comfort, making it a great choice for anyone looking to carry their firearm discreetly and securely.
 
-### [Alien Gear ShapeShift Modular Holster System](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Alien Gear ShapeShift Modular Holster System](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=alien-gear-shapeshift-modular-holster-system)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="alien-gear-shapeshift-holster-d-core-carry-pack-glock-20" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alien-gear-shapeshift-holster-d-core-carry-pack-glock-20/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=alien-gear-shapeshift-holster-d-core-carry-pack-glock-20"><img alt="alien-gear-shapeshift-holster-d-core-carry-pack-glock-20" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alien-gear-shapeshift-holster-d-core-carry-pack-glock-20/public"/></a></div>
 
 The Alien Gear ShapeShift Holster D Core Carry Pack is my go-to accessory for my 1911 5" Government. This modular system is perfect for those who like to switch things up and try different carry positions throughout the day. With just a few quick adjustments, I can easily transform the ShapeShift from an IWB holster for casual outings to an OWB paddle holster for more active pursuits.
 
@@ -74,9 +74,9 @@ On the positive side, though, the Alien Gear ShapeShift is made in the USA, whic
 
 In conclusion, while the Alien Gear ShapeShift Holster D Core Carry Pack offers a lot of flexibility in terms of carrying positions, it may not be the most comfortable or practical option for everyone. If you're open to trying out various carrying styles and are okay with a slightly bulky design, this product might be worth considering. But if you prioritize comfort and convenience above all else, it might be best to keep looking.
 
-### [Leapers UTG Law Enforcement Reversible Shoulder Holster](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Leapers UTG Law Enforcement Reversible Shoulder Holster](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=leapers-utg-law-enforcement-reversible-shoulder-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="leapers-utg-law-enforcement-reversible-shoulder-holster-blk-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/leapers-utg-law-enforcement-reversible-shoulder-holster-blk-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=leapers-utg-law-enforcement-reversible-shoulder-holster-blk-1"><img alt="leapers-utg-law-enforcement-reversible-shoulder-holster-blk-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/leapers-utg-law-enforcement-reversible-shoulder-holster-blk-1/public"/></a></div>
 
 When I first got my hands on the Leapers UTG Law Enforcement Reversible Shoulder Holster, I was instantly impressed by its quality and versatility. This bad boy is perfect for anyone looking for a reliable and comfortable way to carry their sidearm.
 
@@ -90,9 +90,9 @@ However, there is one downside – the vertical belt straps can be a bit cumbers
 
 Overall, I would highly recommend the Leapers UTG Law Enforcement Reversible Shoulder Holster for anyone in need of a solid, comfortable, and versatile airsoft gun holster.
 
-### [Alien Gear ShapeShift Modular Holster System for 1911 5" Government](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Alien Gear ShapeShift Modular Holster System for 1911 5" Government](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=alien-gear-shapeshift-modular-holster-system-for-1911-5-government)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="alien-gear-shapeshift-holster-d-core-carry-pack-1911-5-government-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alien-gear-shapeshift-holster-d-core-carry-pack-1911-5-government-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=alien-gear-shapeshift-holster-d-core-carry-pack-1911-5-government-1"><img alt="alien-gear-shapeshift-holster-d-core-carry-pack-1911-5-government-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alien-gear-shapeshift-holster-d-core-carry-pack-1911-5-government-1/public"/></a></div>
 
 I recently got my hands on the Alien Gear ShapeShift Holster D Core Carry Pack for my 1911 5" Government, and let me tell you, it's been quite an experience. I've always been a fan of products made in the USA, so that was a big plus for me. What really impressed me was how easily I could transform this holster into different carrying positions: IWB, appendix carry, OWB belt slide, and OWB paddle. It's like having four holsters in one!
 
@@ -100,9 +100,9 @@ The inclusion of the Holster Mount is a game-changer as well. It allows me to at
 
 Another issue some users might face is the thumb release on the holster. It seems a bit wobbly and hard to push down when you need to use it. Despite these minor drawbacks, I still think the Alien Gear ShapeShift Holster D Core Carry Pack is a solid choice for those looking for a versatile and modular holster for their 1911 5" Government.
 
-### [Rough Rider Optics Compatible OWB Holster](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Rough Rider Optics Compatible OWB Holster](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=rough-rider-optics-compatible-owb-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="versacarry-vc-rough-rider-owb-rh-optics-compatible-sub-comp-brown-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/versacarry-vc-rough-rider-owb-rh-optics-compatible-sub-comp-brown-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=versacarry-vc-rough-rider-owb-rh-optics-compatible-sub-comp-brown-1"><img alt="versacarry-vc-rough-rider-owb-rh-optics-compatible-sub-comp-brown-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/versacarry-vc-rough-rider-owb-rh-optics-compatible-sub-comp-brown-1/public"/></a></div>
 
 As a first time holster user, I have been thoroughly impressed with the Versacarry Rough Rider Holster. This holster stands out for its comfort and support due to the double ply backing. Its forward cant design ensures minimal print, and the leather is vegetable tanned, giving it an authentic look while maintaining durability.
 
@@ -110,9 +110,9 @@ It's been a breeze adjusting this holster to my Glock 42, and it's compatible wi
 
 On the downside, it doesn't cater to left-handed shooters. In addition, it took a while to break in the leather, but it's a small trade-off for the comfort and functionality this holster provides. Overall, it's definitely a product worth considering especially if you're in the market for a reliable and practical holster.
 
-### [Comfortable and Retention Uncle Mike's Off-Duty and Concealment Pro-Pak Nylon Horizontal Shoulder Holster, Black](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Comfortable and Retention Uncle Mike's Off-Duty and Concealment Pro-Pak Nylon Horizontal Shoulder Holster, Black](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=comfortable-and-retention-uncle-mikes-off-duty-and-concealment-pro-pak-nylon-horizontal-shoulder-holster-black)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="uncle-mikes-off-duty-and-concealment-pro-pak-nylon-horizontal-shoulder-holster-size-1-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/uncle-mikes-off-duty-and-concealment-pro-pak-nylon-horizontal-shoulder-holster-size-1-black-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=uncle-mikes-off-duty-and-concealment-pro-pak-nylon-horizontal-shoulder-holster-size-1-black-1"><img alt="uncle-mikes-off-duty-and-concealment-pro-pak-nylon-horizontal-shoulder-holster-size-1-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/uncle-mikes-off-duty-and-concealment-pro-pak-nylon-horizontal-shoulder-holster-size-1-black-1/public"/></a></div>
 
 I recently got my hands on Uncle Mike's Off-Duty and Concealment Pro-Pak Nylon Horizontal Shoulder Holster. As someone who's always on the lookout for versatile and comfortable carry options, I was excited to give this one a try.
 
@@ -124,9 +124,9 @@ However, there were some drawbacks to this product as well. The offside tie-down
 
 Despite these minor inconveniences, I still find the Uncle Mike's Pro-Pak Nylon Horizontal Shoulder Holster to be a solid option for those in the market for a shoulder holster. Just keep in mind that it might not be the perfect fit for everyone, so it's always important to do your research and consider your individual needs and preferences before making a purchase.
 
-### [Guardian Arc Angel OWB Holster](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Guardian Arc Angel OWB Holster](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=guardian-arc-angel-owb-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="versacarry-guardian-arc-angel-outside-the-waistband-holster-size-3-made-in-usa-uga3brn-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/versacarry-guardian-arc-angel-outside-the-waistband-holster-size-3-made-in-usa-uga3brn-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=versacarry-guardian-arc-angel-outside-the-waistband-holster-size-3-made-in-usa-uga3brn-1"><img alt="versacarry-guardian-arc-angel-outside-the-waistband-holster-size-3-made-in-usa-uga3brn-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/versacarry-guardian-arc-angel-outside-the-waistband-holster-size-3-made-in-usa-uga3brn-1/public"/></a></div>
 
 As a reviewer, I've been using the Versacarry Guardian Arc Angel Outside The Waistband Holster (Size 3) in my daily life and I must say, it's been a game-changer. The combination of distressed brown and black water buffalo leather not only looks stylish but also feels incredibly comfortable against my body. The double-ply raised backing with Flex Vent Technology ensures easy adjustments and a nice grip, making it a pleasure to wear all day long.
 
@@ -136,9 +136,9 @@ In terms of cons, there are none that come to mind immediately. Perhaps some mig
 
 Overall, the Versacarry Guardian Arc Angel Outside The Waistband Holster (Size 3) has been a fantastic addition to my daily carry gear, and I would highly recommend it to anyone looking for a reliable, comfortable, and stylish way to carry their firearm.
 
-### [Versacarry Trooper Adjustable Thumb Break Holster](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Versacarry Trooper Adjustable Thumb Break Holster](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=versacarry-trooper-adjustable-thumb-break-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="versacarry-trooper-holster-owb-thumb-break-size-2-grey-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/versacarry-trooper-holster-owb-thumb-break-size-2-grey-black-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=versacarry-trooper-holster-owb-thumb-break-size-2-grey-black-1"><img alt="versacarry-trooper-holster-owb-thumb-break-size-2-grey-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/versacarry-trooper-holster-owb-thumb-break-size-2-grey-black-1/public"/></a></div>
 
 I have been using the Versacarry Trooper Holster for quite some time now, and I must say, it's been quite a journey. The first thing that caught my eye about this product is its unique design - it's crafted with vegetable-tanned water buffalo leather, which not only gives it a sophisticated look but also ensures durability.
 
@@ -150,9 +150,9 @@ However, one thing to note is that this holster is not ambidextrous, meaning it'
 
 Overall, I am extremely happy with my purchase of the Versacarry Trooper Holster. Its combination of comfort, durability, and functionality makes it a must-have for anyone looking for a reliable and stylish holster.
 
-### [Uncharted" Alien Gear Roswell IWB Holster for M&P9/40 Shield/M.20/Plus](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Uncharted" Alien Gear Roswell IWB Holster for M&P9/40 Shield/M.20/Plus](https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=uncharted-alien-gear-roswell-iwb-holster-for-mp940-shieldm20plus)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="alien-gear-holsters-roswell-iwb-holster-mp9-40-shield-m-20-plus-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alien-gear-holsters-roswell-iwb-holster-mp9-40-shield-m-20-plus-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=alien-gear-holsters-roswell-iwb-holster-mp9-40-shield-m-20-plus-1"><img alt="alien-gear-holsters-roswell-iwb-holster-mp9-40-shield-m-20-plus-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alien-gear-holsters-roswell-iwb-holster-mp9-40-shield-m-20-plus-1/public"/></a></div>
 
 I've recently been using this Alien Gear Holster, and I must say that it's been quite an experience. The Roswell IWB Holster is great for concealed carry, especially because of its hardy injection-molded shell, which provides a snug fit for my handgun. It's designed for either strong-side or appendix carry, which gives me flexibility in terms of personal preference and body type.
 
@@ -166,7 +166,7 @@ All in all, I've had a satisfactory experience using the Alien Gear Holsters Ros
 
 ### Important Features to Consider
 
-<div><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Uncharted+Gun+Holsters-2/public" alt="Uncharted Gun Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=uncharted-gun-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Uncharted+Gun+Holsters-2/public" alt="Uncharted Gun Holsters-2"></a></div>
 
 When looking for an uncharted gun holster, there are certain features that you should pay close attention to:
 
@@ -198,7 +198,7 @@ Uncharted gun holsters come in a variety of materials, each offering its own ben
 
 - Nylon: Affordable, lightweight, and breathable, nylon holsters are a good option for those on a budget or those who live in warmer climates.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Uncharted+Gun+Holsters-3/public" alt="Uncharted Gun Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=uncharted-gun-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Uncharted+Gun+Holsters-3/public" alt="Uncharted Gun Holsters-3"></a></div>
 
 ### General Advice for Uncharted Gun Holster Shoppers
 
@@ -214,7 +214,7 @@ When shopping for an uncharted gun holster, keep these tips in mind:
 
 ### What are the benefits of using a gun holster?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Uncharted+Gun+Holsters-4/public" alt="Uncharted Gun Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=uncharted-gun-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Uncharted+Gun+Holsters-4/public" alt="Uncharted Gun Holsters-4"></a></div>
 
 A gun holster provides secure storage for your firearm while also allowing quick and easy access when needed. Holsters help in protecting the trigger and ensuring that your gun is ready to fire at all times. Additionally, they can assist in concealing the presence of a firearm when necessary, improving overall safety and responsibility during usage.
 
@@ -226,7 +226,7 @@ Gun holsters are usually made from materials such as leather, nylon, Kydex (a th
 
 Yes, there are numerous types of gun holsters designed for different purposes and carrying preferences. Some common types include Inside-the-Waistband (IWB), Outside-the-Waistband (OWB), Pocket Holsters, Ankle Holsters, Shoulder Holsters, and Belly Bands. Each type offers unique benefits based on your specific requirements or intended application.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Uncharted+Gun+Holsters-5/public" alt="Uncharted Gun Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=uncharted-gun-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Uncharted+Gun+Holsters-5/public" alt="Uncharted Gun Holsters-5"></a></div>
 
 ### How do I choose the right gun holster for me?
 
@@ -238,7 +238,7 @@ The requirements for carrying a gun holster vary depending on your location and 
 
 ### How should I care for and maintain my gun holster?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Uncharted+Gun+Holsters-6/public" alt="Uncharted Gun Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/uncharted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=uncharted-gun-holsters&utm_term=uncharted-gun-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Uncharted+Gun+Holsters-6/public" alt="Uncharted Gun Holsters-6"></a></div>
 
 Proper care and maintenance of your gun holster will ensure its longevity and optimal performance. Regularly clean and condition leather holsters to prevent drying and cracking, and use a damp cloth to wipe down synthetic materials. Avoid exposing your holster to excessive moisture, chemicals, or extreme temperatures, as these can cause damage. Inspect your holster regularly for signs of wear or damage, and replace it as needed to ensure safety and functionality.
 

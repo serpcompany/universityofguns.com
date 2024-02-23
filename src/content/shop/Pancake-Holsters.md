@@ -16,29 +16,29 @@ Welcome to our comprehensive guide on Pancake Holsters! These lightweight, comfo
 
 ## The Top 8 Best Pancake Holsters
 
-1. [Dual Position Phoenix Gun Holster for S&W L FR 19](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Galco PHX124 Dual Position Phoenix Gun Holster is a premium leather, versatile holster designed for S&W N FR 0.44 Model, providing strong side or crossdraw options for comfort and functionality.
+1. [Dual Position Phoenix Gun Holster for S&W L FR 19](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=dual-position-phoenix-gun-holster-for-sw-l-fr-19) - The Galco PHX124 Dual Position Phoenix Gun Holster is a premium leather, versatile holster designed for S&W N FR 0.44 Model, providing strong side or crossdraw options for comfort and functionality.
 
-2. [Blade-Tech Signature OWB Holster for S&W M&P 2.0 9/40/45](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience premium build and performance with the USA-made Blade-Tech Signature OWB Holster for S&W M&P 2.0 9/40/45, featuring adjustable retention, positive locking trigger guard, and precision molding for exceptional fit and quick draw.
+2. [Blade-Tech Signature OWB Holster for S&W M&P 2.0 9/40/45](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=blade-tech-signature-owb-holster-for-sw-mp-20-94045) - Experience premium build and performance with the USA-made Blade-Tech Signature OWB Holster for S&W M&P 2.0 9/40/45, featuring adjustable retention, positive locking trigger guard, and precision molding for exceptional fit and quick draw.
 
-3. [Ultimate Belly Band Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - ComfortTac Belly Band Holster: The #1 Best Selling Gun Holster with Active Retention technology for smooth, muscle-memory-free draws, customizable fit, and versatile use for ultimate protection and comfort.
+3. [Ultimate Belly Band Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=ultimate-belly-band-holster-for-concealed-carry) - ComfortTac Belly Band Holster: The #1 Best Selling Gun Holster with Active Retention technology for smooth, muscle-memory-free draws, customizable fit, and versatile use for ultimate protection and comfort.
 
-4. [1911 3.5" Officer OWB Holster - Secure, Durable & Custom Fit](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Step 1: Analyze the product information and highlights
+4. [1911 3.5" Officer OWB Holster - Secure, Durable & Custom Fit](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=1911-35-officer-owb-holster-secure-durable-custom-fit) - Step 1: Analyze the product information and highlights
 
-5. [Slim and Discreet IWB Holster for Ruger LCP](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - With a sleek design and secure fit, the Blade-Tech Klipt IWB Holster for the Ruger LCP delivers unmatched comfort and retention for all-day IWB carry, suitable for everyday concealed carry.
+5. [Slim and Discreet IWB Holster for Ruger LCP](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=slim-and-discreet-iwb-holster-for-ruger-lcp) - With a sleek design and secure fit, the Blade-Tech Klipt IWB Holster for the Ruger LCP delivers unmatched comfort and retention for all-day IWB carry, suitable for everyday concealed carry.
 
-6. [Secure and Comfortable OWB Holster for Sig P320 XFIVE](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Signature OWB Holster for Sig - P320 XFIVE is a highly-rated, adjustable retention holster made with heat resistant polymer in the USA, featuring a positive locking trigger guard and IDPA legal optic ready speed cut for quick draw action.
+6. [Secure and Comfortable OWB Holster for Sig P320 XFIVE](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=secure-and-comfortable-owb-holster-for-sig-p320-xfive) - The Blade-Tech Signature OWB Holster for Sig - P320 XFIVE is a highly-rated, adjustable retention holster made with heat resistant polymer in the USA, featuring a positive locking trigger guard and IDPA legal optic ready speed cut for quick draw action.
 
-7. [Glock 17/22/31/47 Signature OWB Holster - USA Made, Adjustable Retention and IDPA Legal Speed Cut](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the perfect blend of security and speed with Blade-Tech's Signature OWB Holster for the Glock 17/22/31/47, designed for durability, precise fit, and quick draw capabilities.
+7. [Glock 17/22/31/47 Signature OWB Holster - USA Made, Adjustable Retention and IDPA Legal Speed Cut](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=glock-17223147-signature-owb-holster-usa-made-adjustable-retention-and-idpa-legal-speed-cut) - Experience the perfect blend of security and speed with Blade-Tech's Signature OWB Holster for the Glock 17/22/31/47, designed for durability, precise fit, and quick draw capabilities.
 
-8. [Digital Leather Holster Pattern for Smith Wesson MP Shield 9/40](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Easy-to-follow PDF digital pattern for DIY Smith & Wesson MP Shield 9/40 pancake-style leather holster, with additional tools and supplies available on Adams Leatherworks site.
+8. [Digital Leather Holster Pattern for Smith Wesson MP Shield 9/40](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=digital-leather-holster-pattern-for-smith-wesson-mp-shield-940) - Easy-to-follow PDF digital pattern for DIY Smith & Wesson MP Shield 9/40 pancake-style leather holster, with additional tools and supplies available on Adams Leatherworks site.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Dual Position Phoenix Gun Holster for S&W L FR 19](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Dual Position Phoenix Gun Holster for S&W L FR 19](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=dual-position-phoenix-gun-holster-for-sw-l-fr-19)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="galco-phx114-dual-position-phoenix-gun-holster-for-sw-l-fr-19-right-tan-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/galco-phx114-dual-position-phoenix-gun-holster-for-sw-l-fr-19-right-tan-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=galco-phx114-dual-position-phoenix-gun-holster-for-sw-l-fr-19-right-tan-1"><img alt="galco-phx114-dual-position-phoenix-gun-holster-for-sw-l-fr-19-right-tan-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/galco-phx114-dual-position-phoenix-gun-holster-for-sw-l-fr-19-right-tan-1/public"/></a></div>
 
 As an avid hunter, I was on the lookout for a reliable and versatile holster to improve my hunting experience. That's when I came across the Galco Dual Position Phoenix Belt, and after trying it out, I must say that it has exceeded my expectations. The premium saddle leather construction with silicone suede lining provides durability as well as comfort while using it. Its adjustable tension screw allows me to customize the fit according to my handgun size - a feature that makes a world of difference in practical use.
 
@@ -46,9 +46,9 @@ What really stands out about this holster is its ability to be worn either stron
 
 Another great aspect of this product is its stitched sight rails which have significantly protected both leather and sights from wear and tear during brushy hunts – making it an excellent choice for any outdoor enthusiast like myself! Having used it for several hunting trips now, I can confidently say that the Galco Dual Position Phoenix Belt is a high-quality sportsman's holster that combines top-notch craftsmanship with user convenience – making it stand apart from other products available in the market today!
 
-### [Blade-Tech Signature OWB Holster for S&W M&P 2.0 9/40/45](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Blade-Tech Signature OWB Holster for S&W M&P 2.0 9/40/45](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=blade-tech-signature-owb-holster-for-sw-mp-20-94045)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sw-mp-2-0-9-40-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-smit-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-mp-2-0-9-40-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-smit-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=sw-mp-2-0-9-40-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-smit-1"><img alt="sw-mp-2-0-9-40-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-smit-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-mp-2-0-9-40-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-smit-1/public"/></a></div>
 
 The BladeTech Signature OWB Holster for the S&W - M&P 2. 0 - 9/40/45 (4. 25" & 4. 6") is an excellent option for gun owners who prioritize safety and performance. The adjustable retention feature allows users to customize the fit of their firearm, ensuring that it stays secure in the holster while allowing easy access when needed. Made from high-strength heat resistant polymers in the USA, this holster is precision molded to provide a superior fit and enhance overall performance.
 
@@ -56,9 +56,9 @@ One standout feature is the positive locking trigger guard, which provides tacti
 
 Although some users may find that out-of-box retention feels slightly stiff, making adjustments with provided screws can resolve this issue easily. The various attachment options such as Tek-Lok Belt mount & TMMS systems also make it convenient to switch between belts or MOLLE attachments as needed without any hassle. Overall, this product offers great value and functionality for its price and has received high ratings from many satisfied customers who have noticed significant improvements in their firearm handling experience while using this product consistently over time!
 
-### [Ultimate Belly Band Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Ultimate Belly Band Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=ultimate-belly-band-holster-for-concealed-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="comforttac-belly-band-holster-right-hand-draw-size-xl-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/comforttac-belly-band-holster-right-hand-draw-size-xl-black-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=comforttac-belly-band-holster-right-hand-draw-size-xl-black-1"><img alt="comforttac-belly-band-holster-right-hand-draw-size-xl-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/comforttac-belly-band-holster-right-hand-draw-size-xl-black-1/public"/></a></div>
 
 ComfortTac's Ultimate Belly Band Holster is a fantastic option for anyone in the market for a comfortable and reliable gun holster. During my experience with this product, I was particularly impressed by the wide band and thick material, which ensured that I didn't experience any skin irritation.
 
@@ -68,9 +68,9 @@ However, one potential con could be the length of the strap, which may take some
 
 Overall, if you're looking for a comfortable and versatile belly band holster, I highly recommend trying out ComfortTac's Ultimate Belly Band Holster. With its many functional features and customizable fit, it will quickly become your go-to choice for concealed carry convenience. Just remember to spend some time adjusting it properly before use to ensure maximum comfort and ease of access!
 
-### [1911 3.5" Officer OWB Holster - Secure, Durable & Custom Fit](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [1911 3.5" Officer OWB Holster - Secure, Durable & Custom Fit](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=1911-35-officer-owb-holster-secure-durable-custom-fit)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="1911-3-5-officer-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-1911--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1911-3-5-officer-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-1911--1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=1911-3-5-officer-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-1911-1"><img alt="1911-3-5-officer-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-1911--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1911-3-5-officer-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-1911--1/public"/></a></div>
 
 After using the Blade-Tech Signature OWB Holster for my 1911 3. 5" Officer for a few months, I can confidently say it's a top-quality holster. Constructed from a strong proprietary blend of polymers, this OWB holster is both durable and rigid, allowing me to securely carry my firearm outside the waistband.
 
@@ -80,9 +80,9 @@ Another plus is its versatility with various belt attachments and compatibility 
 
 In summary, I highly recommend this product to anyone looking for a reliable OWB holster with great features at an affordable price point. Its precision molding guarantees optimal fitment, while its multiple key features make it suitable for competitive shooting, self-defense training, and safety carry alike.
 
-### [Slim and Discreet IWB Holster for Ruger LCP](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Slim and Discreet IWB Holster for Ruger LCP](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=slim-and-discreet-iwb-holster-for-ruger-lcp)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="blade-tech-in-the-waist-band-holster-for-ruger-lcp-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-in-the-waist-band-holster-for-ruger-lcp-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=blade-tech-in-the-waist-band-holster-for-ruger-lcp-1"><img alt="blade-tech-in-the-waist-band-holster-for-ruger-lcp-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-in-the-waist-band-holster-for-ruger-lcp-1/public"/></a></div>
 
 After using the Blade-Tech Klipt IWB Holster for my Ruger LCP for a few weeks, I have to say it's become my go-to holster. The slim and discreet design makes it easy to carry every day, and the high sweat guard effectively keeps my firearm off my body, providing comfort throughout the day.
 
@@ -92,9 +92,9 @@ The smooth edges and full-length sweat guard provide all-day comfort even when w
 
 Overall, while there may be some room for improvement with regards to material durability, this product stands out for its ease of use and ability to keep your firearm securely in place without any fuss or hassle.
 
-### [Secure and Comfortable OWB Holster for Sig P320 XFIVE](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Secure and Comfortable OWB Holster for Sig P320 XFIVE](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=secure-and-comfortable-owb-holster-for-sig-p320-xfive)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="blade-tech-signature-owb-outside-the-waistband-holster-sig-p320-xfive-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-signature-owb-outside-the-waistband-holster-sig-p320-xfive-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=blade-tech-signature-owb-outside-the-waistband-holster-sig-p320-xfive-1"><img alt="blade-tech-signature-owb-outside-the-waistband-holster-sig-p320-xfive-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-signature-owb-outside-the-waistband-holster-sig-p320-xfive-1/public"/></a></div>
 
 After using the Blade-Tech Signature Holster for my Glock-29, I can confidently say it's one of the best Outside the Waistband (OWB) holsters available on the market right now. It combines high-strength, heat resistant polymer with a unique 3-Screw attachment pattern that makes switching between belt and MOLLE attachments as smooth as butter. The adjustable retention feature allows me to customize the fit of my firearm, which comes in handy in different scenarios.
 
@@ -102,9 +102,9 @@ A standout feature is the positive locking trigger guard design providing tactil
 
 However, precision adjustments may not be possible since there are fixed cant options available for this particular model (forward or rearward). But overall, despite this minor limitation, it's still an excellent product performance-wise making it worth considering if you require something basic for home security or professional duty gear. With over 2279 reviews and a rating of 4. 8 stars, it's no doubt that BladeTech's signature series is worth checking out if you're in search for top quality holster solutions.
 
-### [Glock 17/22/31/47 Signature OWB Holster - USA Made, Adjustable Retention and IDPA Legal Speed Cut](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Glock 17/22/31/47 Signature OWB Holster - USA Made, Adjustable Retention and IDPA Legal Speed Cut](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=glock-17223147-signature-owb-holster-usa-made-adjustable-retention-and-idpa-legal-speed-cut)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glock-17-22-31-47-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g17--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-17-22-31-47-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g17--1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=glock-17-22-31-47-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g17-1"><img alt="glock-17-22-31-47-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g17--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-17-22-31-47-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g17--1/public"/></a></div>
 
 I've been using the Blade-Tech Signature OWB Holster for my Glock 17 and I am really impressed with its performance. It is made from a strong polymer blend, which makes it durable and rigid. The IDPA legal Optic Ready Speed Cut ensures compatibility with a variety of attachments, and the precision molding provides a custom fit for my firearm.
 
@@ -114,9 +114,9 @@ Although there is limited adjustment in terms of cant and ride height, this seem
 
 Overall, this holster has performed well for me, providing great engineering and quality without costing too much. The only issue I encountered was when attaching it to regular belt loops due to the secondary lock system in its new iteration which can be difficult without removing it beforehand or permanently swiveling it open instead; users should keep this in mind depending on their intended usage scenario. Nonetheless, Blade-Tech's excellent customer service alleviates any concerns that may arise regarding these few cons mentioned above - I would definitely consider buying similar products for other guns owned knowing full well they will serve their purpose admirably thanks to topnotch craftsmanship consistently delivering high performance results round-the-clock!
 
-### [Digital Leather Holster Pattern for Smith Wesson MP Shield 9/40](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Digital Leather Holster Pattern for Smith Wesson MP Shield 9/40](https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=digital-leather-holster-pattern-for-smith-wesson-mp-shield-940)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="pdf-digital-pattern-smith-wesson-mp-shield-9-40-pancake-style-leather-holster-pattern-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pdf-digital-pattern-smith-wesson-mp-shield-9-40-pancake-style-leather-holster-pattern-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=pdf-digital-pattern-smith-wesson-mp-shield-9-40-pancake-style-leather-holster-pattern-1"><img alt="pdf-digital-pattern-smith-wesson-mp-shield-9-40-pancake-style-leather-holster-pattern-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pdf-digital-pattern-smith-wesson-mp-shield-9-40-pancake-style-leather-holster-pattern-1/public"/></a></div>
 
 I recently tried out the Pancake Holsters PDF digital pattern for my leatherworking hobby. Purchasing the pattern was easy and it came with a comprehensive guide on how to create the holster. The materials list was also very helpful in sourcing my supplies.
 
@@ -126,7 +126,7 @@ Although I did face a minor challenge in finding space for engraving my client's
 
 ## Buyer's Guide
 
-<div><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Pancake+Holsters-2/public" alt="Pancake Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=pancake-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Pancake+Holsters-2/public" alt="Pancake Holsters-2"></a></div>
 
 ### What is a Pancake Holster?
 
@@ -142,7 +142,7 @@ A pancake holster is a type of gun holster. It is designed to carry your firearm
 
 - Comfort: A good holster will distribute the weight of your gun evenly and not cause discomfort when worn for extended periods.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Pancake+Holsters-3/public" alt="Pancake Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=pancake-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Pancake+Holsters-3/public" alt="Pancake Holsters-3"></a></div>
 
 ### Considerations Before Buying a Pancake Holster
 
@@ -162,7 +162,7 @@ A pancake holster is a type of gun holster. It is designed to carry your firearm
 
 - Choose Quality: Look for a reputable manufacturer with a track record of producing high-quality holsters. This can help ensure your holster provides optimal performance and longevity.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Pancake+Holsters-4/public" alt="Pancake Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=pancake-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Pancake+Holsters-4/public" alt="Pancake Holsters-4"></a></div>
 
 ## FAQ
 
@@ -170,7 +170,7 @@ A pancake holster is a type of gun holster. It is designed to carry your firearm
 
 Pancake Holsters are a type of firearm holster that gets its name due to its pancake-like shape. They were initially designed to keep the firearm secure and accessible while remaining concealed, often under clothes.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Pancake+Holsters-5/public" alt="Pancake Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=pancake-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Pancake+Holsters-5/public" alt="Pancake Holsters-5"></a></div>
 
 ### How do Pancake Holsters work?
 
@@ -184,7 +184,7 @@ Pancake Holsters work by encircling your gun, keeping it snug and secure. They u
 
 - They offer excellent retention, keeping your firearm securely in place even during activities like running or jumping.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Pancake+Holsters-6/public" alt="Pancake Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/pancake-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pancake-holsters&utm_term=pancake-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Pancake+Holsters-6/public" alt="Pancake Holsters-6"></a></div>
 
 ### What are the benefits of using a Pancake Holster?
 

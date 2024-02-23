@@ -16,37 +16,37 @@ Basket Weave Holsters offer a unique and stylish solution for gun aficionados an
 
 ## The Top 8 Best Basket Weave Holsters
 
-1. [Mid-Ride Level I Retention Duty Holster for Glock 22 Gen5](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Safariland 6390 ALS Mid Ride Level-I Retention Duty Holster is a secure and comfortable option for Glock 22 Gen5 users, featuring Automatic Locking System (ALS) and a suede lining for sight protection.
+1. [Mid-Ride Level I Retention Duty Holster for Glock 22 Gen5](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=mid-ride-level-i-retention-duty-holster-for-glock-22-gen5) - The Safariland 6390 ALS Mid Ride Level-I Retention Duty Holster is a secure and comfortable option for Glock 22 Gen5 users, featuring Automatic Locking System (ALS) and a suede lining for sight protection.
 
-2. [Dual Position Phoenix Holster for 1911 Pistols and Revolvers](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - All-round versatility and exceptional quality; Experience secure and comfortable concealed carry with the high-quality Galco Phoenix Belt Holster.
+2. [Dual Position Phoenix Holster for 1911 Pistols and Revolvers](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=dual-position-phoenix-holster-for-1911-pistols-and-revolvers) - All-round versatility and exceptional quality; Experience secure and comfortable concealed carry with the high-quality Galco Phoenix Belt Holster.
 
-3. [IWB Leather Holster for Sig Sauer P365 with Shield](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Get the Braids Holsters SIG SAUER P365 IWB Leather Holster in brown, designed for right-hand use and offering comfort with a sweat shield and heavy-duty steel clip.
+3. [IWB Leather Holster for Sig Sauer P365 with Shield](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=iwb-leather-holster-for-sig-sauer-p365-with-shield) - Get the Braids Holsters SIG SAUER P365 IWB Leather Holster in brown, designed for right-hand use and offering comfort with a sweat shield and heavy-duty steel clip.
 
-4. [Mid-Ride Level I Duty Holster for Handguns](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the Safariland 6390 ALS Mid-Ride Level I Retention Duty Holster—a reliable, secure, and high-capacity holster designed for your firearm, providing quick access and unwavering protection for your weapon in high-stress situations.
+4. [Mid-Ride Level I Duty Holster for Handguns](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=mid-ride-level-i-duty-holster-for-handguns) - Discover the Safariland 6390 ALS Mid-Ride Level I Retention Duty Holster—a reliable, secure, and high-capacity holster designed for your firearm, providing quick access and unwavering protection for your weapon in high-stress situations.
 
-5. [Handcrafted Basket Weave OWB Holster for Smith & Wesson 686 357 Magnum 2.5 Inch (R.H)](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience premium comfort and optimal concealment with this handcrafted, leather OWB holster, specifically designed for Smith & Wesson 686 357 Magnum 2.5-inch, in black tan right-hand orientation.
+5. [Handcrafted Basket Weave OWB Holster for Smith & Wesson 686 357 Magnum 2.5 Inch (R.H)](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=handcrafted-basket-weave-owb-holster-for-smith-wesson-686-357-magnum-25-inch-rh) - Experience premium comfort and optimal concealment with this handcrafted, leather OWB holster, specifically designed for Smith & Wesson 686 357 Magnum 2.5-inch, in black tan right-hand orientation.
 
-6. [Full-Size 357 Magnum Leather Basket Weave OWB Holster for Ruger Revolvers](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the perfect blend of function and style with the Ruger Revolver Full Size 357 Magnum Leather Basket Weave OWB Holster, handcrafted with genuine bull leather for exceptional durability and a sleek look.
+6. [Full-Size 357 Magnum Leather Basket Weave OWB Holster for Ruger Revolvers](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=full-size-357-magnum-leather-basket-weave-owb-holster-for-ruger-revolvers) - Experience the perfect blend of function and style with the Ruger Revolver Full Size 357 Magnum Leather Basket Weave OWB Holster, handcrafted with genuine bull leather for exceptional durability and a sleek look.
 
-7. [ALS Mid-Ride Duty Holster for Glock 37 with Basket Weave Design](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Safariland Model 6390 ALS Mid-Ride Level-I Duty Glock Holster is an innovative, secure and easy-to-use 5.0-rated holster for Glock 37 Right Hand users, offering Automatic Locking System (ALS) technology for hassle-free retention and quick access.
+7. [ALS Mid-Ride Duty Holster for Glock 37 with Basket Weave Design](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=als-mid-ride-duty-holster-for-glock-37-with-basket-weave-design) - The Safariland Model 6390 ALS Mid-Ride Level-I Duty Glock Holster is an innovative, secure and easy-to-use 5.0-rated holster for Glock 37 Right Hand users, offering Automatic Locking System (ALS) technology for hassle-free retention and quick access.
 
-8. [IWB Profile Series Holster for G36](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Tulster Profile IWB holster G36 - Left Hand: Comfortable, minimalistic, and secure inside-the-waistband holster, featuring adjustable retention and cant options for optimal concealed carry.
+8. [IWB Profile Series Holster for G36](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=iwb-profile-series-holster-for-g36) - Tulster Profile IWB holster G36 - Left Hand: Comfortable, minimalistic, and secure inside-the-waistband holster, featuring adjustable retention and cant options for optimal concealed carry.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Mid-Ride Level I Retention Duty Holster for Glock 22 Gen5](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Mid-Ride Level I Retention Duty Holster for Glock 22 Gen5](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=mid-ride-level-i-retention-duty-holster-for-glock-22-gen5)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="safariland-6390-als-mid-ride-level-i-retention-duty-holster-glock-22-gen5-right-black-stx-basket-wea-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safariland-6390-als-mid-ride-level-i-retention-duty-holster-glock-22-gen5-right-black-stx-basket-wea-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=safariland-6390-als-mid-ride-level-i-retention-duty-holster-glock-22-gen5-right-black-stx-basket-wea-1"><img alt="safariland-6390-als-mid-ride-level-i-retention-duty-holster-glock-22-gen5-right-black-stx-basket-wea-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safariland-6390-als-mid-ride-level-i-retention-duty-holster-glock-22-gen5-right-black-stx-basket-wea-1/public"/></a></div>
 
 I recently had the opportunity to try out this open top holster for my firearm, and I must say, it's been an exceptional experience. With the Automatic Locking System (ALS) integrated into the design, my weapon is securely retained in all directions without any snaps or straps that could potentially hinder quick access. The ALS automatically locks my gun in place when holstered, giving me peace of mind that it won't accidentally come loose during physical activity.
 
 The mid-ride belt loop keeps the holster close to my body while still providing easy access when needed. Additionally, the suede lining does an excellent job of safeguarding my firearm's sights and finish from potential damage or scratches. Overall, this product has surpassed my expectations and made carrying a firearm much more convenient and secure for daily use.
 
-### [Dual Position Phoenix Holster for 1911 Pistols and Revolvers](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Dual Position Phoenix Holster for 1911 Pistols and Revolvers](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=dual-position-phoenix-holster-for-1911-pistols-and-revolvers)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="galco-phoenix-belt-holster-smith-wesson-n-fr-357-model-27-28-4-n-fr-357-model-327-4-n-fr-44-model-30" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/galco-phoenix-belt-holster-smith-wesson-n-fr-357-model-27-28-4-n-fr-357-model-327-4-n-fr-44-model-30/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=galco-phoenix-belt-holster-smith-wesson-n-fr-357-model-27-28-4-n-fr-357-model-327-4-n-fr-44-model-30"><img alt="galco-phoenix-belt-holster-smith-wesson-n-fr-357-model-27-28-4-n-fr-357-model-327-4-n-fr-44-model-30" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/galco-phoenix-belt-holster-smith-wesson-n-fr-357-model-27-28-4-n-fr-357-model-327-4-n-fr-44-model-30/public"/></a></div>
 
 I recently purchased the Phoenix Belt Dual Position Holster and have been thoroughly impressed with its performance. Constructed from high-quality premium steerhide and lined with soft suede, this holster provides a durable yet comfortable carry experience.
 
@@ -56,9 +56,9 @@ Another important feature is that it fits belts up to 1 3/4", making it compatib
 
 Although I found that initial shipping took slightly longer than expected due to these being made by hand in the USA rather than mass-produced elsewhere like most other brands – this is actually a testament to their quality which makes them worth every cent spent on this high-quality product. . Overall though? I am thrilled with my purchase - both functionally (secure hold) & aesthetically speaking (classic design)!
 
-### [IWB Leather Holster for Sig Sauer P365 with Shield](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [IWB Leather Holster for Sig Sauer P365 with Shield](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=iwb-leather-holster-for-sig-sauer-p365-with-shield)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="braids-holsters-fits-sig-sauer-p365-formed-brown-leather-iwb-holster-with-shield-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/braids-holsters-fits-sig-sauer-p365-formed-brown-leather-iwb-holster-with-shield-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=braids-holsters-fits-sig-sauer-p365-formed-brown-leather-iwb-holster-with-shield-1"><img alt="braids-holsters-fits-sig-sauer-p365-formed-brown-leather-iwb-holster-with-shield-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/braids-holsters-fits-sig-sauer-p365-formed-brown-leather-iwb-holster-with-shield-1/public"/></a></div>
 
 I recently purchased the Braids Holster for my Sig Sauer P365, and I must say that it has exceeded my expectations. The quality of the leather is top-notch, with smooth texture and flawless stitching around the edges, which speaks volumes about the attention to detail given by the manufacturer.
 
@@ -66,9 +66,9 @@ Upon receiving my holster, I immediately noticed its reinforced top, which ensur
 
 One of the best things about this product is its affordability without compromising on quality. This makes it an excellent choice for anyone looking for a high-quality leather holster that won't break the bank. Overall, I am extremely satisfied with my purchase and would highly recommend this holster to others in search of a reliable and comfortable concealment option for their Sig Sauer P365 pistol.
 
-### [Mid-Ride Level I Duty Holster for Handguns](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Mid-Ride Level I Duty Holster for Handguns](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=mid-ride-level-i-duty-holster-for-handguns)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="safariland-6390-als-level-i-mid-ride-holster-black-6390-1462-412" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safariland-6390-als-level-i-mid-ride-holster-black-6390-1462-412/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=safariland-6390-als-level-i-mid-ride-holster-black-6390-1462-412"><img alt="safariland-6390-als-level-i-mid-ride-holster-black-6390-1462-412" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safariland-6390-als-level-i-mid-ride-holster-black-6390-1462-412/public"/></a></div>
 
 If you're looking for a reliable and secure duty belt holster, the Safariland 6390 ALS Mid-Ride Level I Retention Duty Belt Holster is the perfect solution. The rugged SafariLaminate construction with SafariSuede lining protects your pistol's sights and finish while ensuring easy access to your weapon.
 
@@ -78,17 +78,17 @@ The package includes various color options like black basket weave, plain black 
 
 Overall, the Safariland 6390 ALS Mid-Ride Level I Retention Duty Belt Holster is a reliable and efficient choice that provides both security and quick accessibility to your weapon whenever you need it most.
 
-### [Handcrafted Basket Weave OWB Holster for Smith & Wesson 686 357 Magnum 2.5 Inch (R.H)](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Handcrafted Basket Weave OWB Holster for Smith & Wesson 686 357 Magnum 2.5 Inch (R.H)](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=handcrafted-basket-weave-owb-holster-for-smith-wesson-686-357-magnum-25-inch-rh)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="leather-basket-weave-owb-holster-for-smith-and-wesson-686-357-magnum-2-5-inch-r-h-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/leather-basket-weave-owb-holster-for-smith-and-wesson-686-357-magnum-2-5-inch-r-h-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=leather-basket-weave-owb-holster-for-smith-and-wesson-686-357-magnum-2-5-inch-r-h-1"><img alt="leather-basket-weave-owb-holster-for-smith-and-wesson-686-357-magnum-2-5-inch-r-h-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/leather-basket-weave-owb-holster-for-smith-and-wesson-686-357-magnum-2-5-inch-r-h-1/public"/></a></div>
 
 I was thrilled to receive my Handcrafted Basket Weave OWB Holster for my Smith & Wesson 686 357 Magnum. The premium leather quality and craftsmanship were immediately apparent, with precise stitching and a smooth finish that blew me away. The holster fits seamlessly around my gun, and despite its sturdy construction, it's comfortable enough to wear all day long. I appreciated the excellent customer service offered by the seller, who promptly answered all my questions. Based on my positive experience, I would recommend this product to others as a well-made and reliable option.
 
 However, there are some areas of improvement that could make this product even better. For example, it may be helpful if the description provided more information about the specific fitment of the holster for different gun models or potential adjustments that can be made for a more customized fit. Additionally, while I found the overall design to be visually appealing, some users may prefer more color or style options to better suit their personal preferences. Nonetheless, these minor drawbacks do not detract from the overall quality of the product, which is an investment worth considering for anyone in search of a durable and comfortable leather holster.
 
-### [Full-Size 357 Magnum Leather Basket Weave OWB Holster for Ruger Revolvers](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Full-Size 357 Magnum Leather Basket Weave OWB Holster for Ruger Revolvers](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=full-size-357-magnum-leather-basket-weave-owb-holster-for-ruger-revolvers)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="ruger-revolver-full-size-inch-357-magnum-leather-basket-weave-owb-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ruger-revolver-full-size-inch-357-magnum-leather-basket-weave-owb-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=ruger-revolver-full-size-inch-357-magnum-leather-basket-weave-owb-holster-1"><img alt="ruger-revolver-full-size-inch-357-magnum-leather-basket-weave-owb-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ruger-revolver-full-size-inch-357-magnum-leather-basket-weave-owb-holster-1/public"/></a></div>
 
 I recently got my hands on the Ruger Revolver Full Size Inch 357 Magnum Leather Basket Weave OWB Holster, and I must say that I was impressed by its top-notch craftsmanship. Made from genuine bull leather with a handcrafted basket weave pattern, this holster definitely stands out in terms of quality.
 
@@ -98,17 +98,17 @@ However, there were some downsides to this product as well. Initially, drawing a
 
 Overall though, if you're searching for a well-made and comfortable leather OWB holster for your Ruger Revolver 357 Magnum revolver, this product is worth considering despite its minor drawbacks. It's always good to keep in mind that every product may not perfectly suit everyone's needs, but if you're willing to put in some time to break it in properly and can find what you're looking for on Etsy with ease – go ahead!
 
-### [ALS Mid-Ride Duty Holster for Glock 37 with Basket Weave Design](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [ALS Mid-Ride Duty Holster for Glock 37 with Basket Weave Design](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=als-mid-ride-duty-holster-for-glock-37-with-basket-weave-design)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="safariland-model-6390-als-mid-ride-level-i-duty-glock-holster-glock-37-right-hand-stx-basket-weave-b-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safariland-model-6390-als-mid-ride-level-i-duty-glock-holster-glock-37-right-hand-stx-basket-weave-b-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=safariland-model-6390-als-mid-ride-level-i-duty-glock-holster-glock-37-right-hand-stx-basket-weave-b-1"><img alt="safariland-model-6390-als-mid-ride-level-i-duty-glock-holster-glock-37-right-hand-stx-basket-weave-b-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safariland-model-6390-als-mid-ride-level-i-duty-glock-holster-glock-37-right-hand-stx-basket-weave-b-1/public"/></a></div>
 
 I recently started using this open top holster for my Glock and I must say, the Automatic Locking System (ALS) is a game changer. It keeps my weapon securely in place no matter the situation, giving me peace of mind while on duty. The internal locking device works smoothly with my thumb for quick draws, and it's so effortless to use. Plus, the SafariLaminate material is lightweight yet durable which makes it comfortable to wear all day long.
 
 Another thing I love about this holster is its versatile belt loop/slot attachment; it adjusts perfectly for a custom fit, making sure everything stays put even during high-action moments. Overall, this Glock duty holster has exceeded my expectations and has become an essential part of my gear for work.
 
-### [IWB Profile Series Holster for G36](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [IWB Profile Series Holster for G36](https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=iwb-profile-series-holster-for-g36)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="tulster-profile-iwb-holster-g36-left-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tulster-profile-iwb-holster-g36-left-hand-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=tulster-profile-iwb-holster-g36-left-hand-1"><img alt="tulster-profile-iwb-holster-g36-left-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tulster-profile-iwb-holster-g36-left-hand-1/public"/></a></div>
 
 I've been using the IWB Profile Series holster and it has completely elevated my everyday carry experience. The ultra-concealable design is a game-changer, making it easy to put on and take off without drawing unwanted attention. The minimalist approach is evident in its low-profile design and use of just enough material to provide maximum concealment while ensuring comfort.
 
@@ -158,7 +158,7 @@ When using a basket weave holster, it's essential to follow proper safety protoc
 
 Basket Weave Holsters are a type of gun holster, designed to securely hold your firearm while providing quick and easy access when needed. They often feature a "basket weave" pattern, which adds a decorative touch and enhances grip. These holsters are popular among sports and outdoors enthusiasts, as well as gun collectors and shooters.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Basket+Weave+Holsters-2/public" alt="Basket Weave Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=basket-weave-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Basket+Weave+Holsters-2/public" alt="Basket Weave Holsters-2"></a></div>
 
 ### How do Basket Weave Holsters differ from other gun holsters?
 
@@ -236,7 +236,7 @@ To ensure you are purchasing a high-quality Basket Weave Holster, consider the f
 
 - Brand reputation: Choose a reputable brand known for producing high-quality holsters and other firearms accessories.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Basket+Weave+Holsters-3/public" alt="Basket Weave Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=basket-weave-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Basket+Weave+Holsters-3/public" alt="Basket Weave Holsters-3"></a></div>
 
 ### Can I use a Basket Weave Holster with other accessories, such as a flashlight or laser?
 
@@ -298,7 +298,7 @@ To properly clean and maintain your Basket Weave Holster, follow these steps:
 
 It is generally not recommended to use a Basket Weave Holster with a different firearm than the one it was originally designed for, as this may result in an improper fit, reduced retention, and potential safety hazards. If you need a holster that can accommodate multiple firearms, consider choosing one with adjustable fitment features or multiple retention points to ensure optimal performance and safety with each weapon.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Basket+Weave+Holsters-4/public" alt="Basket Weave Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=basket-weave-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Basket+Weave+Holsters-4/public" alt="Basket Weave Holsters-4"></a></div>
 
 ### How can I ensure that my Basket Weave Holster is fully functional and safe to use?
 
@@ -382,7 +382,7 @@ Some common issues that can arise when using a Basket Weave Holster include:
 
 - Damage to the holster or firearm: Regularly inspect the holster and its components for signs of wear or damage, and replace any worn or damaged parts as necessary to maintain optimal function and safety, while always following proper gun handling and safety procedures at all times.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Basket+Weave+Holsters-5/public" alt="Basket Weave Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=basket-weave-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Basket+Weave+Holsters-5/public" alt="Basket Weave Holsters-5"></a></div>
 
 ### How can I maximize the lifespan and performance of my Basket Weave Holster?
 
@@ -456,7 +456,7 @@ To properly store your Basket Weave Holster and firearm when traveling or transp
 
 3. Ensure that your firearm and holster are stored in accordance with all relevant laws and regulations governing firearm possession, transportation, and concealed carry in your specific location, and always follow proper gun handling and safety procedures at all times.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Basket+Weave+Holsters-6/public" alt="Basket Weave Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/basket-weave-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=basket-weave-holsters&utm_term=basket-weave-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Basket+Weave+Holsters-6/public" alt="Basket Weave Holsters-6"></a></div>
 
 ### How can I ensure that my Basket Weave Holster is fully functional and safe to use after extended periods of storage or non-use?
 

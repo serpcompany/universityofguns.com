@@ -21,15 +21,15 @@ Whether you're a seasoned marksman or just beginning your journey in the shootin
 
 ## The Top 5 Best Tritium Sights
 
-1. [Accurate Adjustable 1-Pin Archery Sight for RH/LH Shooters](https://serp.ly/@universityofguns/amazon/tritium-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Experience unmatched accuracy with the Axcel Accutouch Plus Carbon Pro Sight AV-41 1 Pin .019 RH/LH, offering seamless 1st, 2nd, and 3rd axis adjustments, Accu-Click system, carbon bar dovetail mount, and a 45-degree facing sight tape.
+1. [Accurate Adjustable 1-Pin Archery Sight for RH/LH Shooters](https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tritium-sights&utm_term=accurate-adjustable-1-pin-archery-sight-for-rhlh-shooters) - Experience unmatched accuracy with the Axcel Accutouch Plus Carbon Pro Sight AV-41 1 Pin .019 RH/LH, offering seamless 1st, 2nd, and 3rd axis adjustments, Accu-Click system, carbon bar dovetail mount, and a 45-degree facing sight tape.
 
-2. [Birchwood Casey Super Bright Pen Kit (Green, Red, White)](https://serp.ly/@universityofguns/amazon/tritium-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Perfectly bright and easy touch-up for chipped, dull or scratched sights; add a new level of visibility with this set of vivid green, red and white dot pistol sights by Birchwood Casey.
+2. [Birchwood Casey Super Bright Pen Kit (Green, Red, White)](https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tritium-sights&utm_term=birchwood-casey-super-bright-pen-kit-green-red-white) - Perfectly bright and easy touch-up for chipped, dull or scratched sights; add a new level of visibility with this set of vivid green, red and white dot pistol sights by Birchwood Casey.
 
-3. [Precision Multi-Ring Technology Archery Sight](https://serp.ly/@universityofguns/amazon/tritium-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Experience unparalleled accuracy and precision with Spot Hogg Hunter Sight - 3 Pin .019 Right Hand, designed for hunters seeking optimal performance and reliability in varying lighting conditions.
+3. [Precision Multi-Ring Technology Archery Sight](https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tritium-sights&utm_term=precision-multi-ring-technology-archery-sight) - Experience unparalleled accuracy and precision with Spot Hogg Hunter Sight - 3 Pin .019 Right Hand, designed for hunters seeking optimal performance and reliability in varying lighting conditions.
 
-4. [Compact Lightweight Deployable Whitetail Sight](https://serp.ly/@universityofguns/amazon/tritium-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - The Black Gold Ascent Whitetail 3 Pin Sight provides exceptional accuracy and bright pins for perfect visibility in all light conditions, making it the ultimate choice for avid whitetail hunters.
+4. [Compact Lightweight Deployable Whitetail Sight](https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tritium-sights&utm_term=compact-lightweight-deployable-whitetail-sight) - The Black Gold Ascent Whitetail 3 Pin Sight provides exceptional accuracy and bright pins for perfect visibility in all light conditions, making it the ultimate choice for avid whitetail hunters.
 
-5. [Versatile, Lightweight Tetra Sight with Tritium and Wheel Forward Design](https://serp.ly/@universityofguns/amazon/tritium-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - The HHA Tetra .10 / LH combines over 20 years of technology to deliver a versatile, lightweight, and rugged sight for bowhunters and 3D shooters, offering toolless adjustments and deadly accuracy in the field.
+5. [Versatile, Lightweight Tetra Sight with Tritium and Wheel Forward Design](https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tritium-sights&utm_term=versatile-lightweight-tetra-sight-with-tritium-and-wheel-forward-design) - The HHA Tetra .10 / LH combines over 20 years of technology to deliver a versatile, lightweight, and rugged sight for bowhunters and 3D shooters, offering toolless adjustments and deadly accuracy in the field.
 
 *As an Amazon™ Associate, we earn from qualifying purchases.*
 
@@ -37,9 +37,9 @@ Whether you're a seasoned marksman or just beginning your journey in the shootin
 ## Reviews
 
 
-### [Accurate Adjustable 1-Pin Archery Sight for RH/LH Shooters](https://serp.ly/@universityofguns/amazon/tritium-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Accurate Adjustable 1-Pin Archery Sight for RH/LH Shooters](https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tritium-sights&utm_term=accurate-adjustable-1-pin-archery-sight-for-rhlh-shooters)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="axcel-accutouch-plus-carbon-pro-sight-av-41-1-pin-019-rh-lh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/axcel-accutouch-plus-carbon-pro-sight-av-41-1-pin-019-rh-lh-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tritium-sights&utm_term=axcel-accutouch-plus-carbon-pro-sight-av-41-1-pin-019-rh-lh-1"><img alt="axcel-accutouch-plus-carbon-pro-sight-av-41-1-pin-019-rh-lh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/axcel-accutouch-plus-carbon-pro-sight-av-41-1-pin-019-rh-lh-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I recently purchased the Axcel Accutouch Plus Carbon Pro Sight AV-41, and I have to say, it's been a game-changer for my shooting experience. The Accu-Click system is a standout feature that sets it apart from other sights on the market. It allows me to set "clicks" at specific distances, making it incredibly easy to adjust the sight. The 45-degree facing sight tape also makes it much easier to see where the yardage indicator is set, which is a huge plus. 
 
@@ -50,9 +50,9 @@ On the downside, I have found that when I adjust the sight beyond 70 yards, my a
 Overall, I am extremely satisfied with the Axcel Accutouch Plus Carbon Pro Sight AV-41. Its adjustability, ease of use, and high-quality construction make it a must-have for any avid shooter. I'm confident that this sight will serve me well for years to come. 
 
 
-### [Birchwood Casey Super Bright Pen Kit (Green, Red, White)](https://serp.ly/@universityofguns/amazon/tritium-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Birchwood Casey Super Bright Pen Kit (Green, Red, White)](https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tritium-sights&utm_term=birchwood-casey-super-bright-pen-kit-green-red-white)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="birchwood-casey-super-bright-pen-kit-green-red-white-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/birchwood-casey-super-bright-pen-kit-green-red-white-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tritium-sights&utm_term=birchwood-casey-super-bright-pen-kit-green-red-white-1"><img alt="birchwood-casey-super-bright-pen-kit-green-red-white-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/birchwood-casey-super-bright-pen-kit-green-red-white-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 So there I was, with my beloved handgun, all scratched up and starting to lose its shine. I knew I needed to do something about it and that's when I stumbled upon this magical little thing called Birchwood Casey - Super Bright Pen Kit. Now, first off, let me tell you about its color palette - I had the trifecta of green, red, and white! 
 
@@ -65,9 +65,9 @@ However, there were a couple of cons that I encountered while using this product
 In conclusion, I'd say that the Birchwood Casey - Super Bright Pen Kit is a game-changer for anyone looking to bring new life to their old sights. Its vibrant color options and ease of use make it a must-have for any shooter aiming to improve their target acquisition. So go ahead and give your handgun the love and attention it deserves - I promise, you won't be disappointed! 
 
 
-### [Precision Multi-Ring Technology Archery Sight](https://serp.ly/@universityofguns/amazon/tritium-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Precision Multi-Ring Technology Archery Sight](https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tritium-sights&utm_term=precision-multi-ring-technology-archery-sight)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="spot-hogg-hunter-sight-3-pin-019-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/spot-hogg-hunter-sight-3-pin-019-right-hand-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tritium-sights&utm_term=spot-hogg-hunter-sight-3-pin-019-right-hand-1"><img alt="spot-hogg-hunter-sight-3-pin-019-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/spot-hogg-hunter-sight-3-pin-019-right-hand-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 One Shot, One Dead"
 
@@ -86,9 +86,9 @@ However, there's one minor drawback - the dovetail mounting system replaced by a
 All in all, if you're looking for a top-notch, hard-mounted bow sight that offers exceptional adjustability and accuracy, look no further than the Spot Hogg Hunter Sight. Highly recommended! 
 
 
-### [Compact Lightweight Deployable Whitetail Sight](https://serp.ly/@universityofguns/amazon/tritium-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Compact Lightweight Deployable Whitetail Sight](https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tritium-sights&utm_term=compact-lightweight-deployable-whitetail-sight)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="black-gold-ascent-whitetail-3-pin-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/black-gold-ascent-whitetail-3-pin-rh-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tritium-sights&utm_term=black-gold-ascent-whitetail-3-pin-rh-1"><img alt="black-gold-ascent-whitetail-3-pin-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/black-gold-ascent-whitetail-3-pin-rh-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Black Gold Ascent Whitetail 3 Pin RH for a while now, and I must say, it's been an absolute game-changer for my hunting trips. The first thing that stood out to me is how compact and lightweight it is. When you're in a tree stand or ground blind with limited space, this sight really holds its own. 
 
@@ -105,9 +105,9 @@ One downside to this sight is that it doesn't come with a lens already installed
 Overall, I've been extremely happy with the Black Gold Ascent Whitetail 3 Pin RH. It's a high-quality, compact sight that has made a huge difference in my hunting game. If you're in the market for a new bow sight, I highly recommend giving this one a try. 
 
 
-### [Versatile, Lightweight Tetra Sight with Tritium and Wheel Forward Design](https://serp.ly/@universityofguns/amazon/tritium-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Versatile, Lightweight Tetra Sight with Tritium and Wheel Forward Design](https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tritium-sights&utm_term=versatile-lightweight-tetra-sight-with-tritium-and-wheel-forward-design)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hha-tetra-10-lh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-tetra-10-lh-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tritium-sights&utm_term=hha-tetra-10-lh-1"><img alt="hha-tetra-10-lh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-tetra-10-lh-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I'm an avid archer who recently discovered the HHA Tetra. 10/LH, and I must say, it has truly enhanced my shooting experience. Its lightweight design packs a solid punch, delivering silky smooth movement on both fixed frame and dovetail bar options. 
 
@@ -122,7 +122,7 @@ However, while the leveling bubble certainly helps with alignment, it could be m
 
 ## Buyer's Guide
 
-<div><a href="https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tritium-Sights-2/w=720,h=540,fit=pad,background=black" alt="Tritium-Sights-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tritium-sights&utm_term=tritium-sights-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tritium-Sights-2/w=720,h=540,fit=pad,background=black" alt="Tritium-Sights-2"></a></div>
 
 
 ### Important Features
@@ -140,7 +140,7 @@ Tritium sights are specialized aiming devices that provide a glowing reticle or 
 
 * Durability: Look for a tritium sight with strong construction, as it will be exposed to harsh environmental conditions.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tritium-Sights-3/w=720,h=540,fit=pad,background=black" alt="Tritium-Sights-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tritium-sights&utm_term=tritium-sights-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tritium-Sights-3/w=720,h=540,fit=pad,background=black" alt="Tritium-Sights-3"></a></div>
 
 
 ### General Advice
@@ -156,7 +156,7 @@ Tritium sights are specialized aiming devices that provide a glowing reticle or 
 
 Tritium sights offer a valuable solution for improving accuracy and efficiency in low light settings. By considering the important features, evaluating compatibility, and choosing a durable and high-quality product, you'll be well-equipped to make an informed decision when investing in tritium sights for your firearm. 
 
-<div><a href="https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tritium-Sights-4/w=720,h=540,fit=pad,background=black" alt="Tritium-Sights-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tritium-sights&utm_term=tritium-sights-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tritium-Sights-4/w=720,h=540,fit=pad,background=black" alt="Tritium-Sights-4"></a></div>
 
 
 ## FAQ
@@ -166,7 +166,7 @@ Tritium sights offer a valuable solution for improving accuracy and efficiency i
 
 Tritium sights are a type of aiming device used on firearms, such as pistols and rifles, that assist in aligning the barrel with the target for accurate shooting in low-light conditions or complete darkness. They contain small amounts of the radioactive isotope tritium, which emits a constant faint glow without the need for an external power source or batteries. This makes them reliable and easy to see in various lighting scenarios. 
 
-<div><a href="https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tritium-Sights-5/w=720,h=540,fit=pad,background=black" alt="Tritium-Sights-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tritium-sights&utm_term=tritium-sights-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tritium-Sights-5/w=720,h=540,fit=pad,background=black" alt="Tritium-Sights-5"></a></div>
 
 
 ### How do tritium sights work?
@@ -180,7 +180,7 @@ Tritium sights work by utilizing phosphor inserts that are filled with tritium g
 
 * **Fiber Optic Sights:**  Fiber optic sights require an external light source, such as sunlight or ambient room light, to charge the fibers that amplify the light and make the sights visible. In low-light or no-light scenarios, fiber optic sights may not function well.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tritium-Sights-6/w=720,h=540,fit=pad,background=black" alt="Tritium-Sights-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/tritium-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tritium-sights&utm_term=tritium-sights-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tritium-Sights-6/w=720,h=540,fit=pad,background=black" alt="Tritium-Sights-6"></a></div>
 
 
 ### How long do tritium sights last?

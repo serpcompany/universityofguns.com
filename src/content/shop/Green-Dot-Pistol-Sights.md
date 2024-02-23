@@ -23,17 +23,17 @@ category: "Gun Sights"
 
 ## The Top 6 Best Green Dot Pistol Sights
 
-1. [YITAHOME Multi-Functional Sleeper Sofa Bed with Linen Fabric, Light Gray](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - The HHA 3019 Optimizer Lite .019 1 Pin Sight is a top-notch 20-80-yard targeting solution, offering fully protected fiber optics, tool-free adjustments, and a sleek 1 5/8" housing for precise and hassle-free performance.
+1. [YITAHOME Multi-Functional Sleeper Sofa Bed with Linen Fabric, Light Gray](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=yitahome-multi-functional-sleeper-sofa-bed-with-linen-fabric-light-gray) - The HHA 3019 Optimizer Lite .019 1 Pin Sight is a top-notch 20-80-yard targeting solution, offering fully protected fiber optics, tool-free adjustments, and a sleek 1 5/8" housing for precise and hassle-free performance.
 
-2. [Simmons Pro Hunter Red Dot & Laser Sights: Accuracy and Confidence](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Experience unmatched accuracy and speed with the Simmons Pro Hunter Red Dot & Laser Sights, boasting a 4.4 rating from 20 reviews.
+2. [Simmons Pro Hunter Red Dot & Laser Sights: Accuracy and Confidence](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=simmons-pro-hunter-red-dot-laser-sights-accuracy-and-confidence) - Experience unmatched accuracy and speed with the Simmons Pro Hunter Red Dot & Laser Sights, boasting a 4.4 rating from 20 reviews.
 
-3. [Carbon Hybrid Micro Sight - Realtree Xtra](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - The Truglo 5-Pin .019 Carbon Hybrid Micro Sight delivers superb accuracy and vibration control in an advanced hybrid design perfect for right or left handed shooters.
+3. [Carbon Hybrid Micro Sight - Realtree Xtra](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=carbon-hybrid-micro-sight-realtree-xtra) - The Truglo 5-Pin .019 Carbon Hybrid Micro Sight delivers superb accuracy and vibration control in an advanced hybrid design perfect for right or left handed shooters.
 
-4. [Tactical 1-Pin Sight with CNC Machining and Micro-Adjustable Windage](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - HHA Optimizer Sight 3000: CNC-machined 1-pin .029 right-hand compatible sight with tool-free windage adjustment, 1 5/8" housing, and bubble level, designed for improved accuracy and reliability.
+4. [Tactical 1-Pin Sight with CNC Machining and Micro-Adjustable Windage](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=tactical-1-pin-sight-with-cnc-machining-and-micro-adjustable-windage) - HHA Optimizer Sight 3000: CNC-machined 1-pin .029 right-hand compatible sight with tool-free windage adjustment, 1 5/8" housing, and bubble level, designed for improved accuracy and reliability.
 
-5. [Optimizer Lite X: Precision Green Dot Pistol Sight](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - The HHA Optimizer Lite x Sight 5519 .019 delivers unparalleled pin accuracy and adjustments with its new infinite adjust slotted side bracket, compatible with Blue Burst light and lens kits, ensuring precise shots at varying ranges.
+5. [Optimizer Lite X: Precision Green Dot Pistol Sight](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=optimizer-lite-x-precision-green-dot-pistol-sight) - The HHA Optimizer Lite x Sight 5519 .019 delivers unparalleled pin accuracy and adjustments with its new infinite adjust slotted side bracket, compatible with Blue Burst light and lens kits, ensuring precise shots at varying ranges.
 
-6. [Birchwood Casey Super Bright Pen Kit (Green, Red, White)](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Perfectly bright and easy touch-up for chipped, dull or scratched sights; add a new level of visibility with this set of vivid green, red and white dot pistol sights by Birchwood Casey.
+6. [Birchwood Casey Super Bright Pen Kit (Green, Red, White)](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=birchwood-casey-super-bright-pen-kit-green-red-white) - Perfectly bright and easy touch-up for chipped, dull or scratched sights; add a new level of visibility with this set of vivid green, red and white dot pistol sights by Birchwood Casey.
 
 *As an Amazon™ Associate, we earn from qualifying purchases.*
 
@@ -41,9 +41,9 @@ category: "Gun Sights"
 ## Reviews
 
 
-### [YITAHOME Multi-Functional Sleeper Sofa Bed with Linen Fabric, Light Gray](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [YITAHOME Multi-Functional Sleeper Sofa Bed with Linen Fabric, Light Gray](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=yitahome-multi-functional-sleeper-sofa-bed-with-linen-fabric-light-gray)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hha-3019-optimizer-lite-019-1-pin-sight-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-3019-optimizer-lite-019-1-pin-sight-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=hha-3019-optimizer-lite-019-1-pin-sight-1"><img alt="hha-3019-optimizer-lite-019-1-pin-sight-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-3019-optimizer-lite-019-1-pin-sight-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 When I first decided to switch to a single pin adjustable sight, I was a bit skeptical about how it would perform. But, after using the HHA 3019 Optimizer Lite, my doubts were put to rest instantly. It not only tightened up my groups but also opened up my sight picture, making my shooting experience much more enjoyable. 
 
@@ -54,9 +54,9 @@ However, there is one concern that I need to address. Mounting a quiver on your 
 In conclusion, the HHA 3019 Optimizer Lite provides excellent value with its quality construction, easy installation, and user-friendly features. It's a perfect choice for those seeking a one-pin sight for their shooting needs. 
 
 
-### [Simmons Pro Hunter Red Dot & Laser Sights: Accuracy and Confidence](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Simmons Pro Hunter Red Dot & Laser Sights: Accuracy and Confidence](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=simmons-pro-hunter-red-dot-laser-sights-accuracy-and-confidence)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="simmons-pro-hunter-red-dot-laser-sights-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/simmons-pro-hunter-red-dot-laser-sights-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=simmons-pro-hunter-red-dot-laser-sights-1"><img alt="simmons-pro-hunter-red-dot-laser-sights-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/simmons-pro-hunter-red-dot-laser-sights-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Simmons Pro Hunter Red Dot & Laser Sights, and I must say it's been quite an experience. When it comes to accuracy, this little device never disappoints. It's like having a personal assistant out in the field, always ready to give me that critical distance data I need for a perfectly calculated shot. 
 
@@ -67,9 +67,9 @@ However, not everything is perfect. There have been times when I've struggled wi
 Overall, the Simmons Pro Hunter Rangefinder has been a trusty companion on many hunting trips. Its affordability and reliability make it a solid choice for anyone looking to up their game without breaking the bank. 
 
 
-### [Carbon Hybrid Micro Sight - Realtree Xtra](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Carbon Hybrid Micro Sight - Realtree Xtra](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=carbon-hybrid-micro-sight-realtree-xtra)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="truglo-5-pin-019-carbon-hybrid-micro-sight-left-right-realtree-xtra-camouflage-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-5-pin-019-carbon-hybrid-micro-sight-left-right-realtree-xtra-camouflage-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=truglo-5-pin-019-carbon-hybrid-micro-sight-left-right-realtree-xtra-camouflage-1"><img alt="truglo-5-pin-019-carbon-hybrid-micro-sight-left-right-realtree-xtra-camouflage-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-5-pin-019-carbon-hybrid-micro-sight-left-right-realtree-xtra-camouflage-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 When I first got my hands on the Truglo 5-Pin. 019 Carbon Hybrid Micro Sight in Realtree Xtra Camouflage, I was excited to try it out. This little beauty boasts an impressive blend of aluminum and carbon composites, making it both lightweight and incredibly durable. Right from the get-go, it felt solid and sturdy, just what I needed for my shooting adventures. 
 
@@ -78,9 +78,9 @@ One of the standout features for me was the Tru-Fusion Hybrid technology that re
 The one downside I noticed was that the light wasn't as bright as I'd hoped, but it did the job well enough for my needs. Overall, I'd say the Truglo 5-Pin. 019 Carbon Hybrid Micro Sight is a fantastic choice for left and right-handed shooters alike, offering excellent quality and performance at a reasonable price. 
 
 
-### [Tactical 1-Pin Sight with CNC Machining and Micro-Adjustable Windage](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Tactical 1-Pin Sight with CNC Machining and Micro-Adjustable Windage](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=tactical-1-pin-sight-with-cnc-machining-and-micro-adjustable-windage)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hha-optimizer-sight-3000-1-pin-029-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-optimizer-sight-3000-1-pin-029-rh-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=hha-optimizer-sight-3000-1-pin-029-rh-1"><img alt="hha-optimizer-sight-3000-1-pin-029-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-optimizer-sight-3000-1-pin-029-rh-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 You know what makes a good day out in the wild even better? A reliable, high-performing bow sight. And guess what? I found the best buddy for my bow - the HHA Optimizer Sight 3000 1 Pin. 029 RH. 
 
@@ -93,9 +93,9 @@ However, one con to mention is that it doesn't accept a light or lens. While I c
 Overall, the HHA Optimizer Sight 3000 1 Pin. 029 RH has made my hunting trips more enjoyable and successful. It's user-friendly, accurate, and tough enough for any challenge Mother Nature threw at us. 
 
 
-### [Optimizer Lite X: Precision Green Dot Pistol Sight](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Optimizer Lite X: Precision Green Dot Pistol Sight](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=optimizer-lite-x-precision-green-dot-pistol-sight)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hha-optimizer-lite-x-sight-5519-20" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-optimizer-lite-x-sight-5519-20/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=hha-optimizer-lite-x-sight-5519-20"><img alt="hha-optimizer-lite-x-sight-5519-20" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-optimizer-lite-x-sight-5519-20/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I recently purchased the HHA Optimizer Lite x Sight 5519 to improve my accuracy and enhance my overall archery experience. After spending some time with this product, I have to say it's one of the best investments I've made for my bow. The new infinite adjust slotted slide bracket is a game-changer, making it incredibly easy to fine-tune my sight for maximum accuracy. It's amazing how simple it is to quickly adjust the pin settings using this innovative design. I was especially impressed with how accurate the included sight tapes are. After a little practice, I was consistently hitting my target at ranges from 20 to 80 yards. The water-resistant tapes and machined aluminum pin carrier are also impressive features that contribute to the product's durability and efficiency. 
 
@@ -104,9 +104,9 @@ Despite the exceptional positive attributes, there are a few minor drawbacks tha
 Overall, I am extremely excited to have made the switch to the HHA Optimizer Lite x Sight 5519. This product has drastically improved my accuracy and confidence in my archery skills. Its innovative design, coupled with its accuracy and durability, makes it an excellent choice for both beginners and experienced archers alike. 
 
 
-### [Birchwood Casey Super Bright Pen Kit (Green, Red, White)](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Birchwood Casey Super Bright Pen Kit (Green, Red, White)](https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=birchwood-casey-super-bright-pen-kit-green-red-white)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="birchwood-casey-super-bright-pen-kit-green-red-white-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/birchwood-casey-super-bright-pen-kit-green-red-white-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=birchwood-casey-super-bright-pen-kit-green-red-white-1"><img alt="birchwood-casey-super-bright-pen-kit-green-red-white-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/birchwood-casey-super-bright-pen-kit-green-red-white-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 So there I was, with my beloved handgun, all scratched up and starting to lose its shine. I knew I needed to do something about it and that's when I stumbled upon this magical little thing called Birchwood Casey - Super Bright Pen Kit. Now, first off, let me tell you about its color palette - I had the trifecta of green, red, and white! 
 
@@ -126,7 +126,7 @@ None
 
 ## FAQ
 
-<div><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Green-Dot-Pistol-Sights-2/w=720,h=540,fit=pad,background=black" alt="Green-Dot-Pistol-Sights-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=green-dot-pistol-sights-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Green-Dot-Pistol-Sights-2/w=720,h=540,fit=pad,background=black" alt="Green-Dot-Pistol-Sights-2"></a></div>
 
 
 ### What are Green Dot pistol sights?
@@ -138,7 +138,7 @@ Green Dot pistol sights are a type of aiming device that uses a bright, high-vis
 
 Green Dot pistol sights work by projecting a bright green dot or circle onto the lens of the sight. This dot acts as a visible aiming point, allowing the shooter to quickly and easily align the gun with the target. The green light source is usually battery-powered, with adjustable brightness settings to accommodate various lighting conditions. 
 
-<div><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Green-Dot-Pistol-Sights-3/w=720,h=540,fit=pad,background=black" alt="Green-Dot-Pistol-Sights-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=green-dot-pistol-sights-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Green-Dot-Pistol-Sights-3/w=720,h=540,fit=pad,background=black" alt="Green-Dot-Pistol-Sights-3"></a></div>
 
 
 ### What are the benefits of using Green Dot pistol sights?
@@ -159,7 +159,7 @@ While Green Dot pistol sights can be mounted on many different types of handguns
 
 ### How do I install Green Dot pistol sights on my handgun?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Green-Dot-Pistol-Sights-4/w=720,h=540,fit=pad,background=black" alt="Green-Dot-Pistol-Sights-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=green-dot-pistol-sights-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Green-Dot-Pistol-Sights-4/w=720,h=540,fit=pad,background=black" alt="Green-Dot-Pistol-Sights-4"></a></div>
 
 The installation process for Green Dot pistol sights varies depending on the specific make and model of your weapon. It generally involves removing the existing iron sights and attaching the Green Dot sight to the dovetail or rail of the firearm. Some models may require special tools or adjustments, so it is essential to follow the manufacturer's instructions closely during installation. 
 
@@ -173,7 +173,7 @@ In most cases, no special permit or license is required to use Green Dot pistol 
 
 To adjust the Green Dot pistol sight for optimal accuracy, you will need to make adjustments to the windage (horizontal) and elevation (vertical) settings. Most Green Dot sights have easily accessible screws or adjustment dials that allow you to fine-tune these settings. Follow the manufacturer's instructions on how to make these adjustments to ensure the sight is calibrated correctly for your weapon and preferred shooting distance. 
 
-<div><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Green-Dot-Pistol-Sights-5/w=720,h=540,fit=pad,background=black" alt="Green-Dot-Pistol-Sights-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=green-dot-pistol-sights-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Green-Dot-Pistol-Sights-5/w=720,h=540,fit=pad,background=black" alt="Green-Dot-Pistol-Sights-5"></a></div>
 
 
 ### How often should I replace the battery in my Green Dot pistol sight?
@@ -196,7 +196,7 @@ To maintain and clean your Green Dot pistol sights, follow these tips:
 
 ### Where can I purchase Green Dot pistol sights?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Green-Dot-Pistol-Sights-6/w=720,h=540,fit=pad,background=black" alt="Green-Dot-Pistol-Sights-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/green-dot-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=green-dot-pistol-sights&utm_term=green-dot-pistol-sights-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Green-Dot-Pistol-Sights-6/w=720,h=540,fit=pad,background=black" alt="Green-Dot-Pistol-Sights-6"></a></div>
 
 Green Dot pistol sights are available from various retailers, both online and in-store. Some popular sources include sporting goods stores, gun shops, and major online retailers such as Amazon, MidwayUSA, and Brownells. 
 

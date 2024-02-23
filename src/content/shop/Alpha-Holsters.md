@@ -16,33 +16,33 @@ Looking for a reliable and comfortable holster for your firearm? Alpha Holsters 
 
 ## The Top 10 Best Alpha Holsters
 
-1. [IWB Kydex Holster for Smith & Wesson M&P Shield](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Top-notch IWB Holster - Highly secure, custom-fit, inside-the-waistband Kydex holster from We The People, perfect for your Smith & Wesson M&P Shield, M20 or Plus 9mm/40, providing lifetime guarantee confidence.
+1. [IWB Kydex Holster for Smith & Wesson M&P Shield](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=iwb-kydex-holster-for-smith-wesson-mp-shield) - Top-notch IWB Holster - Highly secure, custom-fit, inside-the-waistband Kydex holster from We The People, perfect for your Smith & Wesson M&P Shield, M20 or Plus 9mm/40, providing lifetime guarantee confidence.
 
-2. [Blade-Tech Classic OWB Holster for FN FNX-45 Tactical](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Classic OWB Holster for FN FNX-45 Tactical, crafted in the USA with adjustable retention and modular mounting, offers a secure fit and compatibility with IDPA & USPSA competition, perfect for serious marksmen.
+2. [Blade-Tech Classic OWB Holster for FN FNX-45 Tactical](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=blade-tech-classic-owb-holster-for-fn-fnx-45-tactical) - The Blade-Tech Classic OWB Holster for FN FNX-45 Tactical, crafted in the USA with adjustable retention and modular mounting, offers a secure fit and compatibility with IDPA & USPSA competition, perfect for serious marksmen.
 
-3. [Slim and Discreet IWB Holster for Glock 43/43X/43X MOS](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Klipt IWB Holster for Glock 43/43X offers a sleek, comfortable design, exceptional retention and secure firearm lock, making it an ideal choice for everyday concealed carry.
+3. [Slim and Discreet IWB Holster for Glock 43/43X/43X MOS](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=slim-and-discreet-iwb-holster-for-glock-4343x43x-mos) - The Blade-Tech Klipt IWB Holster for Glock 43/43X offers a sleek, comfortable design, exceptional retention and secure firearm lock, making it an ideal choice for everyday concealed carry.
 
-4. [Adjustable Retention OWB Holster for S&W 686 4](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Classic OWB Holster for S&W 686 4": Adjustable retention, Boltaron-built, IDPA/USPSA legal, lifetime guarantee - for unbeatable precision, performance, and peace of mind.
+4. [Adjustable Retention OWB Holster for S&W 686 4](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=adjustable-retention-owb-holster-for-sw-686-4) - The Blade-Tech Classic OWB Holster for S&W 686 4": Adjustable retention, Boltaron-built, IDPA/USPSA legal, lifetime guarantee - for unbeatable precision, performance, and peace of mind.
 
-5. [Outside the Waistband Holster for Glock 43/43X](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience top-quality craftsmanship with the Blade-Tech Signature OWB Holster for Glock 43/43X - offering a perfect fit, advanced features, and IDPA legal optic ready speed cut, all at an affordable price point!
+5. [Outside the Waistband Holster for Glock 43/43X](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=outside-the-waistband-holster-for-glock-4343x) - Experience top-quality craftsmanship with the Blade-Tech Signature OWB Holster for Glock 43/43X - offering a perfect fit, advanced features, and IDPA legal optic ready speed cut, all at an affordable price point!
 
-6. [Glock 29/30 OWB Holster: Durable and Secure Outside the Waistband Carry](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience secure, comfortable and precise OWB holster performance with Blade-Tech's IDPA legal, Optic Ready speed cut Signature OWB Holster for Glock 29/30, designed for right-handed shooters at an affordable price point.
+6. [Glock 29/30 OWB Holster: Durable and Secure Outside the Waistband Carry](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=glock-2930-owb-holster-durable-and-secure-outside-the-waistband-carry) - Experience secure, comfortable and precise OWB holster performance with Blade-Tech's IDPA legal, Optic Ready speed cut Signature OWB Holster for Glock 29/30, designed for right-handed shooters at an affordable price point.
 
-7. [Adjustable Glock 19 IWB Kydex Holster](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discreetly conceal your Glock 19 or 19X with the adjustable, high-quality Kydex IWB Holster by We The People Holsters, offering a perfect blend of comfort, flexibility, and reliability for secure carrying.
+7. [Adjustable Glock 19 IWB Kydex Holster](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=adjustable-glock-19-iwb-kydex-holster) - Discreetly conceal your Glock 19 or 19X with the adjustable, high-quality Kydex IWB Holster by We The People Holsters, offering a perfect blend of comfort, flexibility, and reliability for secure carrying.
 
-8. [Slim and Reliable OWB Holster for S&W Shield 9/40/Plus](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience superior comfort and reliability with the ambidextrous Blade-Tech Total Eclipse OWB Holster for the S&W Shield 9/40/Plus, perfect for left or right-handed shooters at a budget-friendly price.
+8. [Slim and Reliable OWB Holster for S&W Shield 9/40/Plus](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=slim-and-reliable-owb-holster-for-sw-shield-940plus) - Experience superior comfort and reliability with the ambidextrous Blade-Tech Total Eclipse OWB Holster for the S&W Shield 9/40/Plus, perfect for left or right-handed shooters at a budget-friendly price.
 
-9. [IWB Kydex Holster for Glock 43/43X - Adjustable Retention & Ride](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Top-rated, adjustable, and secure Inside-the-Waistband Kydex holster for Glock 43 and 43X models.
+9. [IWB Kydex Holster for Glock 43/43X - Adjustable Retention & Ride](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=iwb-kydex-holster-for-glock-4343x-adjustable-retention-ride) - Top-rated, adjustable, and secure Inside-the-Waistband Kydex holster for Glock 43 and 43X models.
 
-10. [Customizable Outside the Waistband Holster for 1911 5" Government with Rail](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience enhanced precision and performance with the adjustable, durability-focused Blade-Tech Classic OWB Holster for your 1911 5" Government with Rail, ensuring a secure, tactile experience with a lifetime guarantee for peace of mind.
+10. [Customizable Outside the Waistband Holster for 1911 5" Government with Rail](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=customizable-outside-the-waistband-holster-for-1911-5-government-with-rail) - Experience enhanced precision and performance with the adjustable, durability-focused Blade-Tech Classic OWB Holster for your 1911 5" Government with Rail, ensuring a secure, tactile experience with a lifetime guarantee for peace of mind.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [IWB Kydex Holster for Smith & Wesson M&P Shield](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [IWB Kydex Holster for Smith & Wesson M&P Shield](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=iwb-kydex-holster-for-smith-wesson-mp-shield)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="we-the-people-holsters-constitution-right-hand-iwb-holster-compatible-with-smith-wesson-mp-shield-m2-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/we-the-people-holsters-constitution-right-hand-iwb-holster-compatible-with-smith-wesson-mp-shield-m2-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=we-the-people-holsters-constitution-right-hand-iwb-holster-compatible-with-smith-wesson-mp-shield-m2-1"><img alt="we-the-people-holsters-constitution-right-hand-iwb-holster-compatible-with-smith-wesson-mp-shield-m2-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/we-the-people-holsters-constitution-right-hand-iwb-holster-compatible-with-smith-wesson-mp-shield-m2-1/public"/></a></div>
 
 I recently purchased this Kydex holster for my concealed carry needs and have been using it daily. One of the standout features of this holster is its precise fit for my specific gun model, providing me with an audible click when I securely holster my gun, giving me peace of mind that it's held in place safely.
 
@@ -52,9 +52,9 @@ However, there are a few areas where I believe this product could improve furthe
 
 Overall this Kydex Holster from Odin offers good value for money considering its lifetime guarantee against defects along with other great features like being waterproof and offering a precise fit for your specific gun model.
 
-### [Blade-Tech Classic OWB Holster for FN FNX-45 Tactical](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Blade-Tech Classic OWB Holster for FN FNX-45 Tactical](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=blade-tech-classic-owb-holster-for-fn-fnx-45-tactical)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1"><img alt="fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1/public"/></a></div>
 
 The Blade-Tech Classic OWB Holster has proven to be a reliable and durable option for my FN FNX-45 Tactical. Its high-quality construction, crafted from Boltaron in the USA, provides a precise and secure fit that I can trust on the range or in competition.
 
@@ -64,9 +64,9 @@ Another great aspect of this holster is its modular mounting holes which provide
 
 However, there were some minor issues when initially setting up this product as some adjustment screws spun freely instead of securing into place once set up according to desired positioning - something which was resolved through customer support assistance via email correspondences within a reasonable timeframe nevertheless. Despite these small hiccups, overall –this remains a solid choice worth considering for those looking for reliable carry options.
 
-### [Slim and Discreet IWB Holster for Glock 43/43X/43X MOS](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Slim and Discreet IWB Holster for Glock 43/43X/43X MOS](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=slim-and-discreet-iwb-holster-for-glock-4343x43x-mos)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="klipt-iwb-glock-43-43x-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-glock-43-43x-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=klipt-iwb-glock-43-43x-holster-right-handed-inside-the-waistband-klipt-blade-tech-1"><img alt="klipt-iwb-glock-43-43x-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-glock-43-43x-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
 
 I've been using this Blade-Tech Klipt IWB Holster for my Glock 43 / 43X / 43X MOS as an everyday carry option for a few weeks now, and it has exceeded my expectations. The sleek, discreet design of the holster makes it easy to conceal under clothing without adding bulk or discomfort. I particularly appreciate the high sweat guard that keeps my firearm off my body, preventing any irritation from moisture or slide serrations.
 
@@ -76,9 +76,9 @@ In terms of daily use, the holster has performed exceptionally well - providing 
 
 Overall, I highly recommend this Blade-Tech Klipt IWB Holster for anyone in search of an unobtrusive yet secure option for carrying their Glock 43 / 43X / 43X MOS on a daily basis.
 
-### [Adjustable Retention OWB Holster for S&W 686 4](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Adjustable Retention OWB Holster for S&W 686 4](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=adjustable-retention-owb-holster-for-sw-686-4)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sw-686-4-owb-holster-right-handed-smith-wesson-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-686-4-owb-holster-right-handed-smith-wesson-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=sw-686-4-owb-holster-right-handed-smith-wesson-blade-tech-1"><img alt="sw-686-4-owb-holster-right-handed-smith-wesson-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-686-4-owb-holster-right-handed-smith-wesson-blade-tech-1/public"/></a></div>
 
 I recently had the pleasure of trying out the Blade-Tech Classic OWB Holster for the S&W 686 4". My experience with it has been extremely positive.
 
@@ -90,9 +90,9 @@ However, I did encounter a minor hiccup when attempting to attach different moun
 
 In summary, this holster is a fantastic option for anyone searching for precision and performance in their carry solution while also offering features such as adjustable retention systems and compatible optics at an affordable price point!
 
-### [Outside the Waistband Holster for Glock 43/43X](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Outside the Waistband Holster for Glock 43/43X](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=outside-the-waistband-holster-for-glock-4343x)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glock-43-43x-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g43-g43x--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-43-43x-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g43-g43x--1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=glock-43-43x-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g43-g43x-1"><img alt="glock-43-43x-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g43-g43x--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-43-43x-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g43-g43x--1/public"/></a></div>
 
 I recently purchased the BladeTech Signature OWB Holster due to its affordability and positive reviews. After using it for a few months, I must say that I am quite impressed with its durability, fit, and versatility.
 
@@ -100,9 +100,9 @@ A feature that stands out is the adjustable retention, which allows me to tighte
 
 Although there are some minor downsides, such as releasing from paddle mounts being tricky at times due to their flatness on wider belts, this doesn't overshadow the holster's overall quality. Overall, I highly recommend purchasing a BladeTech Signature OWB Holster for an exceptional yet budget-friendly solution with excellent design and construction elements.
 
-### [Glock 29/30 OWB Holster: Durable and Secure Outside the Waistband Carry](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Glock 29/30 OWB Holster: Durable and Secure Outside the Waistband Carry](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=glock-2930-owb-holster-durable-and-secure-outside-the-waistband-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glock-29-30-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g29-g30-ho-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-29-30-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g29-g30-ho-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=glock-29-30-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g29-g30-ho-1"><img alt="glock-29-30-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g29-g30-ho-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-29-30-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g29-g30-ho-1/public"/></a></div>
 
 I have been using the Blade-Tech Signature OWB Holster for the Glock 29/30 for several months, and I have found it to be a reliable and durable option. One feature that stands out is the adjustable retention, which allows me to customize the fit of my firearm according to my preferences. The precision molding ensures a perfect fit for my gun, so it sits snugly in place without any wiggle room.
 
@@ -112,9 +112,9 @@ However, when running or performing other vigorous movements, there have been oc
 
 Overall, this product has met expectations given its pedigree derived from Blade-Tech’s legendary Classic OWB Holster lineup while offering a more affordable price point option within their range of premium quality products designed specifically for competition shooters who demand nothing less than top performance from their equipment investments!
 
-### [Adjustable Glock 19 IWB Kydex Holster](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Adjustable Glock 19 IWB Kydex Holster](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=adjustable-glock-19-iwb-kydex-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glock-19-19x-iwb-right-handed-holster-by-we-the-people-holsters-green-ink-swirl-kydex-adjustable-sec-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-19-19x-iwb-right-handed-holster-by-we-the-people-holsters-green-ink-swirl-kydex-adjustable-sec-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=glock-19-19x-iwb-right-handed-holster-by-we-the-people-holsters-green-ink-swirl-kydex-adjustable-sec-1"><img alt="glock-19-19x-iwb-right-handed-holster-by-we-the-people-holsters-green-ink-swirl-kydex-adjustable-sec-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-19-19x-iwb-right-handed-holster-by-we-the-people-holsters-green-ink-swirl-kydex-adjustable-sec-1/public"/></a></div>
 
 After using this Glock 19 IWB holster for a while, I found it to be a reliable choice for concealed carry. The Kydex material is durable and maintains a thin profile, making it easy to conceal under my clothing. One of my favorite features is the adjustable retention, allowing me to personalize the tension according to my liking. Additionally, the ride and cant can be adjusted for maximum flexibility in carrying positions.
 
@@ -124,9 +124,9 @@ In terms of comfort, this Glock 19 IWB holster provides adequate support but cou
 
 Overall, this is a solid product with plenty of useful features such as adjustability and secure attachment methods that make it suitable for many individual needs and preferences when carrying concealed firearms daily - though there are still areas where refinement can be made regarding its fitness for long-term use while seated or driving long distances without compromising on comfort levels experienced by those who choose such usage patterns frequently throughout their day-to-day routines alike too!
 
-### [Slim and Reliable OWB Holster for S&W Shield 9/40/Plus](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Slim and Reliable OWB Holster for S&W Shield 9/40/Plus](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=slim-and-reliable-owb-holster-for-sw-shield-940plus)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sw-shield-9-40-plus-total-eclipse-owb-holster-right-or-left-handed-carry-smith-wesson-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-shield-9-40-plus-total-eclipse-owb-holster-right-or-left-handed-carry-smith-wesson-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=sw-shield-9-40-plus-total-eclipse-owb-holster-right-or-left-handed-carry-smith-wesson-blade-tech-1"><img alt="sw-shield-9-40-plus-total-eclipse-owb-holster-right-or-left-handed-carry-smith-wesson-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-shield-9-40-plus-total-eclipse-owb-holster-right-or-left-handed-carry-smith-wesson-blade-tech-1/public"/></a></div>
 
 My experience with the Blade-Tech Total Eclipse OWB Holster for my S&W Shield 9/40/Plus has been quite positive. The ambidextrous design is one of the standout features, easily adapting to both left and right-handed shooters by simply switching the 1. 5" OWB loops to the preferred side.
 
@@ -136,9 +136,9 @@ The fit on my S&W Shield 9/40/Plus is great, allowing for smooth draws while off
 
 Made in the USA from high strength heat resistant polymer, this holster showcases its durability during daily use - a testament to its quality construction without compromising on functionality at such an affordable price point. I would highly recommend this product for any type of shooter seeking a reliable and comfortable OWB holster solution.
 
-### [IWB Kydex Holster for Glock 43/43X - Adjustable Retention & Ride](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [IWB Kydex Holster for Glock 43/43X - Adjustable Retention & Ride](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=iwb-kydex-holster-for-glock-4343x-adjustable-retention-ride)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glock-43-43x-iwb-right-handed-holster-by-we-the-people-holsters-i-love-the-90s-kydex-adjustable-secu-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-43-43x-iwb-right-handed-holster-by-we-the-people-holsters-i-love-the-90s-kydex-adjustable-secu-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=glock-43-43x-iwb-right-handed-holster-by-we-the-people-holsters-i-love-the-90s-kydex-adjustable-secu-1"><img alt="glock-43-43x-iwb-right-handed-holster-by-we-the-people-holsters-i-love-the-90s-kydex-adjustable-secu-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-43-43x-iwb-right-handed-holster-by-we-the-people-holsters-i-love-the-90s-kydex-adjustable-secu-1/public"/></a></div>
 
 As a regular user of the Glock 43/43X IWB Holster by We The People Holsters, I must say that it has proven to be a reliable and comfortable option for concealed carry. Crafted from thin and lightweight Kydex material, the holster effortlessly adapts to my daily routine without adding any unnecessary bulk or discomfort.
 
@@ -150,9 +150,9 @@ Another great feature worth mentioning is its compatibility with standard pistol
 
 Overall, this Glock 43/43X IWB Holster has become an essential part of my daily carry setup thanks to its combination of comfort, functionality and reliability; highly recommended for those seeking a quality concealed carry option!
 
-### [Customizable Outside the Waistband Holster for 1911 5" Government with Rail](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Customizable Outside the Waistband Holster for 1911 5" Government with Rail](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=customizable-outside-the-waistband-holster-for-1911-5-government-with-rail)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="1911-5-government-with-rail-owb-holster-right-handed-1911-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1911-5-government-with-rail-owb-holster-right-handed-1911-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=1911-5-government-with-rail-owb-holster-right-handed-1911-blade-tech-1"><img alt="1911-5-government-with-rail-owb-holster-right-handed-1911-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1911-5-government-with-rail-owb-holster-right-handed-1911-blade-tech-1/public"/></a></div>
 
 I have been using the Blade-Tech Classic OWB Holster for my 1911 for quite some time now, and I must say that it has become my go-to choice for everyday carry. The holster's adjustable retention screws allow me to fine-tune the fit and security level of my firearm, giving me peace of mind when it's holstered. The modular mounting holes also provide a great level of versatility, allowing me to customize the draw and ride of my holster according to my preferences or specific situations.
 
@@ -164,7 +164,7 @@ It's important to note that some users have reported issues with adjusting the s
 
 ### Important Features to Look For in Alpha Holsters
 
-<div><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Alpha+Holsters-2/public" alt="Alpha Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=alpha-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Alpha+Holsters-2/public" alt="Alpha Holsters-2"></a></div>
 
 When shopping for Alpha Holsters, consider these essential features to ensure you get the best fit and functionality:
 
@@ -202,7 +202,7 @@ To find the perfect Alpha Holster for your needs, implement these tips:
 
 4. Stick to well-known and reputable brands in the market, as they are more likely to provide superior quality products and customer service.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Alpha+Holsters-3/public" alt="Alpha Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=alpha-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Alpha+Holsters-3/public" alt="Alpha Holsters-3"></a></div>
 
 ## FAQ
 
@@ -212,7 +212,7 @@ Alpha Holsters are specialized holsters designed for firearms. They are made usi
 
 ### Q2. What types of Alpha Holsters are available?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Alpha+Holsters-4/public" alt="Alpha Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=alpha-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Alpha+Holsters-4/public" alt="Alpha Holsters-4"></a></div>
 
 There are various types of Alpha Holsters available, including IWB (Inside the Waistband), OWB (Outside the Waistband), Tuckable, Ankle Holsters, and Shoulder Holsters. Each type is designed to meet specific needs and preferences.
 
@@ -224,7 +224,7 @@ To choose the right Alpha Holster, consider factors such as the size and type of
 
 Yes, Alpha Holsters offers holsters designed specifically for women, featuring adjustable retention and size options for a comfortable and secure fit.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Alpha+Holsters-5/public" alt="Alpha Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=alpha-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Alpha+Holsters-5/public" alt="Alpha Holsters-5"></a></div>
 
 ### Q5. What materials are used in Alpha Holsters?
 
@@ -236,7 +236,7 @@ Alpha Holsters are designed for quick and easy access to your firearm. The preci
 
 ### Q7. How do I care for and maintain my Alpha Holster?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Alpha+Holsters-6/public" alt="Alpha Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=alpha-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Alpha+Holsters-6/public" alt="Alpha Holsters-6"></a></div>
 
 To maintain your Alpha Holster, clean it gently with a soft cloth and mild soap or leather cleaner. Ensure that your holster is dry before storing it in a cool, dry place. For more detailed care instructions, consult your Alpha Holster's user manual or contact their customer support team.
 

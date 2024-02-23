@@ -16,33 +16,33 @@ Are you a zombie apocalypse survivalist or just a thrill-seeking shooter? Look n
 
 ## The Top 10 Best Zombie Targets
 
-1. [Caldwell AR500 Steel - 10" Coffin Target for Hunting and Shooting Practice](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Rated up to 3,000 FPS Impact velocity and 3,500 FT LBS impact energy, the Caldwell AR500 10" Coffin Target is perfect for shooting enthusiasts looking for durable and versatile steel targets.
+1. [Caldwell AR500 Steel - 10" Coffin Target for Hunting and Shooting Practice](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=caldwell-ar500-steel-10-coffin-target-for-hunting-and-shooting-practice) - Rated up to 3,000 FPS Impact velocity and 3,500 FT LBS impact energy, the Caldwell AR500 10" Coffin Target is perfect for shooting enthusiasts looking for durable and versatile steel targets.
 
-2. [25 Yard Silhouette Target for Law Enforcement Training](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The B-21E Police Silhouette Target from CHLTargets.com is a 21-yard NRA paper target, perfect for practicing shoot-to-kill and shoot-to-disable techniques, featuring a 22.5" x 35" size and made in the USA.
+2. [25 Yard Silhouette Target for Law Enforcement Training](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=25-yard-silhouette-target-for-law-enforcement-training) - The B-21E Police Silhouette Target from CHLTargets.com is a 21-yard NRA paper target, perfect for practicing shoot-to-kill and shoot-to-disable techniques, featuring a 22.5" x 35" size and made in the USA.
 
-3. [6" AR500 Steel Gong Target for Rifles and Pistols](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the thrill of laser-cut USA steel AR500 gong targets in various sizes for rifles, offering unmatched hardness and durability for long-lasting precision practice, enhancing shooter proficiency up to 50% faster than traditional paper targets.
+3. [6" AR500 Steel Gong Target for Rifles and Pistols](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=6-ar500-steel-gong-target-for-rifles-and-pistols) - Experience the thrill of laser-cut USA steel AR500 gong targets in various sizes for rifles, offering unmatched hardness and durability for long-lasting precision practice, enhancing shooter proficiency up to 50% faster than traditional paper targets.
 
-4. [Self-Healing Varmint Target with Spinning Feature](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Champion DuraSeal Single 5.5 inch Spinner Target is an excellent choice for shooting practice, featuring a self-sealing design that withstands various calibers, auto-resetting mechanism, and a 5.5-inch orange varmint target for optimal visibility.
+4. [Self-Healing Varmint Target with Spinning Feature](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=self-healing-varmint-target-with-spinning-feature) - Champion DuraSeal Single 5.5 inch Spinner Target is an excellent choice for shooting practice, featuring a self-sealing design that withstands various calibers, auto-resetting mechanism, and a 5.5-inch orange varmint target for optimal visibility.
 
-5. [High-Visibility Splatterburst Targets for Immediate Shot Feedback](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Splatterburst 12" Stick Splatter Reactive Targets: Highly visible and reactive targets to improve accuracy, shoot longer with 20 cover patches & patented design.
+5. [High-Visibility Splatterburst Targets for Immediate Shot Feedback](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=high-visibility-splatterburst-targets-for-immediate-shot-feedback) - Splatterburst 12" Stick Splatter Reactive Targets: Highly visible and reactive targets to improve accuracy, shoot longer with 20 cover patches & patented design.
 
-6. [Bright Splatterburst Shooting Targets for Improved Aim - 15 Pack](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Splatterburst Targets: High-Visibility 3" Shooting Targets, Perfect for Firearms, Indoor & Outdoor use & All Firearms & Calibers, Enhance Aim & Improve Shooting Skills.
+6. [Bright Splatterburst Shooting Targets for Improved Aim - 15 Pack](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=bright-splatterburst-shooting-targets-for-improved-aim-15-pack) - Splatterburst Targets: High-Visibility 3" Shooting Targets, Perfect for Firearms, Indoor & Outdoor use & All Firearms & Calibers, Enhance Aim & Improve Shooting Skills.
 
-7. [USPSA Training Target Set for Dryfire Practice and Home Decor](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - High-quality USPSA Training Target Set, perfect for dryfire practice or man cave decorations, complete with varying heights and easily mountable for versatile use, ideal gift for shooters and enthusiasts.
+7. [USPSA Training Target Set for Dryfire Practice and Home Decor](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=uspsa-training-target-set-for-dryfire-practice-and-home-decor) - High-quality USPSA Training Target Set, perfect for dryfire practice or man cave decorations, complete with varying heights and easily mountable for versatile use, ideal gift for shooters and enthusiasts.
 
-8. [Zombie Shooting Targets for Firearms and Air Guns](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Revolutionize your shooting experience with Splatterburst Targets' high-contrast coloring that lets you quickly see your shots, 12"x12" sight-in adhesive, versatile for all firearms, and proudly made in the USA.
+8. [Zombie Shooting Targets for Firearms and Air Guns](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=zombie-shooting-targets-for-firearms-and-air-guns) - Revolutionize your shooting experience with Splatterburst Targets' high-contrast coloring that lets you quickly see your shots, 12"x12" sight-in adhesive, versatile for all firearms, and proudly made in the USA.
 
-9. [100-Pack SG Zombie Air Rifle Targets on 14 x 14cm Card](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - 100x Vibrant SG Zombie Targets from England – High-Quality 14cm x 14cm Card Range Perfect for Practice Shooting.
+9. [100-Pack SG Zombie Air Rifle Targets on 14 x 14cm Card](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=100-pack-sg-zombie-air-rifle-targets-on-14-x-14cm-card) - 100x Vibrant SG Zombie Targets from England – High-Quality 14cm x 14cm Card Range Perfect for Practice Shooting.
 
-10. [Self-Healing Zombie Targets for Archery Practice (5.5" Diameter)](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - SimpleShot's Self Healing Targets with a 5.5" diameter offer precision practice while ensuring durability and easy reusability, making them ideal for both ardent archers and zombie hunters.
+10. [Self-Healing Zombie Targets for Archery Practice (5.5" Diameter)](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=self-healing-zombie-targets-for-archery-practice-55-diameter) - SimpleShot's Self Healing Targets with a 5.5" diameter offer precision practice while ensuring durability and easy reusability, making them ideal for both ardent archers and zombie hunters.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Caldwell AR500 Steel - 10" Coffin Target for Hunting and Shooting Practice](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Caldwell AR500 Steel - 10" Coffin Target for Hunting and Shooting Practice](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=caldwell-ar500-steel-10-coffin-target-for-hunting-and-shooting-practice)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="caldwell-ar500-10-coffin-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/caldwell-ar500-10-coffin-target-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=caldwell-ar500-10-coffin-target-1"><img alt="caldwell-ar500-10-coffin-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/caldwell-ar500-10-coffin-target-1/public"/></a></div>
 
 As a frequent target practice enthusiast, I purchased the Caldwell AR500 10 Inch Coffin Steel Target and I must say, it has become my go-to for all my shooting sessions. The quality of this steel target is top-notch and can endure thousands of rounds without showing any signs of wear or tear. Its durability is further proven by its ability to withstand up to 3, 000 FPS impact velocity and 3, 500 FT LBS impact energy.
 
@@ -52,9 +52,9 @@ The dimensions of this target are perfect – measuring 13 inches in length, 8 i
 
 Overall, if you're looking for a high-quality steel target that can withstand numerous rounds while providing excellent visibility during practice sessions – look no further than the Caldwell AR500 10 Inch Coffin Steel Target! It has definitely exceeded my expectations and become a staple in my shooting arsenal due to its durability, versatility, and convenience!
 
-### [25 Yard Silhouette Target for Law Enforcement Training](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [25 Yard Silhouette Target for Law Enforcement Training](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=25-yard-silhouette-target-for-law-enforcement-training)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="chltargets-com-b-21e-target-21-yard-target-shooting-paper-targets-22-5-x-35-police-silhouette-black--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/chltargets-com-b-21e-target-21-yard-target-shooting-paper-targets-22-5-x-35-police-silhouette-black--1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=chltargets-com-b-21e-target-21-yard-target-shooting-paper-targets-22-5-x-35-police-silhouette-black-1"><img alt="chltargets-com-b-21e-target-21-yard-target-shooting-paper-targets-22-5-x-35-police-silhouette-black--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/chltargets-com-b-21e-target-21-yard-target-shooting-paper-targets-22-5-x-35-police-silhouette-black--1/public"/></a></div>
 
 The 25 Yard Silhouette Targets have been a fantastic tool to improve my shooting skills and accuracy. Made with high-quality materials, these targets are easy to set up and use, both indoors and outdoors. I particularly like the Police Silhouette design which provides a more realistic target practice experience.
 
@@ -62,9 +62,9 @@ Although some customers may prefer larger targets, these measure 22. 5" x 35", m
 
 Overall, I highly recommend the 25 Yard Silhouette Targets for anyone looking to improve their shooting drills and consistency in an engaging and realistic way.
 
-### [6" AR500 Steel Gong Target for Rifles and Pistols](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [6" AR500 Steel Gong Target for Rifles and Pistols](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=6-ar500-steel-gong-target-for-rifles-and-pistols)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="shootingtargets7-ar500-steel-gong-target-6-x-3-8-inch-for-rifles-to-308-laser-cut-usa-steel-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shootingtargets7-ar500-steel-gong-target-6-x-3-8-inch-for-rifles-to-308-laser-cut-usa-steel-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=shootingtargets7-ar500-steel-gong-target-6-x-3-8-inch-for-rifles-to-308-laser-cut-usa-steel-1"><img alt="shootingtargets7-ar500-steel-gong-target-6-x-3-8-inch-for-rifles-to-308-laser-cut-usa-steel-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shootingtargets7-ar500-steel-gong-target-6-x-3-8-inch-for-rifles-to-308-laser-cut-usa-steel-1/public"/></a></div>
 
 Having tested and used the product for several weeks, I was thoroughly impressed with its quality, durability, and performance. The key features are impressive and work flawlessly, making it an excellent investment for anyone in need of this specific item.
 
@@ -76,9 +76,9 @@ In terms of quality, design, functionality, versatility, and customer support �
 
 Remember to always follow safety guidelines when using products like these to ensure a smooth experience.
 
-### [Self-Healing Varmint Target with Spinning Feature](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Self-Healing Varmint Target with Spinning Feature](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=self-healing-varmint-target-with-spinning-feature)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="champion-duraseal-single-5-5-inch-spinner-target-varmint-orange-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/champion-duraseal-single-5-5-inch-spinner-target-varmint-orange-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=champion-duraseal-single-5-5-inch-spinner-target-varmint-orange-1"><img alt="champion-duraseal-single-5-5-inch-spinner-target-varmint-orange-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/champion-duraseal-single-5-5-inch-spinner-target-varmint-orange-1/public"/></a></div>
 
 As a frequent shooter, I recently had the opportunity to test out the DuraSeal self-sealing target from Champion. The first thing that stood out to me was how lightweight it was, being 80% lighter than metal targets. This made it incredibly easy to transport and set up in various locations.
 
@@ -88,9 +88,9 @@ One unique feature of this target is its wobble upon impact – when you hit it,
 
 Overall, I found my experience with this DuraSeal target from Champion to be enjoyable and efficient due to its portability and auto-resetting functionality. While there's room for improvement in terms of target shape options, it's still worth considering if you're looking for an engaging shooting experience that won't break your budget or wear down quickly due to its self-sealing material technology!
 
-### [High-Visibility Splatterburst Targets for Immediate Shot Feedback](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [High-Visibility Splatterburst Targets for Immediate Shot Feedback](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=high-visibility-splatterburst-targets-for-immediate-shot-feedback)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="splatterburst-targets-12-inch-stick-splatter-reactive-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/splatterburst-targets-12-inch-stick-splatter-reactive-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=splatterburst-targets-12-inch-stick-splatter-reactive-1"><img alt="splatterburst-targets-12-inch-stick-splatter-reactive-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/splatterburst-targets-12-inch-stick-splatter-reactive-1/public"/></a></div>
 
 As a satisfied owner and frequent user of these target stickers, I can attest to the enjoyment and practicality they bring to my shooting routine. The bright yellow splatters upon impact are highly visible from a distance, making it easy to see my shots without having to continually walk back and forth. This feature alone has significantly enhanced my shooting experience while also extending the life of targets.
 
@@ -98,23 +98,23 @@ The included cover patches add an extra layer of protection, further prolonging 
 
 Although these targets have been exceptional in terms of functionality, there are some areas for improvement such as their size and durability when exposed to harsh weather conditions. However, they are well-suited for indoor or outdoor ranges with standard firearms and are an excellent addition for anyone looking to improve their marksmanship skills in a fun and engaging way. Overall, I highly recommend this product for its usefulness and visual appeal on the range.
 
-### [Bright Splatterburst Shooting Targets for Improved Aim - 15 Pack](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Bright Splatterburst Shooting Targets for Improved Aim - 15 Pack](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=bright-splatterburst-shooting-targets-for-improved-aim-15-pack)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="splatterburst-targets-12-x-18-inch-3-inch-bullseye-shooting-target-shots-burst-bright-fluorescent-ye-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/splatterburst-targets-12-x-18-inch-3-inch-bullseye-shooting-target-shots-burst-bright-fluorescent-ye-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=splatterburst-targets-12-x-18-inch-3-inch-bullseye-shooting-target-shots-burst-bright-fluorescent-ye-1"><img alt="splatterburst-targets-12-x-18-inch-3-inch-bullseye-shooting-target-shots-burst-bright-fluorescent-ye-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/splatterburst-targets-12-x-18-inch-3-inch-bullseye-shooting-target-shots-burst-bright-fluorescent-ye-1/public"/></a></div>
 
 As an avid shooter, I've tried various targets in my time, but these 12" Multi Bullseye Splatterburst Targets have been a game-changer for me. The bright yellow bullet holes make it incredibly easy to spot my shots from a distance, even in low light conditions. Not only do they save me time by not having to constantly walk downrange to check my shots, but they're also made of heavy-duty tagboard that can withstand numerous rounds without falling apart. Perfect for both indoor and outdoor use with any firearm or caliber, these targets have noticeably improved my aim. If you're looking for high-visibility targets that will help you improve your shooting experience and save you time, then I highly recommend giving these a try!
 
-### [USPSA Training Target Set for Dryfire Practice and Home Decor](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [USPSA Training Target Set for Dryfire Practice and Home Decor](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=uspsa-training-target-set-for-dryfire-practice-and-home-decor)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="uspsa-training-target-set-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/uspsa-training-target-set-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=uspsa-training-target-set-1"><img alt="uspsa-training-target-set-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/uspsa-training-target-set-1/public"/></a></div>
 
 After using the USPSA Training Targets for my dry fire practice, I can attest to their effectiveness. The targets come in various sizes, making them perfect for transition practice and improving aim control. The fact that they are easily mountable with any adhesive is a major plus.
 
 One minor issue is the lack of size indicators on the back of the targets, which would have been helpful. Nevertheless, these targets are of excellent quality and definitely worth recommending to other shooters.
 
-### [Zombie Shooting Targets for Firearms and Air Guns](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Zombie Shooting Targets for Firearms and Air Guns](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=zombie-shooting-targets-for-firearms-and-air-guns)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="splatterburst-targets-12x12-sight-in-adhesive-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/splatterburst-targets-12x12-sight-in-adhesive-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=splatterburst-targets-12x12-sight-in-adhesive-1"><img alt="splatterburst-targets-12x12-sight-in-adhesive-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/splatterburst-targets-12x12-sight-in-adhesive-1/public"/></a></div>
 
 I recently tried out the Stick & Splatter "Zombie Shooting Targets" for my daily practice and I must say, they exceeded my expectations. The adhesive backing works like a charm, keeping them firmly in place at any range. I was impressed by how easily the bright yellow burst upon impact allowed me to track my shots from a distance.
 
@@ -122,9 +122,9 @@ These targets are incredibly versatile, working great with airsoft and BB guns a
 
 While there may be some wasted space around the edges due to its square shape, it doesn't hinder their performance in any way. Overall, Zombie Shooting Targets are fantastic options that offer long-lasting target practice for shooters of all levels.
 
-### [100-Pack SG Zombie Air Rifle Targets on 14 x 14cm Card](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [100-Pack SG Zombie Air Rifle Targets on 14 x 14cm Card](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=100-pack-sg-zombie-air-rifle-targets-on-14-x-14cm-card)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="100-x-air-rifle-sg-zombie-colour-target-design-on-card-14-x-14cm-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/100-x-air-rifle-sg-zombie-colour-target-design-on-card-14-x-14cm-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=100-x-air-rifle-sg-zombie-colour-target-design-on-card-14-x-14cm-1"><img alt="100-x-air-rifle-sg-zombie-colour-target-design-on-card-14-x-14cm-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/100-x-air-rifle-sg-zombie-colour-target-design-on-card-14-x-14cm-1/public"/></a></div>
 
 I have been using the Zombie Shooting Targets by CL Print Solutions as part of my shooting routine, and I'm happy to say that they have become a staple in my practice. The targets are printed on high-quality 170gsm and 275gsm cardstock, ensuring their durability and longevity for both indoor and outdoor use.
 
@@ -132,9 +132,9 @@ One of the most notable features is the vibrant design that makes practicing mor
 
 In conclusion, the Zombie Shooting Targets by CL Print Solutions have been great fun to use and have undoubtedly enhanced my practice range experience!
 
-### [Self-Healing Zombie Targets for Archery Practice (5.5" Diameter)](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Self-Healing Zombie Targets for Archery Practice (5.5" Diameter)](https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=self-healing-zombie-targets-for-archery-practice-55-diameter)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="self-healing-targets-5-5-diameter-simpleshot-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/self-healing-targets-5-5-diameter-simpleshot-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=self-healing-targets-5-5-diameter-simpleshot-1"><img alt="self-healing-targets-5-5-diameter-simpleshot-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/self-healing-targets-5-5-diameter-simpleshot-1/public"/></a></div>
 
 I've been using the 5. 5" diameter Self Healing Targets from SimpleShot for several months, and they have become an indispensable part of my target practice routine. The Zombie design adds an element of fun to the experience, making it more enjoyable. These targets are quite durable and hold up well even after multiple rounds, thanks to the self-healing feature that ensures they last longer than traditional paper ones.
 
@@ -144,7 +144,7 @@ Nevertheless, I would still recommend giving this product a try if you enjoy rec
 
 ## Buyer's Guide
 
-<div><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Zombie+Targets-2/public" alt="Zombie Targets-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=zombie-targets-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Zombie+Targets-2/public" alt="Zombie Targets-2"></a></div>
 
 ### Important Features to Look for in Zombie Targets
 
@@ -168,7 +168,7 @@ Before making a purchase, think about:
 
 - Storage Space: Ensure you have enough room to store your targets when not in use.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Zombie+Targets-3/public" alt="Zombie Targets-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=zombie-targets-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Zombie+Targets-3/public" alt="Zombie Targets-3"></a></div>
 
 ### General Advice for Using Zombie Targets
 
@@ -182,7 +182,7 @@ To get the most out of your targets:
 
 ## FAQ
 
-<div><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Zombie+Targets-4/public" alt="Zombie Targets-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=zombie-targets-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Zombie+Targets-4/public" alt="Zombie Targets-4"></a></div>
 
 ### What are Zombie Targets?
 
@@ -196,7 +196,7 @@ Zombie Targets are shooting targets designed with a zombie theme, often depictin
 
 - Steel zombie targets: These are durable and allow for more audible feedback when hit, often used for long-distance shooting.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Zombie+Targets-5/public" alt="Zombie Targets-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=zombie-targets-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Zombie+Targets-5/public" alt="Zombie Targets-5"></a></div>
 
 ### How do Zombie Targets improve shooting skills?
 
@@ -206,7 +206,7 @@ Zombie Targets provide a fun and engaging way to practice shooting skills, helpi
 
 Zombie Targets can be used with various calibers, depending on the target's design and material. Generally, calibers such as. 22LR, . 38 Special, . 45 ACP, 9mm, and even larger such as. 223 Remington or 7.62x39mm are suitable for shooting at zombie targets. Always ensure the target is rated for your specific caliber before using it.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Zombie+Targets-6/public" alt="Zombie Targets-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/zombie-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=zombie-targets&utm_term=zombie-targets-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Zombie+Targets-6/public" alt="Zombie Targets-6"></a></div>
 
 ### How long do 3D zombie targets last?
 

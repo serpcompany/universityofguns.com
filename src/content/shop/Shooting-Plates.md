@@ -16,25 +16,25 @@ Are you an avid shooter looking for new exciting challenges but have exhausted y
 
 ## The Top 6 Best Shooting Plates
 
-1. [Do-All Triple Spinner for .22 Rimfire Airguns - Improve Your Marksmanship with Hands-Free Spinning Targets](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Do-All Triple Spinner is the perfect solution for enhancing your .22 rimfire airgun practice, featuring an all-steel construction, interchangeable spinning targets, and compatibility with paper targets for versatile shooting experience.
+1. [Do-All Triple Spinner for .22 Rimfire Airguns - Improve Your Marksmanship with Hands-Free Spinning Targets](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=do-all-triple-spinner-for-22-rimfire-airguns-improve-your-marksmanship-with-hands-free-spinning-targets) - The Do-All Triple Spinner is the perfect solution for enhancing your .22 rimfire airgun practice, featuring an all-steel construction, interchangeable spinning targets, and compatibility with paper targets for versatile shooting experience.
 
-2. [Reactive Spinning Shooting Targets for .22 Rimfire](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Highly Durable and Convenient Shooting Target Set for Your Private Shooting Galley Experience.
+2. [Reactive Spinning Shooting Targets for .22 Rimfire](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=reactive-spinning-shooting-targets-for-22-rimfire) - Highly Durable and Convenient Shooting Target Set for Your Private Shooting Galley Experience.
 
-3. [High-Quality Shooting Plates](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience exceptional accuracy with the Ridgeline 3 Pack Target Set, designed for both rimfire and centerfire pistol and rifle practice, ensuring hours of enjoyable and challenging shooting activity.
+3. [High-Quality Shooting Plates](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=high-quality-shooting-plates) - Experience exceptional accuracy with the Ridgeline 3 Pack Target Set, designed for both rimfire and centerfire pistol and rifle practice, ensuring hours of enjoyable and challenging shooting activity.
 
-4. [Rimfire Dueling Tree Target for Shooting Practice](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Perfect your shooting skills with the Champion Rimfire Dueling Tree Target - a precision-enhancing practice tool specifically designed for rimfire firearms.
+4. [Rimfire Dueling Tree Target for Shooting Practice](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=rimfire-dueling-tree-target-for-shooting-practice) - Perfect your shooting skills with the Champion Rimfire Dueling Tree Target - a precision-enhancing practice tool specifically designed for rimfire firearms.
 
-5. [Tactical Scorpion Gear Level III Body Armor Plates](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Level III AR500 Body Armor Plates by Tactical Scorpion Gear: Fully encapsulated, multiple hit capability, and independently tested to protect against 7.62 NATO bullets, making it an ideal choice for front and/or back protection.
+5. [Tactical Scorpion Gear Level III Body Armor Plates](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=tactical-scorpion-gear-level-iii-body-armor-plates) - Level III AR500 Body Armor Plates by Tactical Scorpion Gear: Fully encapsulated, multiple hit capability, and independently tested to protect against 7.62 NATO bullets, making it an ideal choice for front and/or back protection.
 
-6. [Franklin Sports NHL Knock-out Shooting Targets Set](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Franklin Sports NHL "Knock-Out" Shooting Targets: Improve your hockey accuracy with these pop-up foam targets designed for easy placement and secure attachment to any goal, perfect for practicing your shooting skills.
+6. [Franklin Sports NHL Knock-out Shooting Targets Set](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=franklin-sports-nhl-knock-out-shooting-targets-set) - Franklin Sports NHL "Knock-Out" Shooting Targets: Improve your hockey accuracy with these pop-up foam targets designed for easy placement and secure attachment to any goal, perfect for practicing your shooting skills.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Do-All Triple Spinner for .22 Rimfire Airguns - Improve Your Marksmanship with Hands-Free Spinning Targets](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Do-All Triple Spinner for .22 Rimfire Airguns - Improve Your Marksmanship with Hands-Free Spinning Targets](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=do-all-triple-spinner-for-22-rimfire-airguns-improve-your-marksmanship-with-hands-free-spinning-targets)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="do-all-triple-spinner-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/do-all-triple-spinner-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=do-all-triple-spinner-1"><img alt="do-all-triple-spinner-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/do-all-triple-spinner-1/public"/></a></div>
 
 I've spent quite a bit of time testing out this Do All Outdoors 22 Spinner Rimfire target set, and I must say that it's become a crucial part of my daily shooting routine. This target set is specifically designed for soft-nosed. 22 pistol and rifle shooters, making it perfect for my practice sessions. The hands-free design, which allows the bullet force to spin the targets back into position, is incredibly convenient and user-friendly.
 
@@ -42,9 +42,9 @@ Setting up this target system is super easy thanks to its four stabilizing legs 
 
 Another small issue you might encounter is that the targets are rather close together - something some shooters may not like. However, this issue can be resolved by adding more space between them or using a larger base for added stability on sandy or gravelly ground - something one reviewer found helpful in their own experience. Overall though despite these minor issues; this budget friendly option offers great value particularly as far as durability goes thanks largely due its all steel construction capable enough handling multiple hits from. 22 caliber rounds without sustaining any damage whatsoever – perfect addition to any backyard range! .
 
-### [Reactive Spinning Shooting Targets for .22 Rimfire](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Reactive Spinning Shooting Targets for .22 Rimfire](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=reactive-spinning-shooting-targets-for-22-rimfire)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="guide-gear-steel-auto-reset-and-spinner-shooting-targets-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/guide-gear-steel-auto-reset-and-spinner-shooting-targets-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=guide-gear-steel-auto-reset-and-spinner-shooting-targets-1"><img alt="guide-gear-steel-auto-reset-and-spinner-shooting-targets-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/guide-gear-steel-auto-reset-and-spinner-shooting-targets-1/public"/></a></div>
 
 I recently tested the Guide Gear. 22 Rimfire Reactive Shooting Target Set in my backyard and found it to be a fantastic product for those looking to have some fun while practicing their shooting skills. The set offers a range of seven different targets, including spinning popper targets and self-healing targets. The setup process is quick and easy, allowing you to start your shooting session right away.
 
@@ -52,9 +52,9 @@ One of the major benefits of this target set is its instant feedback mechanism �
 
 Although there are some concerns about quality control with certain models having shorter legs than desired, overall this product still provides outstanding value for money given its affordable price tag and durability during sessions if used correctly. Keep an eye on your ammo velocity though - don't exceed 30 yards when aiming at these compact yet incredibly satisfying targets! All in all, this reactive target set will definitely keep you entertained while helping improve your accuracy in a safe and legal manner.
 
-### [High-Quality Shooting Plates](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [High-Quality Shooting Plates](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=high-quality-shooting-plates)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="ridgeline-3-pack-target-set-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ridgeline-3-pack-target-set-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=ridgeline-3-pack-target-set-1"><img alt="ridgeline-3-pack-target-set-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ridgeline-3-pack-target-set-1/public"/></a></div>
 
 The Ridgeline 3 Pack Target Set, a perfect plinking partner for those hot summer days when you just want to unleash your inner sharpshooter. I've been using this set for a few weeks now, and it's been a game-changer. The set includes a 1-3/4 inch rimfire rifle/pistol dual spinner target, a 3-inch rimfire rifle/pistol spinner target, a 5-inch centerfire pistol spinner target, and a 5-inch centerfire rifle gong target.
 
@@ -64,9 +64,9 @@ However, one issue I've encountered is with the stability of the stands. They ca
 
 Overall, the Ridgeline 3 Pack Target Set is a great addition to any shooter's collection. It's affordable, easy to set up, and most importantly, a ton of fun to use. Despite the stability issue, I'm confident these will keep me entertained for many shooting sessions to come.
 
-### [Rimfire Dueling Tree Target for Shooting Practice](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Rimfire Dueling Tree Target for Shooting Practice](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=rimfire-dueling-tree-target-for-shooting-practice)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="champion-rimfire-dueling-tree-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/champion-rimfire-dueling-tree-target-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=champion-rimfire-dueling-tree-target-1"><img alt="champion-rimfire-dueling-tree-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/champion-rimfire-dueling-tree-target-1/public"/></a></div>
 
 As a shooting enthusiast, I must say that the Champion Rimfire Dueling Tree Target has been an absolute game-changer for my practice sessions. This beauty is specifically designed for rimfire firearms, and it's truly enhanced my precision game.
 
@@ -76,9 +76,9 @@ I've used many targets over the years, and I can confidently say that this one s
 
 All in all, if you're in the market for a top-notch dueling tree target that offers hours of non-stop fun, look no further than the Champion Rimfire Dueling Tree Target.
 
-### [Tactical Scorpion Gear Level III Body Armor Plates](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Tactical Scorpion Gear Level III Body Armor Plates](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=tactical-scorpion-gear-level-iii-body-armor-plates)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="tactical-scorpion-gear-level-iii-ar500-steel-body-armor-pair-6x6-flat-plate-coated-quick-ship-level--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tactical-scorpion-gear-level-iii-ar500-steel-body-armor-pair-6x6-flat-plate-coated-quick-ship-level--1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=tactical-scorpion-gear-level-iii-ar500-steel-body-armor-pair-6x6-flat-plate-coated-quick-ship-level-1"><img alt="tactical-scorpion-gear-level-iii-ar500-steel-body-armor-pair-6x6-flat-plate-coated-quick-ship-level--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tactical-scorpion-gear-level-iii-ar500-steel-body-armor-pair-6x6-flat-plate-coated-quick-ship-level--1/public"/></a></div>
 
 I have had the pleasure of using Scorpion Gear's Level III AR500 Steel Body Armor Pair for months now, and I must say that it has been an exemplary addition to my personal protection gear. This armor's multiple hit capability, made possible by its fully encapsulated construction, offers unparalleled durability and has left me feeling safe and secure during each use.
 
@@ -88,9 +88,9 @@ However, it's essential to note that not all armor plate sellers disclose the cu
 
 In summary, the Scorpion Gear Level III AR500 Steel Body Armor Pair has been an excellent addition to my personal protection gear. The armor's durability, resistance to corrosion, and its impressive ability to protect against multiple bullet impacts make it a must-have for anyone seeking high-quality, reliable body armor.
 
-### [Franklin Sports NHL Knock-out Shooting Targets Set](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Franklin Sports NHL Knock-out Shooting Targets Set](https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=franklin-sports-nhl-knock-out-shooting-targets-set)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="franklin-sports-nhl-knock-out-shooting-targets-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/franklin-sports-nhl-knock-out-shooting-targets-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=franklin-sports-nhl-knock-out-shooting-targets-1"><img alt="franklin-sports-nhl-knock-out-shooting-targets-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/franklin-sports-nhl-knock-out-shooting-targets-1/public"/></a></div>
 
 I recently got a set of Franklin Sports NHL 'Knock-Out' Shooting Targets to level up my hockey game. These aren't just any old targets; they're designed to pop out when hit by a hockey puck or ball, which is super satisfying. The high visibility yellow frame is made of robust plastic that can withstand a lot of hits. As someone who loves practicing my shot, I appreciate how easy it is to attach these targets to any goal using the self-stick straps. I can place them in multiple positions within the goal too, so there's plenty of variety while training.
 
@@ -106,7 +106,7 @@ So, if you're looking for a way to enhance your hockey practice sessions, these 
 
 Shooting plates are a great way to improve your handgun or rifle accuracy. These square or circular metal disks are designed to be struck by bullets, offering instant feedback on your aim. In this buyer's guide, we'll cover important features, considerations, and general advice about shooting plates to help you make an informed decision when choosing the right product for your needs.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Shooting+Plates-2/public" alt="Shooting Plates-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=shooting-plates-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Shooting+Plates-2/public" alt="Shooting Plates-2"></a></div>
 
 ### Important Features to Consider
 
@@ -144,7 +144,7 @@ Before buying shooting plates, ask yourself the following questions:
 
 - Remember to follow all safety guidelines when using shooting plates, including wearing proper protective gear, keeping bystanders at a safe distance, and using responsible gun handling practices.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Shooting+Plates-3/public" alt="Shooting Plates-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=shooting-plates-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Shooting+Plates-3/public" alt="Shooting Plates-3"></a></div>
 
 ### Conclusion
 
@@ -156,7 +156,7 @@ Shooting plates are an excellent addition to any shooter's practice regimen, off
 
 Shooting plates, also known as steel targets, are flat, circular disks made from steel that are used for shooting practice. They are designed to provide an enjoyable and challenging shooting experience with immediate audible feedback when struck by a bullet.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Shooting+Plates-4/public" alt="Shooting Plates-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=shooting-plates-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Shooting+Plates-4/public" alt="Shooting Plates-4"></a></div>
 
 ### How do shooting plates work?
 
@@ -174,7 +174,7 @@ The basic principle behind shooting plates involves setting up a series of steel
 
 While most shooting plates can handle any centerfire caliber, it is generally recommended to use calibers no larger than. 357 Magnum or 9mm. Using smaller calibers like. 22LR can also be effective for practice, but may not produce as loud of a sound when hitting the plates.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Shooting+Plates-5/public" alt="Shooting Plates-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=shooting-plates-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Shooting+Plates-5/public" alt="Shooting Plates-5"></a></div>
 
 ### How far away should I set up my shooting plates?
 
@@ -198,7 +198,7 @@ The optimal distance for setting up shooting plates depends on factors such as t
 
 4. Store your firearm securely in a proper gun safe when not in use.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Shooting+Plates-6/public" alt="Shooting Plates-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/shooting-plates?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=shooting-plates&utm_term=shooting-plates-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Shooting+Plates-6/public" alt="Shooting Plates-6"></a></div>
 
 ### How can I clean and maintain my steel targets?
 

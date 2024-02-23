@@ -16,31 +16,31 @@ Victory Holsters offer a range of gun holsters, designed to fit your needs no ma
 
 ## The Top 9 Best Victory Holsters
 
-1. [Custom-Crafted IWB Kydex Holster for Poly80 PF940C with RMR/Red Dot Compatibility](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Customized modular IWB Kydex holster for optimal concealment and comfortable use, designed and crafted by veterans and law enforcement with lifetime guarantee.
+1. [Custom-Crafted IWB Kydex Holster for Poly80 PF940C with RMR/Red Dot Compatibility](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=custom-crafted-iwb-kydex-holster-for-poly80-pf940c-with-rmrred-dot-compatibility) - Customized modular IWB Kydex holster for optimal concealment and comfortable use, designed and crafted by veterans and law enforcement with lifetime guarantee.
 
-2. [Concealed IWB Kydex Holster for Glock 17/22/47 by C&G Holsters](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - C&G Holsters' Covert IWB Holster for Glock 17/22/47 is a high-quality, durable, and reliable option for right-hand users, boasting a 5-star rating from 21 reviews.
+2. [Concealed IWB Kydex Holster for Glock 17/22/47 by C&G Holsters](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=concealed-iwb-kydex-holster-for-glock-172247-by-cg-holsters) - C&G Holsters' Covert IWB Holster for Glock 17/22/47 is a high-quality, durable, and reliable option for right-hand users, boasting a 5-star rating from 21 reviews.
 
-3. [Comfortable OWB Kydex Holster for 1911 4.25" with Solid Retention](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the perfect combination of comfort and security with C&G's Covert OWB Holster for 1911 4.25" EDC, crafted by American Veterans and Law Enforcement using CNC designed Kydex for optimal retention and fit.
+3. [Comfortable OWB Kydex Holster for 1911 4.25" with Solid Retention](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=comfortable-owb-kydex-holster-for-1911-425-with-solid-retention) - Discover the perfect combination of comfort and security with C&G's Covert OWB Holster for 1911 4.25" EDC, crafted by American Veterans and Law Enforcement using CNC designed Kydex for optimal retention and fit.
 
-4. [Slimline Holster for S&W Victory .22 5.5" - Triple K Carrylite](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The ideal solution for securely carrying your S&W Victory .22 5.5, the Triple K Carrylite Holster offers a lightweight yet durable design, ensuring your firearm stays safely in place and ready for action.
+4. [Slimline Holster for S&W Victory .22 5.5" - Triple K Carrylite](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=slimline-holster-for-sw-victory-22-55-triple-k-carrylite) - The ideal solution for securely carrying your S&W Victory .22 5.5, the Triple K Carrylite Holster offers a lightweight yet durable design, ensuring your firearm stays safely in place and ready for action.
 
-5. [Xecutive Holster by N8 Tactical: Versatile, Concealable and Comfortable Appendix Inside the Waistband Holster](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the perfect balance of versatility, concealability, and comfort with the Xecutive Holster by N8 Tactical - an AIWB (Appendix Inside The Waistband) solution designed to hold up to the toughest conditions.
+5. [Xecutive Holster by N8 Tactical: Versatile, Concealable and Comfortable Appendix Inside the Waistband Holster](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=xecutive-holster-by-n8-tactical-versatile-concealable-and-comfortable-appendix-inside-the-waistband-holster) - Experience the perfect balance of versatility, concealability, and comfort with the Xecutive Holster by N8 Tactical - an AIWB (Appendix Inside The Waistband) solution designed to hold up to the toughest conditions.
 
-6. [Secure IWB Holster for Glock 19 with Streamlight TLR-7/7A](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the perfect blend of security and comfort with We The People Holsters' custom-fit, adjustable IWB Kydex holster for your Glock 19/19X with Streamlight TLR-7/7A, providing a reliable and discreet solution for all your concealed carry needs.
+6. [Secure IWB Holster for Glock 19 with Streamlight TLR-7/7A](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=secure-iwb-holster-for-glock-19-with-streamlight-tlr-77a) - Experience the perfect blend of security and comfort with We The People Holsters' custom-fit, adjustable IWB Kydex holster for your Glock 19/19X with Streamlight TLR-7/7A, providing a reliable and discreet solution for all your concealed carry needs.
 
-7. [Ambidextrous Extreme Pistol Holster for Compact Autos](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - High-quality, ambidextrous belt holster designed to perfectly fit compact autos including Glock 26/27/29/30, Taurus Millennium, and M&P compact, providing optimal comfort, protection, and water resistance.
+7. [Ambidextrous Extreme Pistol Holster for Compact Autos](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=ambidextrous-extreme-pistol-holster-for-compact-autos) - High-quality, ambidextrous belt holster designed to perfectly fit compact autos including Glock 26/27/29/30, Taurus Millennium, and M&P compact, providing optimal comfort, protection, and water resistance.
 
-8. [Bulldog Extreme Pistol Belt Loop Holster with Clip for 1911 Style Semi Autos](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Bulldog Extreme Pistol Holster Belt Loop w Clip 1911 offers unbeatable fit, comfort, and protection for your 1911 pistol with its durable nylon water resistant outer shell, top grade fused padding, and amdidextrious belt loop and metal clip.
+8. [Bulldog Extreme Pistol Belt Loop Holster with Clip for 1911 Style Semi Autos](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=bulldog-extreme-pistol-belt-loop-holster-with-clip-for-1911-style-semi-autos) - The Bulldog Extreme Pistol Holster Belt Loop w Clip 1911 offers unbeatable fit, comfort, and protection for your 1911 pistol with its durable nylon water resistant outer shell, top grade fused padding, and amdidextrious belt loop and metal clip.
 
-9. [Model 7378 7TS ALS Paddle/Belt Loop Handgun Holster for 1911](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience secure and quick access to your 1911 with the Safariland 7378 7TS ALS Paddle/Belt Loop Handgun Holster, boasting a non-marking nylon blend, automatic locking system, and adjustable belt loop for optimal performance.
+9. [Model 7378 7TS ALS Paddle/Belt Loop Handgun Holster for 1911](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=model-7378-7ts-als-paddlebelt-loop-handgun-holster-for-1911) - Experience secure and quick access to your 1911 with the Safariland 7378 7TS ALS Paddle/Belt Loop Handgun Holster, boasting a non-marking nylon blend, automatic locking system, and adjustable belt loop for optimal performance.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Custom-Crafted IWB Kydex Holster for Poly80 PF940C with RMR/Red Dot Compatibility](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Custom-Crafted IWB Kydex Holster for Poly80 PF940C with RMR/Red Dot Compatibility](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=custom-crafted-iwb-kydex-holster-for-poly80-pf940c-with-rmrred-dot-compatibility)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="mod1-iwb-kydex-holster-system-custom-right-hand-poly80-pf940c-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mod1-iwb-kydex-holster-system-custom-right-hand-poly80-pf940c-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=mod1-iwb-kydex-holster-system-custom-right-hand-poly80-pf940c-1"><img alt="mod1-iwb-kydex-holster-system-custom-right-hand-poly80-pf940c-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mod1-iwb-kydex-holster-system-custom-right-hand-poly80-pf940c-1/public"/></a></div>
 
 I recently had the chance to test out the C&G Holsters Mod 1 Kydex IWB, and it has quickly become one of my favorite holsters. The custom craftsmanship ensures a perfect fit for your specific needs, making it both comfortable and effective in daily use.
 
@@ -52,9 +52,9 @@ The. 093" thickness combined with precision CNC manufacturing (to within. 003 in
 
 I did experience some difficulties installing the extra mag carrier at first but their customer support was quick to respond over email with clear instructions that helped resolve the issue promptly - not enough for me to deduct from my rating or recommendation at all! Overall, if you're looking for a high-quality custom-crafted Kydex IWB holster that delivers on comfort, concealment and security – look no further than C&G Holsters Mod 1 Kydex IWB!
 
-### [Concealed IWB Kydex Holster for Glock 17/22/47 by C&G Holsters](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Concealed IWB Kydex Holster for Glock 17/22/47 by C&G Holsters](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=concealed-iwb-kydex-holster-for-glock-172247-by-cg-holsters)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cg-holsters-covert-iwb-holsters-glock-17-22-47-right-hand-black-0002-101" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-covert-iwb-holsters-glock-17-22-47-right-hand-black-0002-101/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=cg-holsters-covert-iwb-holsters-glock-17-22-47-right-hand-black-0002-101"><img alt="cg-holsters-covert-iwb-holsters-glock-17-22-47-right-hand-black-0002-101" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-covert-iwb-holsters-glock-17-22-47-right-hand-black-0002-101/public"/></a></div>
 
 As a gun owner, I've used numerous holsters for concealed carry. Among them, the C&G Holsters stand out in terms of quality and versatility. These holsters are made with heavy-duty materials, providing durability and long-lasting wear.
 
@@ -62,9 +62,9 @@ A unique feature of the C&G Holsters is their adjustable retention, which allows
 
 However, some users have reported issues with sizing and fitment for certain gun models. During my testing with Glock models, I did not encounter any such problems but it's something to keep in mind. It's also worth mentioning that these holsters come equipped with a secure clip attachment system that keeps your weapon snugly in place while carrying. Overall, this product provides comfort and reliability in its design - definitely worth considering if you're on the market for a high-quality concealed carry solution!
 
-### [Comfortable OWB Kydex Holster for 1911 4.25" with Solid Retention](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Comfortable OWB Kydex Holster for 1911 4.25" with Solid Retention](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=comfortable-owb-kydex-holster-for-1911-425-with-solid-retention)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cg-holsters-1856-100-owb-covert-1911-4-25-wil-edc-9x-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-1856-100-owb-covert-1911-4-25-wil-edc-9x-right-hand-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=cg-holsters-1856-100-owb-covert-1911-4-25-wil-edc-9x-right-hand-1"><img alt="cg-holsters-1856-100-owb-covert-1911-4-25-wil-edc-9x-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-1856-100-owb-covert-1911-4-25-wil-edc-9x-right-hand-1/public"/></a></div>
 
 The C&G Covert holster is an impressive option for anyone carrying a 1911 pistol. I really appreciate the Kydex design, which ensures that my gun fits snugly and stays secure while carried. The retention is just right, allowing easy drawing and re-holstering without any issues.
 
@@ -74,9 +74,9 @@ Comfort and concealability are important factors when choosing a holster, and th
 
 Overall, I'm impressed with the quality of craftsmanship in this holster combined with its practical features tailored specifically to 1911 pistols. If you're looking for a reliable and comfortable outside-the-waistband holster, C&G's Covert is definitely worth considering. \n\n
 
-### [Slimline Holster for S&W Victory .22 5.5" - Triple K Carrylite](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Slimline Holster for S&W Victory .22 5.5" - Triple K Carrylite](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=slimline-holster-for-sw-victory-22-55-triple-k-carrylite)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="triple-k-carrylite-holster-sw-victory-22-5-6" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/triple-k-carrylite-holster-sw-victory-22-5-6/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=triple-k-carrylite-holster-sw-victory-22-5-6"><img alt="triple-k-carrylite-holster-sw-victory-22-5-6" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/triple-k-carrylite-holster-sw-victory-22-5-6/public"/></a></div>
 
 I've been using Triple K Holster for my revolver and have found its quality to be quite impressive. Crafted from high-grade leather, the sturdy construction holds my pistol securely, allowing for a smooth draw when needed. One major plus is its versatility, fitting various firearms with different barrel lengths – perfect for those with multiple revolvers or who frequently switch guns. The thumb strap adds extra security against accidental discharge or dropping.
 
@@ -84,9 +84,9 @@ While the holster has several strengths, there are few areas where improvements 
 
 Overall though, many believe Triple K Holster to be a worthwhile investment due to its durability and craftsmanship despite these minor issues. For me personally, it consistently delivers reliable performance in securing my revolver whenever I need it most!
 
-### [Xecutive Holster by N8 Tactical: Versatile, Concealable and Comfortable Appendix Inside the Waistband Holster](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Xecutive Holster by N8 Tactical: Versatile, Concealable and Comfortable Appendix Inside the Waistband Holster](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=xecutive-holster-by-n8-tactical-versatile-concealable-and-comfortable-appendix-inside-the-waistband-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="xecutive-holster-by-n8-tactical-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/xecutive-holster-by-n8-tactical-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=xecutive-holster-by-n8-tactical-1"><img alt="xecutive-holster-by-n8-tactical-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/xecutive-holster-by-n8-tactical-1/public"/></a></div>
 
 After a few weeks of using the Xecutive Holster by N8 Tactical, I can confidently say it's a high-quality product that excels in versatility, concealability, and comfortability. The all-plastic holster, made from durable Kydex plastic, holds up well against everyday wear and tear while carrying a firearm.
 
@@ -96,9 +96,9 @@ The minimalist design ensures a small footprint for reduced printing when carryi
 
 Overall, I'm extremely pleased with my experience using the Xecutive Holster by N8 Tactical for daily carry needs at an affordable price point (starting at $40). While some users have reported issues with delivery times due to high demand or custom options selected, this holster is definitely worth considering for its efficient and practical design tailored towards everyday carry needs.
 
-### [Secure IWB Holster for Glock 19 with Streamlight TLR-7/7A](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Secure IWB Holster for Glock 19 with Streamlight TLR-7/7A](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=secure-iwb-holster-for-glock-19-with-streamlight-tlr-77a)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glock-19-19x-w-streamlight-tlr-7-7a-light-iwb-right-handed-holster-by-we-the-people-holsters-betsy-r-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-19-19x-w-streamlight-tlr-7-7a-light-iwb-right-handed-holster-by-we-the-people-holsters-betsy-r-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=glock-19-19x-w-streamlight-tlr-7-7a-light-iwb-right-handed-holster-by-we-the-people-holsters-betsy-r-1"><img alt="glock-19-19x-w-streamlight-tlr-7-7a-light-iwb-right-handed-holster-by-we-the-people-holsters-betsy-r-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-19-19x-w-streamlight-tlr-7-7a-light-iwb-right-handed-holster-by-we-the-people-holsters-betsy-r-1/public"/></a></div>
 
 After using the Glock 19 TLR-7/7A Holster from Victory Holsters for a few weeks now, I have to say that it is a high-quality holster that has truly enhanced my daily firearm carrying experience. It offers a slim profile made from durable Kydex, which allows for easy concealment under all types of clothing and makes it an excellent choice for everyday carry.
 
@@ -108,9 +108,9 @@ The secure belt clip ensures clean draws every time and keeps my firearm snug wh
 
 While most features are great, some minor improvements could still be made such as adding more retention points or increasing retention at certain areas of Kydex construction for better security when shaken upside down gently or with an upwards bump on the grip. However, these issues can be addressed with further development by Victory Holsters design team which shows their willingness to improve on an already great product! Overall though, this is an excellent holster that lives up to its reputation!
 
-### [Ambidextrous Extreme Pistol Holster for Compact Autos](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Ambidextrous Extreme Pistol Holster for Compact Autos](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=ambidextrous-extreme-pistol-holster-for-compact-autos)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="bulldog-cases-fusion-belt-holster-fits-glock-26-27-29-30-p22-usp-pt111-ambidextrous-black-fsn-4" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bulldog-cases-fusion-belt-holster-fits-glock-26-27-29-30-p22-usp-pt111-ambidextrous-black-fsn-4/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=bulldog-cases-fusion-belt-holster-fits-glock-26-27-29-30-p22-usp-pt111-ambidextrous-black-fsn-4"><img alt="bulldog-cases-fusion-belt-holster-fits-glock-26-27-29-30-p22-usp-pt111-ambidextrous-black-fsn-4" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bulldog-cases-fusion-belt-holster-fits-glock-26-27-29-30-p22-usp-pt111-ambidextrous-black-fsn-4/public"/></a></div>
 
 I recently purchased the Bulldog Extreme Belt Holster for a week-long backcountry mountain hunt for elk. The holster is constructed with high-quality materials and stitching, providing durability and long-lasting use. The strong belt clip ensures secure placement on your belt, which is definitely a plus.
 
@@ -118,9 +118,9 @@ However, during my usage, I encountered some issues that could be improved upon.
 
 In conclusion, while this product has several positive features like its quality construction and strong belt clip, it did not meet all of my specific needs as a left-handed shooter with concerns about securing my firearm effectively. It might be suitable for someone looking for an open carry solution but may require adjustments or modifications depending on individual preferences and circumstances. \xa0
 
-### [Bulldog Extreme Pistol Belt Loop Holster with Clip for 1911 Style Semi Autos](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Bulldog Extreme Pistol Belt Loop Holster with Clip for 1911 Style Semi Autos](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=bulldog-extreme-pistol-belt-loop-holster-with-clip-for-1911-style-semi-autos)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="bulldog-extreme-pistol-holster-belt-loop-w-clip-1912" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bulldog-extreme-pistol-holster-belt-loop-w-clip-1912/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=bulldog-extreme-pistol-holster-belt-loop-w-clip-1912"><img alt="bulldog-extreme-pistol-holster-belt-loop-w-clip-1912" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bulldog-extreme-pistol-holster-belt-loop-w-clip-1912/public"/></a></div>
 
 I recently got my hands on the Bulldog Extreme Pistol Belt Loop Holster with Clip and have been using it for a while now. The holster is designed for those who need something lightweight and adjustable for walking or hunting. It features a durable nylon water-resistant outer shell and top-grade fused padding to provide protection for both your pistol and yourself.
 
@@ -128,9 +128,9 @@ One of the standout features of this holster is its amidextrous belt loop and me
 
 Overall, if you're looking for a reliable holster specifically designed for your firearm model, this might not be your best option. However, if you need something lightweight and adjustable for walking or hunting purposes while protecting your weapon from environmental elements – this product may work well for you. Keep in mind its features when making your purchase decision as 206 reviews give it a solid 4 out of 5 rating!
 
-### [Model 7378 7TS ALS Paddle/Belt Loop Handgun Holster for 1911](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Model 7378 7TS ALS Paddle/Belt Loop Handgun Holster for 1911](https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=model-7378-7ts-als-paddlebelt-loop-handgun-holster-for-1911)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="safariland-7378-7ts-als-paddle-belt-loop-handgun-holster-1912" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safariland-7378-7ts-als-paddle-belt-loop-handgun-holster-1912/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=safariland-7378-7ts-als-paddle-belt-loop-handgun-holster-1912"><img alt="safariland-7378-7ts-als-paddle-belt-loop-handgun-holster-1912" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safariland-7378-7ts-als-paddle-belt-loop-handgun-holster-1912/public"/></a></div>
 
 The Safariland Model 7378 7TS Holster has become my go-to choice for various situations, from open carry to concealed carry. The ALS (Automatic Locking System) feature is a standout element, securing my weapon once it's holstered and allowing for a quick, straight up draw when the release is deactivated.
 
@@ -142,7 +142,7 @@ The versatility of this holster comes from its cross draw capability and adjusta
 
 ### Important Features to Consider in Victory Holsters
 
-<div><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Victory+Holsters-2/public" alt="Victory Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=victory-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Victory+Holsters-2/public" alt="Victory Holsters-2"></a></div>
 
 When shopping for Victory Holsters, there are several key features to consider. These include:
 
@@ -198,7 +198,7 @@ Ensure that your selected holster is designed explicitly for your make and model
 
 Choose a holster from a manufacturer that offers a strong warranty and responsive customer service in case of issues or repairs.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Victory+Holsters-3/public" alt="Victory Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=victory-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Victory+Holsters-3/public" alt="Victory Holsters-3"></a></div>
 
 ## FAQ
 
@@ -208,7 +208,7 @@ Victory Holsters are high-quality, durable gun holsters designed for various typ
 
 ### What materials are used to make Victory Holsters?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Victory+Holsters-4/public" alt="Victory Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=victory-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Victory+Holsters-4/public" alt="Victory Holsters-4"></a></div>
 
 Victory Holsters are made from premium materials such as leather, kydex, and other synthetic materials. The choice of material depends on the specific model and purpose of the holster, ensuring durability, comfort, and secure retention of the firearm.
 
@@ -220,7 +220,7 @@ Victory Holsters offer a wide range of options for various firearm models such a
 
 Yes, the Victory Holsters product line includes different styles of holsters tailored to specific needs and preferences. Some styles include IWB (inside the waistband), OWB (outside the waistband), shoulder, ankle, and more.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Victory+Holsters-5/public" alt="Victory Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=victory-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Victory+Holsters-5/public" alt="Victory Holsters-5"></a></div>
 
 ### What factors should be considered when choosing a Victory Holster?
 
@@ -232,7 +232,7 @@ To maintain the quality and performance of your Victory Holster, it is essential
 
 ### Can I customize a Victory Holster to fit my firearm?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Victory+Holsters-6/public" alt="Victory Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/victory-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=victory-holsters&utm_term=victory-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Victory+Holsters-6/public" alt="Victory Holsters-6"></a></div>
 
 While some generic Victory Holsters may fit a wide range of firearms within a specific model, the company also offers custom holsters that are tailored to fit a user's specific firearm. Contact the manufacturer or the seller for inquiries about custom holsters.
 

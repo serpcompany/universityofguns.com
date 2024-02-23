@@ -16,33 +16,33 @@ Duty Holsters are an essential accessory for gun enthusiasts, providing a secure
 
 ## The Top 10 Best Duty Holsters
 
-1. [Adjustable Outside the Waistband Holster for Browning Hi-Power 9mm](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience precision and durability with the Adjustable Retention, Boltaron-crafted Browning Hi-Power 9 OWB Holster, perfect for tactical marksmanship and competition.
+1. [Adjustable Outside the Waistband Holster for Browning Hi-Power 9mm](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=adjustable-outside-the-waistband-holster-for-browning-hi-power-9mm) - Experience precision and durability with the Adjustable Retention, Boltaron-crafted Browning Hi-Power 9 OWB Holster, perfect for tactical marksmanship and competition.
 
-2. [Blade-Tech Classic OWB Holster for FN FNX-45 Tactical](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Classic OWB Holster for FN FNX-45 Tactical, crafted in the USA with adjustable retention and modular mounting, offers a secure fit and compatibility with IDPA & USPSA competition, perfect for serious marksmen.
+2. [Blade-Tech Classic OWB Holster for FN FNX-45 Tactical](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=blade-tech-classic-owb-holster-for-fn-fnx-45-tactical) - The Blade-Tech Classic OWB Holster for FN FNX-45 Tactical, crafted in the USA with adjustable retention and modular mounting, offers a secure fit and compatibility with IDPA & USPSA competition, perfect for serious marksmen.
 
-3. [Adjustable Classic OWB Holster for FN 509/509 Tactical](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The FN 509/509 Tactical Classic OWB Holster by Blade-Tech delivers top-notch performance and adjustable security with its Boltaron construction and precise IDPA & USPSA legal speed cut for fast draws.
+3. [Adjustable Classic OWB Holster for FN 509/509 Tactical](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=adjustable-classic-owb-holster-for-fn-509509-tactical) - The FN 509/509 Tactical Classic OWB Holster by Blade-Tech delivers top-notch performance and adjustable security with its Boltaron construction and precise IDPA & USPSA legal speed cut for fast draws.
 
-4. [ProDraw OWB Kydex Holster for Open Carry and Range Use](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The ProDraw OWB Kydex Holster by Vedder Holsters, handcrafted to your specific gun model, provides the best open carry and range experience while ensuring a perfect fit and secure gun placement.
+4. [ProDraw OWB Kydex Holster for Open Carry and Range Use](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=prodraw-owb-kydex-holster-for-open-carry-and-range-use) - The ProDraw OWB Kydex Holster by Vedder Holsters, handcrafted to your specific gun model, provides the best open carry and range experience while ensuring a perfect fit and secure gun placement.
 
-5. [Adjustable Retention OWB Holster for S&W M&P 2.0](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unmatched precision and performance with the S&W M&P 2.0 Classic OWB Holster by Blade-Tech, crafted in the USA with adjustable retention, optic ready speed cut, and a lifetime guarantee for secure and safe firearm storage during competition.
+5. [Adjustable Retention OWB Holster for S&W M&P 2.0](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=adjustable-retention-owb-holster-for-sw-mp-20) - Experience unmatched precision and performance with the S&W M&P 2.0 Classic OWB Holster by Blade-Tech, crafted in the USA with adjustable retention, optic ready speed cut, and a lifetime guarantee for secure and safe firearm storage during competition.
 
-6. [Slim and Discreet IWB Holster for Sig Sauer P238](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Klipt IWB Holster for the Sig P238 is a high-quality, slender and discreet concealed carry option that ensures comfort and security with its high sweat guard, easy-on/easy-off belt clip, and built-in retention and trigger lock guard.
+6. [Slim and Discreet IWB Holster for Sig Sauer P238](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=slim-and-discreet-iwb-holster-for-sig-sauer-p238) - The Blade-Tech Klipt IWB Holster for the Sig P238 is a high-quality, slender and discreet concealed carry option that ensures comfort and security with its high sweat guard, easy-on/easy-off belt clip, and built-in retention and trigger lock guard.
 
-7. [High-Quality Boltaron USP OWB Holster for Competitive Marksmen](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unparalleled precision and performance with the Blade-Tech Classic OWB Holster for HK USP, designed with adjustable retention and crafted in the USA using high-strength Boltaron.
+7. [High-Quality Boltaron USP OWB Holster for Competitive Marksmen](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=high-quality-boltaron-usp-owb-holster-for-competitive-marksmen) - Experience unparalleled precision and performance with the Blade-Tech Classic OWB Holster for HK USP, designed with adjustable retention and crafted in the USA using high-strength Boltaron.
 
-8. [Dual Shoulder Holsters for Rough Rider 22 and Hi Point Pistols](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Get exceptional concealed carry comfort and reliability with DropSlide OWB, the top-rated leather Bulldog Holster by CrossBreed that boasts 4.6 stars from 906 satisfied customers.
+8. [Dual Shoulder Holsters for Rough Rider 22 and Hi Point Pistols](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=dual-shoulder-holsters-for-rough-rider-22-and-hi-point-pistols) - Get exceptional concealed carry comfort and reliability with DropSlide OWB, the top-rated leather Bulldog Holster by CrossBreed that boasts 4.6 stars from 906 satisfied customers.
 
-9. [Glock 17/22/31/47 Signature OWB Holster - USA Made, Adjustable Retention and IDPA Legal Speed Cut](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the perfect blend of security and speed with Blade-Tech's Signature OWB Holster for the Glock 17/22/31/47, designed for durability, precise fit, and quick draw capabilities.
+9. [Glock 17/22/31/47 Signature OWB Holster - USA Made, Adjustable Retention and IDPA Legal Speed Cut](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=glock-17223147-signature-owb-holster-usa-made-adjustable-retention-and-idpa-legal-speed-cut) - Experience the perfect blend of security and speed with Blade-Tech's Signature OWB Holster for the Glock 17/22/31/47, designed for durability, precise fit, and quick draw capabilities.
 
-10. [Ultimate Belly Band Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The ComfortTac Ultimate Belly Band Holster: Our #1 best-selling, versatile and concealable solution for gun enthusiasts, featuring adjustable sizing, quickdraw access, and a comfortable, breathable design.
+10. [Ultimate Belly Band Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=ultimate-belly-band-holster-for-concealed-carry) - The ComfortTac Ultimate Belly Band Holster: Our #1 best-selling, versatile and concealable solution for gun enthusiasts, featuring adjustable sizing, quickdraw access, and a comfortable, breathable design.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Adjustable Outside the Waistband Holster for Browning Hi-Power 9mm](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Adjustable Outside the Waistband Holster for Browning Hi-Power 9mm](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=adjustable-outside-the-waistband-holster-for-browning-hi-power-9mm)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="browning-hi-power-9-owb-holster-right-handed-browning-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/browning-hi-power-9-owb-holster-right-handed-browning-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=browning-hi-power-9-owb-holster-right-handed-browning-blade-tech-1"><img alt="browning-hi-power-9-owb-holster-right-handed-browning-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/browning-hi-power-9-owb-holster-right-handed-browning-blade-tech-1/public"/></a></div>
 
 I recently purchased the Blade-Tech Classic OWB Holster for Browning Hi-Power 9mm and have been using it for a few weeks. Overall, I'm quite impressed with its performance. The holster is crafted in the USA from high-strength Boltaron material, providing excellent durability.
 
@@ -54,9 +54,9 @@ My only minor issue was some discomfort while wearing it on my belt for extended
 
 Overall, this is a high-quality product that delivers on its promises - fitting snugly against your body while offering easy access and reholstering capabilities. Highly recommended for anyone looking into purchasing one!
 
-### [Blade-Tech Classic OWB Holster for FN FNX-45 Tactical](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Blade-Tech Classic OWB Holster for FN FNX-45 Tactical](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=blade-tech-classic-owb-holster-for-fn-fnx-45-tactical)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1"><img alt="fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1/public"/></a></div>
 
 The Blade-Tech Classic OWB Holster has proven to be a reliable and durable option for my FN FNX-45 Tactical. Its high-quality construction, crafted from Boltaron in the USA, provides a precise and secure fit that I can trust on the range or in competition.
 
@@ -66,9 +66,9 @@ Another great aspect of this holster is its modular mounting holes which provide
 
 However, there were some minor issues when initially setting up this product as some adjustment screws spun freely instead of securing into place once set up according to desired positioning - something which was resolved through customer support assistance via email correspondences within a reasonable timeframe nevertheless. Despite these small hiccups, overall –this remains a solid choice worth considering for those looking for reliable carry options.
 
-### [Adjustable Classic OWB Holster for FN 509/509 Tactical](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Adjustable Classic OWB Holster for FN 509/509 Tactical](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=adjustable-classic-owb-holster-for-fn-509509-tactical)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="fn-509-509-tactical-classic-owb-holster-right-handed-fn-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fn-509-509-tactical-classic-owb-holster-right-handed-fn-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=fn-509-509-tactical-classic-owb-holster-right-handed-fn-blade-tech-1"><img alt="fn-509-509-tactical-classic-owb-holster-right-handed-fn-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fn-509-509-tactical-classic-owb-holster-right-handed-fn-blade-tech-1/public"/></a></div>
 
 As a serious marksman, I've been using the Classic OWB Holster for my FN 509/509 Tactical for quite some time now and have found it to be a reliable and durable option. The ability to adjust the retention on this holster is one of its standout features, allowing me to customize the fit around my firearm to my personal preference. The fact that it's crafted in the U. S. A using high-strength Boltaron adds an extra layer of quality assurance.
 
@@ -76,9 +76,9 @@ One aspect I particularly appreciate is the positive locking trigger guard which
 
 Despite these minor issues, I still highly recommend this product due to its precision craftsmanship from high-quality materials made right here in America along with top-notch customer service provided by BladeTech's team should you ever need support downline - all of which contribute towards making this Classic OWB Holster truly worthy of consideration no matter what level shooter you might be!
 
-### [ProDraw OWB Kydex Holster for Open Carry and Range Use](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [ProDraw OWB Kydex Holster for Open Carry and Range Use](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=prodraw-owb-kydex-holster-for-open-carry-and-range-use)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="vedder-holsters-prodraw-owb-paddle-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vedder-holsters-prodraw-owb-paddle-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=vedder-holsters-prodraw-owb-paddle-holster-1"><img alt="vedder-holsters-prodraw-owb-paddle-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vedder-holsters-prodraw-owb-paddle-holster-1/public"/></a></div>
 
 I recently had the opportunity to test out the ProDraw OWB Kydex holster by Vedder Holsters, and I must say, it has definitely become one of my top choices. The fit of this holster is impeccable with a precise design that creates an audible click every time I holster my gun, giving me complete confidence in its security.
 
@@ -88,9 +88,9 @@ One aspect I appreciate about this product is its versatility - it functions opt
 
 Some users have reported issues with finding the correct height setting on the paddle mount and challenges bonding with new equipment at first; however, these concerns seem relatively minor when weighed against the numerous positive attributes of Vedder Holsters' product line. In conclusion, if you're searching for an exceptional OWB Kydex holster crafted with superior workmanship and premium materials - give ProDraw OWB Kydex serious consideration!
 
-### [Adjustable Retention OWB Holster for S&W M&P 2.0](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Adjustable Retention OWB Holster for S&W M&P 2.0](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=adjustable-retention-owb-holster-for-sw-mp-20)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sw-mp-2-0-9-40-4-25-classic-owb-holster-right-handed-smith-wesson-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-mp-2-0-9-40-4-25-classic-owb-holster-right-handed-smith-wesson-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=sw-mp-2-0-9-40-4-25-classic-owb-holster-right-handed-smith-wesson-blade-tech-1"><img alt="sw-mp-2-0-9-40-4-25-classic-owb-holster-right-handed-smith-wesson-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-mp-2-0-9-40-4-25-classic-owb-holster-right-handed-smith-wesson-blade-tech-1/public"/></a></div>
 
 After purchasing the Boltaron crafted OWB holster for my S&W M&P 2. 0, I can say it met my expectations and more. With its adjustable retention feature, I was able to fine-tune the tightness of the holster around my firearm ensuring a perfect balance between concealability and quick draw time. The positive locking trigger guard also provides tactile feedback when inserting or removing my gun, which eliminates any doubts about its security.
 
@@ -98,9 +98,9 @@ This holster's optic ready speed cut design makes it stand out for competitive s
 
 I experienced no issues with screw spinning during adjustments but understand that some users may need to apply threadlocker or use rubber bands for extra stability - definitely something to keep in mind before purchasing this product. Overall, I highly recommend this high-quality OWB holster for serious marksmen and competition shooters like myself who demand precision and performance from their gear.
 
-### [Slim and Discreet IWB Holster for Sig Sauer P238](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Slim and Discreet IWB Holster for Sig Sauer P238](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=slim-and-discreet-iwb-holster-for-sig-sauer-p238)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="klipt-iwb-sig-sauer-p238-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-sig-sauer-p238-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=klipt-iwb-sig-sauer-p238-holster-right-handed-inside-the-waistband-klipt-blade-tech-1"><img alt="klipt-iwb-sig-sauer-p238-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-sig-sauer-p238-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
 
 After using the Blade-Tech Klipt IWB Holster for my Sig P238, I've found it to be a fantastic option for everyday concealed carry. The slim and discreet design ensures that it doesn't add any unnecessary bulk while providing ample features to keep me comfortable and confident throughout the day.
 
@@ -110,9 +110,9 @@ The built-in retention feature provides just enough resistance to keep my firear
 
 The full-length sweat guard also prevents friction between my clothing and the holster itself, keeping everything smooth and comfortable during extended periods of carrying. And since the Klipt IWB Holster is precision molded out of heat resistant polymer specifically designed for superior fitment with Sig P238s, these features all come together seamlessly to provide top notch performance right out of the box. Overall, this holster is a great choice for those seeking an unobtrusive yet feature-rich option for everyday carry
 
-### [High-Quality Boltaron USP OWB Holster for Competitive Marksmen](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [High-Quality Boltaron USP OWB Holster for Competitive Marksmen](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=high-quality-boltaron-usp-owb-holster-for-competitive-marksmen)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hk-usp-9-40-45-owb-holster-right-handed-hk-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hk-usp-9-40-45-owb-holster-right-handed-hk-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=hk-usp-9-40-45-owb-holster-right-handed-hk-blade-tech-1"><img alt="hk-usp-9-40-45-owb-holster-right-handed-hk-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hk-usp-9-40-45-owb-holster-right-handed-hk-blade-tech-1/public"/></a></div>
 
 From my personal experience with the Blade-Tech Classic OWB Holster for my HK USP, I have been very impressed by its quality and precision craftsmanship. The high-strength Boltaron material used in construction has proven to be extremely durable, providing a perfect fit and adjustment for my firearm.
 
@@ -122,9 +122,9 @@ I particularly appreciated the IDPA & USPSA legal optic ready speed cut design d
 
 Although I had an overall positive experience with this product, there were some minor drawbacks worth mentioning. Some users mentioned experiencing difficulty with adjusting screws due to them spinning in place and not engaging properly; however, taking extra time during setup can ensure proper functioning for responsible gun owners like myself. Overall though despite these small issues with setup process, it has proven itself as reliable choice when looking out for your firearm needs in terms protection while also providing ease access when needed most i. . e during competition or self defense situations.
 
-### [Dual Shoulder Holsters for Rough Rider 22 and Hi Point Pistols](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Dual Shoulder Holsters for Rough Rider 22 and Hi Point Pistols](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=dual-shoulder-holsters-for-rough-rider-22-and-hi-point-pistols)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="dropslide-owb-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dropslide-owb-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=dropslide-owb-1"><img alt="dropslide-owb-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dropslide-owb-1/public"/></a></div>
 
 I've been using the CrossBreed Holster for quite some time now, and it has quickly become my favorite go-to holster. Comfort is the first thing that stands out; even when carrying a heavy firearm, it stays securely in place all day long. The snug fit design ensures my weapon will stay put and gives me peace of mind during use. Also noteworthy are the ease of drawing and reholstering; both movements feel smooth and intuitive.
 
@@ -132,9 +132,9 @@ In terms of durability, this holster truly impresses. Despite regular use, it sh
 
 Overall, I highly recommend this holster for anyone looking for reliable and comfortable carry solutions that offer great value for money without compromising on quality or performance.
 
-### [Glock 17/22/31/47 Signature OWB Holster - USA Made, Adjustable Retention and IDPA Legal Speed Cut](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Glock 17/22/31/47 Signature OWB Holster - USA Made, Adjustable Retention and IDPA Legal Speed Cut](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=glock-17223147-signature-owb-holster-usa-made-adjustable-retention-and-idpa-legal-speed-cut)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glock-17-22-31-47-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g17--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-17-22-31-47-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g17--1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=glock-17-22-31-47-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g17-1"><img alt="glock-17-22-31-47-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g17--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-17-22-31-47-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g17--1/public"/></a></div>
 
 I've been using the Blade-Tech Signature OWB Holster for my Glock 17 and I am really impressed with its performance. It is made from a strong polymer blend, which makes it durable and rigid. The IDPA legal Optic Ready Speed Cut ensures compatibility with a variety of attachments, and the precision molding provides a custom fit for my firearm.
 
@@ -144,9 +144,9 @@ Although there is limited adjustment in terms of cant and ride height, this seem
 
 Overall, this holster has performed well for me, providing great engineering and quality without costing too much. The only issue I encountered was when attaching it to regular belt loops due to the secondary lock system in its new iteration which can be difficult without removing it beforehand or permanently swiveling it open instead; users should keep this in mind depending on their intended usage scenario. Nonetheless, Blade-Tech's excellent customer service alleviates any concerns that may arise regarding these few cons mentioned above - I would definitely consider buying similar products for other guns owned knowing full well they will serve their purpose admirably thanks to topnotch craftsmanship consistently delivering high performance results round-the-clock!
 
-### [Ultimate Belly Band Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Ultimate Belly Band Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=ultimate-belly-band-holster-for-concealed-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="comforttac-belly-band-holster-right-hand-draw-size-medium-nude-deep-concealment-edition-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/comforttac-belly-band-holster-right-hand-draw-size-medium-nude-deep-concealment-edition-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=comforttac-belly-band-holster-right-hand-draw-size-medium-nude-deep-concealment-edition-1"><img alt="comforttac-belly-band-holster-right-hand-draw-size-medium-nude-deep-concealment-edition-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/comforttac-belly-band-holster-right-hand-draw-size-medium-nude-deep-concealment-edition-1/public"/></a></div>
 
 The Ultimate Belly Band Holster by ComfortTac has quickly become a favorite among gun owners for its comfort, versatility, and ease of use. I've had the chance to test it out in various situations: casual dress, cycling, and walking - and it hasn't disappointed. This holster can be adjusted for comfort and positioned anywhere on the body, making it incredibly adaptable.
 
@@ -160,7 +160,7 @@ Overall, this holster is an excellent choice for anyone looking for a high-quali
 
 ### Important Features in Duty Holsters
 
-<div><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Duty+Holsters-2/public" alt="Duty Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=duty-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Duty+Holsters-2/public" alt="Duty Holsters-2"></a></div>
 
 Duty holsters are designed to securely hold your firearm while enabling quick access when needed. Some key features to consider when choosing a duty holster include:
 
@@ -196,7 +196,7 @@ To get the most out of your duty holster and promote safe handling of your firea
 
 4. Wear the holster properly and securely to prevent any accidental dislodging or misfiring.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Duty+Holsters-3/public" alt="Duty Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=duty-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Duty+Holsters-3/public" alt="Duty Holsters-3"></a></div>
 
 ## FAQ
 
@@ -206,7 +206,7 @@ Duty holsters are specifically designed for law enforcement and military personn
 
 ### What materials are duty holsters made of?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Duty+Holsters-4/public" alt="Duty Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=duty-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Duty+Holsters-4/public" alt="Duty Holsters-4"></a></div>
 
 Duty holsters are typically made from high-quality, durable materials such as leather, nylon, and modern synthetics like Kydex or Boltaron.
 
@@ -218,7 +218,7 @@ Duty holsters utilize a combination of retention features to secure the firearm,
 
 Yes, duty holsters can be configured for both right and left-hand carry, providing convenience and accessibility for all users.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Duty+Holsters-5/public" alt="Duty Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=duty-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Duty+Holsters-5/public" alt="Duty Holsters-5"></a></div>
 
 ### What is the difference between passive and active retention in duty holsters?
 
@@ -232,7 +232,7 @@ Duty holsters are typically sized specifically for each firearm model. To determ
 
 ### Do duty holsters come with a warranty?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Duty+Holsters-6/public" alt="Duty Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/duty-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=duty-holsters&utm_term=duty-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Duty+Holsters-6/public" alt="Duty Holsters-6"></a></div>
 
 Many manufacturers offer a warranty on their duty holsters, covering defects in materials and workmanship. The warranty period and specific terms may vary between brands, so it's essential to review the product's documentation or contact the manufacturer for details.
 

@@ -16,31 +16,31 @@ Soft Holsters offers a wide range of versatile and comfortable options for gun c
 
 ## The Top 9 Best Soft Holsters
 
-1. [Blade-Tech Classic OWB Holster for FN FNX-45 Tactical](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Classic OWB Holster for FN FNX-45 Tactical, crafted in the USA with adjustable retention and modular mounting, offers a secure fit and compatibility with IDPA & USPSA competition, perfect for serious marksmen.
+1. [Blade-Tech Classic OWB Holster for FN FNX-45 Tactical](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=blade-tech-classic-owb-holster-for-fn-fnx-45-tactical) - The Blade-Tech Classic OWB Holster for FN FNX-45 Tactical, crafted in the USA with adjustable retention and modular mounting, offers a secure fit and compatibility with IDPA & USPSA competition, perfect for serious marksmen.
 
-2. [ProDraw OWB Kydex Holster for Open Carry and Range Use](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The ProDraw OWB Kydex Holster by Vedder Holsters, handcrafted to your specific gun model, provides the best open carry and range experience while ensuring a perfect fit and secure gun placement.
+2. [ProDraw OWB Kydex Holster for Open Carry and Range Use](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=prodraw-owb-kydex-holster-for-open-carry-and-range-use) - The ProDraw OWB Kydex Holster by Vedder Holsters, handcrafted to your specific gun model, provides the best open carry and range experience while ensuring a perfect fit and secure gun placement.
 
-3. [Slim and Discreet IWB Holster for Glock 43/43X/43X MOS](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Klipt IWB Holster for Glock 43/43X offers a sleek, comfortable design, exceptional retention and secure firearm lock, making it an ideal choice for everyday concealed carry.
+3. [Slim and Discreet IWB Holster for Glock 43/43X/43X MOS](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=slim-and-discreet-iwb-holster-for-glock-4343x43x-mos) - The Blade-Tech Klipt IWB Holster for Glock 43/43X offers a sleek, comfortable design, exceptional retention and secure firearm lock, making it an ideal choice for everyday concealed carry.
 
-4. [Adjustable Comfortable Belly Band Holster for Left-Handed Users](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - ComfortTac's best-selling belly band holster offers a customizable fit, quick draw speed, and versatile concealing options, perfect for those prioritizing tactical convenience and ease of use.
+4. [Adjustable Comfortable Belly Band Holster for Left-Handed Users](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=adjustable-comfortable-belly-band-holster-for-left-handed-users) - ComfortTac's best-selling belly band holster offers a customizable fit, quick draw speed, and versatile concealing options, perfect for those prioritizing tactical convenience and ease of use.
 
-5. [Blade-Tech Classic OWB Holster for H&K VP9: Competition-Ready and Customizable](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unparalleled precision and competition-ready performance with the H&K VP9 OWB Holster from Blade-Tech, offering adjustable retention, high-strength Boltaron, and compatibility with IDPA & USPSA speed cut.
+5. [Blade-Tech Classic OWB Holster for H&K VP9: Competition-Ready and Customizable](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=blade-tech-classic-owb-holster-for-hk-vp9-competition-ready-and-customizable) - Experience unparalleled precision and competition-ready performance with the H&K VP9 OWB Holster from Blade-Tech, offering adjustable retention, high-strength Boltaron, and compatibility with IDPA & USPSA speed cut.
 
-6. [Glock 17/22/31/47 Signature OWB Holster - USA Made, Adjustable Retention and IDPA Legal Speed Cut](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the perfect blend of security and speed with Blade-Tech's Signature OWB Holster for the Glock 17/22/31/47, designed for durability, precise fit, and quick draw capabilities.
+6. [Glock 17/22/31/47 Signature OWB Holster - USA Made, Adjustable Retention and IDPA Legal Speed Cut](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=glock-17223147-signature-owb-holster-usa-made-adjustable-retention-and-idpa-legal-speed-cut) - Experience the perfect blend of security and speed with Blade-Tech's Signature OWB Holster for the Glock 17/22/31/47, designed for durability, precise fit, and quick draw capabilities.
 
-7. [Ultimate Belly Band Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The ComfortTac Ultimate Belly Band Holster: A versatile, best-selling concealed carry solution for men and women, featuring compatibility with various firearms and customizable fit options for optimal convenience and protection.
+7. [Ultimate Belly Band Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=ultimate-belly-band-holster-for-concealed-carry) - The ComfortTac Ultimate Belly Band Holster: A versatile, best-selling concealed carry solution for men and women, featuring compatibility with various firearms and customizable fit options for optimal convenience and protection.
 
-8. [N8 Tactical Closeout Flex IWB Carrier Soft Holster](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Closeout FLEX IWB Carrier by N8 Tactical is a high-quality and comfortable inside-the-waistband (IWB) holster, perfect for those who prioritize concealed carry and ease of use.
+8. [N8 Tactical Closeout Flex IWB Carrier Soft Holster](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=n8-tactical-closeout-flex-iwb-carrier-soft-holster) - The Closeout FLEX IWB Carrier by N8 Tactical is a high-quality and comfortable inside-the-waistband (IWB) holster, perfect for those who prioritize concealed carry and ease of use.
 
-9. [Ambidextrous Soft Sticky Holster for Glocks up to 4.75in - Gray](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Sticky LG-3 Glock Ambidextrous Holster - Comfortably secure your firearm with this lightweight, sticky design, offering quick deployment and adjustment with no bulky clips or straps.
+9. [Ambidextrous Soft Sticky Holster for Glocks up to 4.75in - Gray](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=ambidextrous-soft-sticky-holster-for-glocks-up-to-475in-gray) - Sticky LG-3 Glock Ambidextrous Holster - Comfortably secure your firearm with this lightweight, sticky design, offering quick deployment and adjustment with no bulky clips or straps.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Blade-Tech Classic OWB Holster for FN FNX-45 Tactical](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Blade-Tech Classic OWB Holster for FN FNX-45 Tactical](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=blade-tech-classic-owb-holster-for-fn-fnx-45-tactical)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1"><img alt="fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1/public"/></a></div>
 
 The Blade-Tech Classic OWB Holster has proven to be a reliable and durable option for my FN FNX-45 Tactical. Its high-quality construction, crafted from Boltaron in the USA, provides a precise and secure fit that I can trust on the range or in competition.
 
@@ -50,9 +50,9 @@ Another great aspect of this holster is its modular mounting holes which provide
 
 However, there were some minor issues when initially setting up this product as some adjustment screws spun freely instead of securing into place once set up according to desired positioning - something which was resolved through customer support assistance via email correspondences within a reasonable timeframe nevertheless. Despite these small hiccups, overall –this remains a solid choice worth considering for those looking for reliable carry options.
 
-### [ProDraw OWB Kydex Holster for Open Carry and Range Use](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [ProDraw OWB Kydex Holster for Open Carry and Range Use](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=prodraw-owb-kydex-holster-for-open-carry-and-range-use)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="vedder-holsters-prodraw-owb-paddle-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vedder-holsters-prodraw-owb-paddle-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=vedder-holsters-prodraw-owb-paddle-holster-1"><img alt="vedder-holsters-prodraw-owb-paddle-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vedder-holsters-prodraw-owb-paddle-holster-1/public"/></a></div>
 
 I recently had the opportunity to test out the ProDraw OWB Kydex holster by Vedder Holsters, and I must say, it has definitely become one of my top choices. The fit of this holster is impeccable with a precise design that creates an audible click every time I holster my gun, giving me complete confidence in its security.
 
@@ -62,9 +62,9 @@ One aspect I appreciate about this product is its versatility - it functions opt
 
 Some users have reported issues with finding the correct height setting on the paddle mount and challenges bonding with new equipment at first; however, these concerns seem relatively minor when weighed against the numerous positive attributes of Vedder Holsters' product line. In conclusion, if you're searching for an exceptional OWB Kydex holster crafted with superior workmanship and premium materials - give ProDraw OWB Kydex serious consideration!
 
-### [Slim and Discreet IWB Holster for Glock 43/43X/43X MOS](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Slim and Discreet IWB Holster for Glock 43/43X/43X MOS](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=slim-and-discreet-iwb-holster-for-glock-4343x43x-mos)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="klipt-iwb-glock-43-43x-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-glock-43-43x-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=klipt-iwb-glock-43-43x-holster-right-handed-inside-the-waistband-klipt-blade-tech-1"><img alt="klipt-iwb-glock-43-43x-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-glock-43-43x-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
 
 I've been using this Blade-Tech Klipt IWB Holster for my Glock 43 / 43X / 43X MOS as an everyday carry option for a few weeks now, and it has exceeded my expectations. The sleek, discreet design of the holster makes it easy to conceal under clothing without adding bulk or discomfort. I particularly appreciate the high sweat guard that keeps my firearm off my body, preventing any irritation from moisture or slide serrations.
 
@@ -74,9 +74,9 @@ In terms of daily use, the holster has performed exceptionally well - providing 
 
 Overall, I highly recommend this Blade-Tech Klipt IWB Holster for anyone in search of an unobtrusive yet secure option for carrying their Glock 43 / 43X / 43X MOS on a daily basis.
 
-### [Adjustable Comfortable Belly Band Holster for Left-Handed Users](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Adjustable Comfortable Belly Band Holster for Left-Handed Users](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=adjustable-comfortable-belly-band-holster-for-left-handed-users)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="comforttac-belly-band-holster-left-hand-draw-size-regular-nude-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/comforttac-belly-band-holster-left-hand-draw-size-regular-nude-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=comforttac-belly-band-holster-left-hand-draw-size-regular-nude-1"><img alt="comforttac-belly-band-holster-left-hand-draw-size-regular-nude-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/comforttac-belly-band-holster-left-hand-draw-size-regular-nude-1/public"/></a></div>
 
 After using the ComfortTac The Ultimate Belly Band Holster for several weeks, I can confidently say that it has been a great addition to my everyday carry routine. Made of high-quality neoprene material, this versatile holster provides both comfort and concealment, allowing me to easily carry my firearm with ease.
 
@@ -88,9 +88,9 @@ However, there are some nuances to consider when using this product. As someone 
 
 Despite these minor concerns, ComfortTac The Ultimate Belly Band Holster remains an essential piece of gear in my daily carry routine thanks largely due its comfort and adaptability features combined together into one convenient package! Overall though despite some issues relating specifically towards certain body types fitting better than others; overall this product has been quite helpful during time spent testing out its capabilities thus far!
 
-### [Blade-Tech Classic OWB Holster for H&K VP9: Competition-Ready and Customizable](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Blade-Tech Classic OWB Holster for H&K VP9: Competition-Ready and Customizable](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=blade-tech-classic-owb-holster-for-hk-vp9-competition-ready-and-customizable)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hk-vp9-owb-holster-right-handed-hk-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hk-vp9-owb-holster-right-handed-hk-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=hk-vp9-owb-holster-right-handed-hk-blade-tech-1"><img alt="hk-vp9-owb-holster-right-handed-hk-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hk-vp9-owb-holster-right-handed-hk-blade-tech-1/public"/></a></div>
 
 After using the Blade-Tech Classic OWB holster for my EDC pistol, I can confidently say that I am highly impressed with its quality and features. The materials used in its construction are high-strength Boltaron, making it durable and long-lasting. One of the standout features of this holster is its adjustable retention, allowing for a customized fit to your specific gun model. This is great for those who want a personalized experience when carrying their firearm.
 
@@ -98,9 +98,9 @@ Another great aspect of this holster is the positive locking trigger guard which
 
 In terms of comfort, the Blade-Tech Classic OWB holster does not disappoint as it can be worn comfortably throughout an entire day without issue. With a lifetime guarantee from Blade-Tech, investing in this product ensures reliability and longevity in securing your firearm while providing superior functionality in daily carry or competitive settings. Overall, I am very satisfied with my purchase and would recommend this product to anyone looking for a high-quality, reliable holster that offers both security and performance enhancements.
 
-### [Glock 17/22/31/47 Signature OWB Holster - USA Made, Adjustable Retention and IDPA Legal Speed Cut](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Glock 17/22/31/47 Signature OWB Holster - USA Made, Adjustable Retention and IDPA Legal Speed Cut](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=glock-17223147-signature-owb-holster-usa-made-adjustable-retention-and-idpa-legal-speed-cut)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glock-17-22-31-47-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g17--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-17-22-31-47-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g17--1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=glock-17-22-31-47-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g17-1"><img alt="glock-17-22-31-47-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g17--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-17-22-31-47-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g17--1/public"/></a></div>
 
 I've been using the Blade-Tech Signature OWB Holster for my Glock 17 and I am really impressed with its performance. It is made from a strong polymer blend, which makes it durable and rigid. The IDPA legal Optic Ready Speed Cut ensures compatibility with a variety of attachments, and the precision molding provides a custom fit for my firearm.
 
@@ -110,9 +110,9 @@ Although there is limited adjustment in terms of cant and ride height, this seem
 
 Overall, this holster has performed well for me, providing great engineering and quality without costing too much. The only issue I encountered was when attaching it to regular belt loops due to the secondary lock system in its new iteration which can be difficult without removing it beforehand or permanently swiveling it open instead; users should keep this in mind depending on their intended usage scenario. Nonetheless, Blade-Tech's excellent customer service alleviates any concerns that may arise regarding these few cons mentioned above - I would definitely consider buying similar products for other guns owned knowing full well they will serve their purpose admirably thanks to topnotch craftsmanship consistently delivering high performance results round-the-clock!
 
-### [Ultimate Belly Band Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Ultimate Belly Band Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=ultimate-belly-band-holster-for-concealed-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="comforttac-belly-band-holster-left-hand-draw-size-large-black-deep-concealment-edition-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/comforttac-belly-band-holster-left-hand-draw-size-large-black-deep-concealment-edition-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=comforttac-belly-band-holster-left-hand-draw-size-large-black-deep-concealment-edition-1"><img alt="comforttac-belly-band-holster-left-hand-draw-size-large-black-deep-concealment-edition-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/comforttac-belly-band-holster-left-hand-draw-size-large-black-deep-concealment-edition-1/public"/></a></div>
 
 I've been using the ComfortTac The Ultimate Belly Band Holster for a few months now, and it has quickly become my preference for concealed carry. When I first heard about this holster, I was a bit hesitant to try it out because of past experiences with other belly band holsters that were uncomfortable or had poor retention. However, this ComfortTac holster proved me wrong with its superior qualities.
 
@@ -122,9 +122,9 @@ What particularly impressed me about this concealed carry option is how comforta
 
 Overall, I am very pleased with my experience with ComfortTac The Ultimate Belly Band Holster, so much so that I highly recommend it to those looking for a reliable and comfortable carry solution. While there might be some minor improvements to be made in terms of sizing options or design tweaks, the benefits far outweigh any potential drawbacks in my opinion!
 
-### [N8 Tactical Closeout Flex IWB Carrier Soft Holster](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [N8 Tactical Closeout Flex IWB Carrier Soft Holster](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=n8-tactical-closeout-flex-iwb-carrier-soft-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="closeout-flex-iwb-carrier-by-n8-tactical-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/closeout-flex-iwb-carrier-by-n8-tactical-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=closeout-flex-iwb-carrier-by-n8-tactical-1"><img alt="closeout-flex-iwb-carrier-by-n8-tactical-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/closeout-flex-iwb-carrier-by-n8-tactical-1/public"/></a></div>
 
 The N8 Tactical Closeout FLEX IWB Carrier is an impressive and versatile holster that combines comfort and security. The soft neoprene material feels great against the skin, providing a comfortable concealed carry experience. The multiple carrying positions ensure your magazine stays securely in place, making this a reliable option for those seeking a dependable mag carrier.
 
@@ -132,9 +132,9 @@ While there's no trial period or refunds, the high-quality construction and mate
 
 In conclusion, if you're looking for a quality mag carrier that offers both comfort and security, I highly recommend giving the N8 Tactical Closeout FLEX IWB Carrier a try. However, keep in mind that all sales for closeout holsters are final, so be sure to consider your purchase carefully before committing.
 
-### [Ambidextrous Soft Sticky Holster for Glocks up to 4.75in - Gray](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Ambidextrous Soft Sticky Holster for Glocks up to 4.75in - Gray](https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=ambidextrous-soft-sticky-holster-for-glocks-up-to-475in-gray)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sticky-lg-3-glocks-up-to-4-75in-ambidextrous-holster-gray-by-sportsmans-warehouse-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sticky-lg-3-glocks-up-to-4-75in-ambidextrous-holster-gray-by-sportsmans-warehouse-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=sticky-lg-3-glocks-up-to-4-75in-ambidextrous-holster-gray-by-sportsmans-warehouse-1"><img alt="sticky-lg-3-glocks-up-to-4-75in-ambidextrous-holster-gray-by-sportsmans-warehouse-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sticky-lg-3-glocks-up-to-4-75in-ambidextrous-holster-gray-by-sportsmans-warehouse-1/public"/></a></div>
 
 The Sticky LG-3 Glocks up to 4. 75in Ambidextrous Holster is a lightweight and comfortable holster that's perfect for concealed carry. Made from a soft yet durable material, the holster heats up to mold itself precisely to the shape of your gun, ensuring a secure fit every time. The closed-end design keeps dirt and oil away, avoiding any messes or inconvenience.
 
@@ -144,7 +144,7 @@ With a quick and simple adjustment system, finding the right position for carryi
 
 ### Important Features to Consider in a Soft Holster
 
-<div><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Soft+Holsters-2/public" alt="Soft Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=soft-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Soft+Holsters-2/public" alt="Soft Holsters-2"></a></div>
 
 When choosing a soft holster for your firearm, there are several important features to consider:
 
@@ -180,7 +180,7 @@ Soft holsters may not be the best option in specific situations:
 
 - When using a backup firearm, a more secure and rigid holster could be a better choice for quick access.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Soft+Holsters-3/public" alt="Soft Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=soft-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Soft+Holsters-3/public" alt="Soft Holsters-3"></a></div>
 
 ## FAQ
 
@@ -190,7 +190,7 @@ Soft holsters are lightweight and flexible firearm holsters made from materials 
 
 ### How do soft holsters compare to other types of holsters?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Soft+Holsters-4/public" alt="Soft Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=soft-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Soft+Holsters-4/public" alt="Soft Holsters-4"></a></div>
 
 Soft holsters are more comfortable than hardshell varieties as they conform to the wearer's body shape, offer more flexibility, and have a lower profile. However, they may provide slightly less retention compared to rigid holsters due to their material.
 
@@ -202,7 +202,7 @@ Soft holsters are best suited for smaller firearms like compact or subcompact pi
 
 Consider the dimensions of your firearm, especially the length of the slide, grip width, and overall height. Measure your gun and compare with the manufacturer's sizing chart for accurate fitting.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Soft+Holsters-5/public" alt="Soft Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=soft-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Soft+Holsters-5/public" alt="Soft Holsters-5"></a></div>
 
 ### What are the benefits of using a soft holster?
 
@@ -218,7 +218,7 @@ Yes, many soft holsters are ambidextrous and can be worn on either side of the s
 
 ### How do I clean and maintain a soft holster?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Soft+Holsters-6/public" alt="Soft Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/soft-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=soft-holsters&utm_term=soft-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Soft+Holsters-6/public" alt="Soft Holsters-6"></a></div>
 
 Gently remove dust and debris with a soft brush or cloth. If necessary, wash the holster with mild soap and water, making sure it dries completely before reusing it. Inspect the holster regularly for signs of wear and tear, and replace when needed.
 

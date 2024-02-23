@@ -19,15 +19,15 @@ Are you tired of squinting in the dark when aiming with your FNP? If so, look no
 
 ## The Top 5 Best FNP Night Sights
 
-1. [YITAHOME Multi-Functional Sleeper Sofa Bed with Linen Fabric, Light Gray](https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - The HHA 3019 Optimizer Lite .019 1 Pin Sight is a top-notch 20-80-yard targeting solution, offering fully protected fiber optics, tool-free adjustments, and a sleek 1 5/8" housing for precise and hassle-free performance.
+1. [YITAHOME Multi-Functional Sleeper Sofa Bed with Linen Fabric, Light Gray](https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fnp-night-sights&utm_term=yitahome-multi-functional-sleeper-sofa-bed-with-linen-fabric-light-gray) - The HHA 3019 Optimizer Lite .019 1 Pin Sight is a top-notch 20-80-yard targeting solution, offering fully protected fiber optics, tool-free adjustments, and a sleek 1 5/8" housing for precise and hassle-free performance.
 
-2. [HHA Optimizer Ultra x XL Sight 5500 XL: Advanced Sighting Technology](https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Experience seamless sight adjustments with the HHA Optimizer Ultra x XL Sight 5500 XL .029 RH, offering 2nd axis and vertical adjustments, and an Infinite Adjust Slotted Slide Bracket for enhanced accuracy and range optimization.
+2. [HHA Optimizer Ultra x XL Sight 5500 XL: Advanced Sighting Technology](https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fnp-night-sights&utm_term=hha-optimizer-ultra-x-xl-sight-5500-xl-advanced-sighting-technology) - Experience seamless sight adjustments with the HHA Optimizer Ultra x XL Sight 5500 XL .029 RH, offering 2nd axis and vertical adjustments, and an Infinite Adjust Slotted Slide Bracket for enhanced accuracy and range optimization.
 
-3. [Precision Multi-Ring Technology Archery Sight](https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Experience unparalleled accuracy and precision with Spot Hogg Hunter Sight - 3 Pin .019 Right Hand, designed for hunters seeking optimal performance and reliability in varying lighting conditions.
+3. [Precision Multi-Ring Technology Archery Sight](https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fnp-night-sights&utm_term=precision-multi-ring-technology-archery-sight) - Experience unparalleled accuracy and precision with Spot Hogg Hunter Sight - 3 Pin .019 Right Hand, designed for hunters seeking optimal performance and reliability in varying lighting conditions.
 
-4. [Fast Eddie XL Double Pin Adjustable Sight for Right Hand Archers](https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - The Fast Eddie XL combines a lightweight, yet sturdy design with adjustable double pin sight and micro-adjust 2nd and 3rd axis for precision shooting, making it a top choice for hunters and tournament archers alike.
+4. [Fast Eddie XL Double Pin Adjustable Sight for Right Hand Archers](https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fnp-night-sights&utm_term=fast-eddie-xl-double-pin-adjustable-sight-for-right-hand-archers) - The Fast Eddie XL combines a lightweight, yet sturdy design with adjustable double pin sight and micro-adjust 2nd and 3rd axis for precision shooting, making it a top choice for hunters and tournament archers alike.
 
-5. [Fast Eddie Sight Double Pin .019 RH](https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Spot Hogg Fast Eddie Sight Double Pin .019 RH: A sleek, lightweight sight featuring 2nd/3rd axis adjustments, 6061 aluminum construction, and an innovative double pin design for improved accuracy, all in a compact and user-friendly package.
+5. [Fast Eddie Sight Double Pin .019 RH](https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fnp-night-sights&utm_term=fast-eddie-sight-double-pin-019-rh) - Spot Hogg Fast Eddie Sight Double Pin .019 RH: A sleek, lightweight sight featuring 2nd/3rd axis adjustments, 6061 aluminum construction, and an innovative double pin design for improved accuracy, all in a compact and user-friendly package.
 
 *As an Amazon™ Associate, we earn from qualifying purchases.*
 
@@ -35,9 +35,9 @@ Are you tired of squinting in the dark when aiming with your FNP? If so, look no
 ## Reviews
 
 
-### [YITAHOME Multi-Functional Sleeper Sofa Bed with Linen Fabric, Light Gray](https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [YITAHOME Multi-Functional Sleeper Sofa Bed with Linen Fabric, Light Gray](https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fnp-night-sights&utm_term=yitahome-multi-functional-sleeper-sofa-bed-with-linen-fabric-light-gray)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hha-3019-optimizer-lite-019-1-pin-sight-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-3019-optimizer-lite-019-1-pin-sight-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fnp-night-sights&utm_term=hha-3019-optimizer-lite-019-1-pin-sight-1"><img alt="hha-3019-optimizer-lite-019-1-pin-sight-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-3019-optimizer-lite-019-1-pin-sight-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 When I first decided to switch to a single pin adjustable sight, I was a bit skeptical about how it would perform. But, after using the HHA 3019 Optimizer Lite, my doubts were put to rest instantly. It not only tightened up my groups but also opened up my sight picture, making my shooting experience much more enjoyable. 
 
@@ -48,9 +48,9 @@ However, there is one concern that I need to address. Mounting a quiver on your 
 In conclusion, the HHA 3019 Optimizer Lite provides excellent value with its quality construction, easy installation, and user-friendly features. It's a perfect choice for those seeking a one-pin sight for their shooting needs. 
 
 
-### [HHA Optimizer Ultra x XL Sight 5500 XL: Advanced Sighting Technology](https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [HHA Optimizer Ultra x XL Sight 5500 XL: Advanced Sighting Technology](https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fnp-night-sights&utm_term=hha-optimizer-ultra-x-xl-sight-5500-xl-advanced-sighting-technology)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hha-optimizer-ultra-x-xl-sight-5500-xl-029-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-optimizer-ultra-x-xl-sight-5500-xl-029-rh-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fnp-night-sights&utm_term=hha-optimizer-ultra-x-xl-sight-5500-xl-029-rh-1"><img alt="hha-optimizer-ultra-x-xl-sight-5500-xl-029-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-optimizer-ultra-x-xl-sight-5500-xl-029-rh-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 This HHA Ultra x XL Sight is my go-to for keeping my aim sharp and accurate, even when I'm out in the field. It's been a game-changer for me, especially when I'm up against fast-moving targets. 
 
@@ -61,9 +61,9 @@ However, there's one downside I've noticed – adjusting the yardage while at fu
 All in all, the HHA Ultra x XL Sight has made a noticeable difference in my accuracy and confidence, both on the range and in the field. If you're in the market for a high-quality, single-pin sight, I highly recommend giving this one a try. 
 
 
-### [Precision Multi-Ring Technology Archery Sight](https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Precision Multi-Ring Technology Archery Sight](https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fnp-night-sights&utm_term=precision-multi-ring-technology-archery-sight)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="spot-hogg-hunter-sight-3-pin-019-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/spot-hogg-hunter-sight-3-pin-019-right-hand-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fnp-night-sights&utm_term=spot-hogg-hunter-sight-3-pin-019-right-hand-1"><img alt="spot-hogg-hunter-sight-3-pin-019-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/spot-hogg-hunter-sight-3-pin-019-right-hand-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 One Shot, One Dead"
 
@@ -82,9 +82,9 @@ However, there's one minor drawback - the dovetail mounting system replaced by a
 All in all, if you're looking for a top-notch, hard-mounted bow sight that offers exceptional adjustability and accuracy, look no further than the Spot Hogg Hunter Sight. Highly recommended! 
 
 
-### [Fast Eddie XL Double Pin Adjustable Sight for Right Hand Archers](https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Fast Eddie XL Double Pin Adjustable Sight for Right Hand Archers](https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fnp-night-sights&utm_term=fast-eddie-xl-double-pin-adjustable-sight-for-right-hand-archers)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="spot-hogg-fast-eddie-xl-sight-double-pin-019-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/spot-hogg-fast-eddie-xl-sight-double-pin-019-right-hand-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fnp-night-sights&utm_term=spot-hogg-fast-eddie-xl-sight-double-pin-019-right-hand-1"><img alt="spot-hogg-fast-eddie-xl-sight-double-pin-019-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/spot-hogg-fast-eddie-xl-sight-double-pin-019-right-hand-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 When I first laid my eyes on the Fast Eddie XL, I was captivated by its sleek and lightweight design. As a passionate hunter, precision and accuracy are always on top of my list. This innovative double pin sight certainly lived up to my expectations. The adjustable knobs allowed me to fine-tune the yardage settings with ease, while the micro-adjust 2nd and 3rd axis kept me on target over long distances. 
 
@@ -95,9 +95,9 @@ However, I found the weight quite substantial. It didn't deter me from using it,
 Overall, the Spot Hogg Fast Eddie XL Sight Double Pin has become an indispensable part of my hunting gear. Its unique features and sturdy build make it worth every penny, offering unparalleled accuracy and dependability in the field. 
 
 
-### [Fast Eddie Sight Double Pin .019 RH](https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Fast Eddie Sight Double Pin .019 RH](https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fnp-night-sights&utm_term=fast-eddie-sight-double-pin-019-rh)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="spot-hogg-fast-eddie-sight-double-pin-019-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/spot-hogg-fast-eddie-sight-double-pin-019-rh-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fnp-night-sights&utm_term=spot-hogg-fast-eddie-sight-double-pin-019-rh-1"><img alt="spot-hogg-fast-eddie-sight-double-pin-019-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/spot-hogg-fast-eddie-sight-double-pin-019-rh-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 The Spot Hogg Fast Eddie Sight with a double pin is an excellent choice for hunters and archers looking for a high-quality, adjustable sight that incorporates two fiber optic aiming points into one pin. This lightweight and rugged design features a double pin scope, double pointer, and a sleek, 6061 aluminum construction. The sight also offers a silent, quick-release locking yardage knob as well as a click-free yardage adjustment wheel, making it easy to use in any hunting or target shooting scenario. Additionally, the micro-adjust 2nd and 3rd axis, combined with tool-less horizontal and vertical adjustments, ensures precision and accuracy in every shot. Overall, the Spot Hogg Fast Eddie Sight Double Pin. 019 RH is a reliable and top-performing bow accessory that will enhance your archery experience. 
 
@@ -115,7 +115,7 @@ FNP night sights are crucial for effective target acquisition and improve overal
 
 ### Purchasing Considerations
 
-<div><a href="https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/FNP-Night-Sights-2/w=720,h=540,fit=pad,background=black" alt="FNP-Night-Sights-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fnp-night-sights&utm_term=fnp-night-sights-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/FNP-Night-Sights-2/w=720,h=540,fit=pad,background=black" alt="FNP-Night-Sights-2"></a></div>
 
 * Price: Determine your budget and find the best quality night sights that fit within it
 
@@ -131,7 +131,7 @@ Proper installation is critical for optimal performance of your FNP night sights
 
 ## FAQ
 
-<div><a href="https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/FNP-Night-Sights-3/w=720,h=540,fit=pad,background=black" alt="FNP-Night-Sights-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fnp-night-sights&utm_term=fnp-night-sights-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/FNP-Night-Sights-3/w=720,h=540,fit=pad,background=black" alt="FNP-Night-Sights-3"></a></div>
 
 
 ### What are FNP Night Sights?
@@ -146,7 +146,7 @@ FNP Night Sights contain phosphorescent paint that glows in the dark when charge
 
 ### What are the benefits of using FNP Night Sights?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/FNP-Night-Sights-4/w=720,h=540,fit=pad,background=black" alt="FNP-Night-Sights-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fnp-night-sights&utm_term=fnp-night-sights-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/FNP-Night-Sights-4/w=720,h=540,fit=pad,background=black" alt="FNP-Night-Sights-4"></a></div>
 
 There are several benefits to using FNP Night Sights on your FNP-series pistol, including: 
 
@@ -174,7 +174,7 @@ FNP Night Sights are designed to fit the following FNP pistol models:
 
 Yes, FNP Night Sights are relatively easy to install on FNP pistols. You can perform the installation yourself or have a professional gunsmith do it for you. 
 
-<div><a href="https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/FNP-Night-Sights-5/w=720,h=540,fit=pad,background=black" alt="FNP-Night-Sights-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fnp-night-sights&utm_term=fnp-night-sights-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/FNP-Night-Sights-5/w=720,h=540,fit=pad,background=black" alt="FNP-Night-Sights-5"></a></div>
 
 
 ### How long do FNP Night Sights last?
@@ -189,7 +189,7 @@ Yes, FNP Night Sights can be used during daytime as well. The phosphorescent pai
 
 ### How do FNP Night Sights compare to other night sight options?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/FNP-Night-Sights-6/w=720,h=540,fit=pad,background=black" alt="FNP-Night-Sights-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/fnp-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=fnp-night-sights&utm_term=fnp-night-sights-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/FNP-Night-Sights-6/w=720,h=540,fit=pad,background=black" alt="FNP-Night-Sights-6"></a></div>
 
 FNP Night Sights offer high visibility and performance in low light conditions, making them an attractive option for FNP pistol users. Compared to other night sight options like fiber optics or tritium, FNP Night Sights provide a cost-effective solution with excellent performance. 
 

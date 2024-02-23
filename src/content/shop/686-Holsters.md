@@ -16,33 +16,33 @@ Introducing our top picks for 686 Holsters, perfect for any gun enthusiast or de
 
 ## The Top 10 Best 686 Holsters
 
-1. [Slim and Comfortable IWB Holster for Sig Sauer P365/P365X](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Klipt IWB Holster provides a sleek and comfortable solution for everyday concealed carry of your Sig P365 / P365X, offering secure locking mechanisms and easy on/off belt clip with full-length sweat guard for all-day comfort.
+1. [Slim and Comfortable IWB Holster for Sig Sauer P365/P365X](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=slim-and-comfortable-iwb-holster-for-sig-sauer-p365p365x) - The Blade-Tech Klipt IWB Holster provides a sleek and comfortable solution for everyday concealed carry of your Sig P365 / P365X, offering secure locking mechanisms and easy on/off belt clip with full-length sweat guard for all-day comfort.
 
-2. [IWB Kydex Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience superior concealed carry comfort with Crossbreed's premium-grade SuperTuck IWB Holster.
+2. [IWB Kydex Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=iwb-kydex-holster-for-concealed-carry) - Experience superior concealed carry comfort with Crossbreed's premium-grade SuperTuck IWB Holster.
 
-3. [Slim and Discreet IWB Holster for Smith & Wesson Shield 45](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience premium comfort and unparalleled concealment with the Klipt IWB Holster for S&W Shield 45, crafted with a high sweat guard, precise trigger guard lock, and a slim, discreet design for everyday carry.
+3. [Slim and Discreet IWB Holster for Smith & Wesson Shield 45](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=slim-and-discreet-iwb-holster-for-smith-wesson-shield-45) - Experience premium comfort and unparalleled concealment with the Klipt IWB Holster for S&W Shield 45, crafted with a high sweat guard, precise trigger guard lock, and a slim, discreet design for everyday carry.
 
-4. [Blade-Tech Classic OWB Holster for Sig P320/M17 - Right Handed](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Classic OWB Holster for Sig P320 offers adjustable retention, IDPA & USPSA legal speed cut design, and a high-strength Boltaron build for durability and precision performance.
+4. [Blade-Tech Classic OWB Holster for Sig P320/M17 - Right Handed](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=blade-tech-classic-owb-holster-for-sig-p320m17-right-handed) - The Blade-Tech Classic OWB Holster for Sig P320 offers adjustable retention, IDPA & USPSA legal speed cut design, and a high-strength Boltaron build for durability and precision performance.
 
-5. [Blade-Tech Signature OWB Holster for S&W M&P 2.0 9/40/45](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience premium build and performance with the USA-made Blade-Tech Signature OWB Holster for S&W M&P 2.0 9/40/45, featuring adjustable retention, positive locking trigger guard, and precision molding for exceptional fit and quick draw.
+5. [Blade-Tech Signature OWB Holster for S&W M&P 2.0 9/40/45](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=blade-tech-signature-owb-holster-for-sw-mp-20-94045) - Experience premium build and performance with the USA-made Blade-Tech Signature OWB Holster for S&W M&P 2.0 9/40/45, featuring adjustable retention, positive locking trigger guard, and precision molding for exceptional fit and quick draw.
 
-6. [M&P 1.0 9/40/45 Holster | OWB Concealed Carry Holster | IDPA Legal Optic Ready Speed Cut](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the Blade-Tech Signature OWB Holster for S&W M&P 1.0 - 9/40/45, boasting adjustable retention, versatile compatibility, a heat-resistant polymer build, positive locking trigger guard, and a swift, IDPA-legal speed cut for competitive shooters.
+6. [M&P 1.0 9/40/45 Holster | OWB Concealed Carry Holster | IDPA Legal Optic Ready Speed Cut](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=mp-10-94045-holster-owb-concealed-carry-holster-idpa-legal-optic-ready-speed-cut) - Discover the Blade-Tech Signature OWB Holster for S&W M&P 1.0 - 9/40/45, boasting adjustable retention, versatile compatibility, a heat-resistant polymer build, positive locking trigger guard, and a swift, IDPA-legal speed cut for competitive shooters.
 
-7. [Smith & Wesson M&P Shield 9/40/Plus OWB Holster - Signature Series](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Signature OWB Holster is a high-quality, USA-made, adjustable fit and secure option for your S&W M&P Shield, offering optimal performance and compatibility for various accessories.
+7. [Smith & Wesson M&P Shield 9/40/Plus OWB Holster - Signature Series](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=smith-wesson-mp-shield-940plus-owb-holster-signature-series) - The Blade-Tech Signature OWB Holster is a high-quality, USA-made, adjustable fit and secure option for your S&W M&P Shield, offering optimal performance and compatibility for various accessories.
 
-8. [IWB Holster for S&W M&P Shield/M2.0/Plus 9mm/.40/30 Super Carry](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - We The People Holsters' Smith & Wesson M&P Shield/M2.0/Plus 9mm/.40/30 Super Carry IWB Right-Handed Holster is a comfortable, lightweight, and durable Kydex holster specifically designed for these firearms, offering ideal concealment and protection.
+8. [IWB Holster for S&W M&P Shield/M2.0/Plus 9mm/.40/30 Super Carry](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=iwb-holster-for-sw-mp-shieldm20plus-9mm4030-super-carry) - We The People Holsters' Smith & Wesson M&P Shield/M2.0/Plus 9mm/.40/30 Super Carry IWB Right-Handed Holster is a comfortable, lightweight, and durable Kydex holster specifically designed for these firearms, offering ideal concealment and protection.
 
-9. [Slim and Discreet IWB Holster for Sig P320C and M18](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the perfect blend of comfort, security, and functionality with the Klipt IWB Holster for Sig P320C, designed to keep your firearm secure and comfortable while maintaining a sleek and discreet appearance for everyday carry.
+9. [Slim and Discreet IWB Holster for Sig P320C and M18](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=slim-and-discreet-iwb-holster-for-sig-p320c-and-m18) - Experience the perfect blend of comfort, security, and functionality with the Klipt IWB Holster for Sig P320C, designed to keep your firearm secure and comfortable while maintaining a sleek and discreet appearance for everyday carry.
 
-10. [Adjustable Retention OWB Holster for S&W 686 4](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Classic OWB Holster for S&W 686 4": Adjustable retention, Boltaron-built, IDPA/USPSA legal, lifetime guarantee - for unbeatable precision, performance, and peace of mind.
+10. [Adjustable Retention OWB Holster for S&W 686 4](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=adjustable-retention-owb-holster-for-sw-686-4) - The Blade-Tech Classic OWB Holster for S&W 686 4": Adjustable retention, Boltaron-built, IDPA/USPSA legal, lifetime guarantee - for unbeatable precision, performance, and peace of mind.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Slim and Comfortable IWB Holster for Sig Sauer P365/P365X](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Slim and Comfortable IWB Holster for Sig Sauer P365/P365X](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=slim-and-comfortable-iwb-holster-for-sig-sauer-p365p365x)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="blade-tech-klipt-in-the-waistband-sig-p365-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-klipt-in-the-waistband-sig-p365-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=blade-tech-klipt-in-the-waistband-sig-p365-holster-1"><img alt="blade-tech-klipt-in-the-waistband-sig-p365-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-klipt-in-the-waistband-sig-p365-holster-1/public"/></a></div>
 
 I recently purchased the Blade-Tech Klipt IWB Holster for my Sig P365, and have been quite impressed with its performance. The slim design makes it easy to conceal, even when wearing light clothing. One of the most significant features is the high sweat guard, which keeps my firearm off my body and prevents any discomfort from moisture or slide serrations.
 
@@ -50,9 +50,9 @@ The belt clip that comes with the holster is an innovative addition; it allows y
 
 Overall, this product exceeded all expectations; it is comfortable throughout the day as well as providing peace of mind knowing that my firearm is securely tucked away until needed. This holster has become a go-to in my EDC routine, and I highly recommend it to anyone looking for a reliable IWB option for their Sig P365 / P365X!
 
-### [IWB Kydex Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [IWB Kydex Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=iwb-kydex-holster-for-concealed-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="crossbreed-holsters-supertuck-iwb-holster-rh-black-cowhide-sth-r-1216-x-cb-sc-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crossbreed-holsters-supertuck-iwb-holster-rh-black-cowhide-sth-r-1216-x-cb-sc-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=crossbreed-holsters-supertuck-iwb-holster-rh-black-cowhide-sth-r-1216-x-cb-sc-1"><img alt="crossbreed-holsters-supertuck-iwb-holster-rh-black-cowhide-sth-r-1216-x-cb-sc-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crossbreed-holsters-supertuck-iwb-holster-rh-black-cowhide-sth-r-1216-x-cb-sc-1/public"/></a></div>
 
 The soft, supple leather backing of this holster molds to the body shape, providing a custom-like fit without any discomfort or irritation. Its versatility is impressive as it can be worn inside the waistband (IWB) for deep concealment without showing prints. The adjustable retention system ensures a secure fit for various firearms while still offering smooth and quick draw capabilities.
 
@@ -60,15 +60,15 @@ Despite its high-quality craftsmanship and attention to detail, some users have 
 
 Overall, with its comfort and performance, this holster offers an outstanding concealed carry solution; however, improvements could be made in terms of material choice and transparency regarding component materials.
 
-### [Slim and Discreet IWB Holster for Smith & Wesson Shield 45](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Slim and Discreet IWB Holster for Smith & Wesson Shield 45](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=slim-and-discreet-iwb-holster-for-smith-wesson-shield-45)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="klipt-iwb-holster-for-sw-shield-45-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-holster-for-sw-shield-45-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=klipt-iwb-holster-for-sw-shield-45-right-handed-inside-the-waistband-klipt-blade-tech-1"><img alt="klipt-iwb-holster-for-sw-shield-45-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-holster-for-sw-shield-45-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
 
 Having used the Blade-Tech Klipt IWB Holster for the S&W Shield 45 daily, I'm impressed with its sleek design and comfort. The high sweat guard keeps my firearm dry and comfortable all day long without any discomfort. Additionally, the easy on/off belt clip holds it securely to my belt throughout the day. The built-in retention ensures my firearm stays safe while carrying out daily activities like jogging. Made in USA from durable heat resistant polymer, this holster is a perfect everyday carry option for your S&W Shield 45.
 
-### [Blade-Tech Classic OWB Holster for Sig P320/M17 - Right Handed](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Blade-Tech Classic OWB Holster for Sig P320/M17 - Right Handed](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=blade-tech-classic-owb-holster-for-sig-p320m17-right-handed)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sig-p320-fs-owb-holster-right-handed-sig-sauer-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sig-p320-fs-owb-holster-right-handed-sig-sauer-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=sig-p320-fs-owb-holster-right-handed-sig-sauer-blade-tech-1"><img alt="sig-p320-fs-owb-holster-right-handed-sig-sauer-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sig-p320-fs-owb-holster-right-handed-sig-sauer-blade-tech-1/public"/></a></div>
 
 The Blade-Tech Classic OWB Holster for my Sig P320 / M17 has exceeded my expectations when it comes to precision and performance in a holster. Made from high-strength Boltaron right here in the U. S. A, this holster provides me with an accurate fit and adjustability that I've come to rely on during competitions and everyday use.
 
@@ -78,9 +78,9 @@ The IDPA & USPSA legal optic ready speed cut design not only adds a sleek touch 
 
 Overall, I have been extremely satisfied with this product and would highly recommend it to other marksmen who demand top-notch precision in their equipment like myself. Plus, its lifetime guarantee adds another layer of assurance making it well worth every penny spent.
 
-### [Blade-Tech Signature OWB Holster for S&W M&P 2.0 9/40/45](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Blade-Tech Signature OWB Holster for S&W M&P 2.0 9/40/45](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=blade-tech-signature-owb-holster-for-sw-mp-20-94045)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sw-mp-2-0-9-40-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-smit-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-mp-2-0-9-40-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-smit-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=sw-mp-2-0-9-40-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-smit-1"><img alt="sw-mp-2-0-9-40-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-smit-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-mp-2-0-9-40-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-smit-1/public"/></a></div>
 
 The BladeTech Signature OWB Holster for the S&W - M&P 2. 0 - 9/40/45 (4. 25" & 4. 6") is an excellent option for gun owners who prioritize safety and performance. The adjustable retention feature allows users to customize the fit of their firearm, ensuring that it stays secure in the holster while allowing easy access when needed. Made from high-strength heat resistant polymers in the USA, this holster is precision molded to provide a superior fit and enhance overall performance.
 
@@ -88,9 +88,9 @@ One standout feature is the positive locking trigger guard, which provides tacti
 
 Although some users may find that out-of-box retention feels slightly stiff, making adjustments with provided screws can resolve this issue easily. The various attachment options such as Tek-Lok Belt mount & TMMS systems also make it convenient to switch between belts or MOLLE attachments as needed without any hassle. Overall, this product offers great value and functionality for its price and has received high ratings from many satisfied customers who have noticed significant improvements in their firearm handling experience while using this product consistently over time!
 
-### [M&P 1.0 9/40/45 Holster | OWB Concealed Carry Holster | IDPA Legal Optic Ready Speed Cut](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [M&P 1.0 9/40/45 Holster | OWB Concealed Carry Holster | IDPA Legal Optic Ready Speed Cut](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=mp-10-94045-holster-owb-concealed-carry-holster-idpa-legal-optic-ready-speed-cut)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sw-mp-1-0-9-40-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-smit-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-mp-1-0-9-40-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-smit-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=sw-mp-1-0-9-40-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-smit-1"><img alt="sw-mp-1-0-9-40-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-smit-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-mp-1-0-9-40-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-smit-1/public"/></a></div>
 
 As a reviewer who has used the product, I found it to be an excellent choice for carrying outside the waistband due to its durability, compatibility with various attachment options, and precision molding. The adjustable retention feature allowed me to fine-tune the fit of the holster around my firearm, providing both comfort and security.
 
@@ -98,9 +98,9 @@ The proprietary blend of polymers proved to be very durable during my use, and I
 
 However, there were a few initial adjustments needed regarding fitment and retention strength adjustment which were easily rectified by simply loosening or tightening screws. Apart from this minor inconvenience, it was an excellent choice for those looking for a high-quality affordable OWB holster that performed well at the range. Overall, it's definitely worth considering if you're in search of a reliable OWB holster for your firearm needs.
 
-### [Smith & Wesson M&P Shield 9/40/Plus OWB Holster - Signature Series](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Smith & Wesson M&P Shield 9/40/Plus OWB Holster - Signature Series](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=smith-wesson-mp-shield-940plus-owb-holster-signature-series)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sw-mp-shield-9-40-plus-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-mp-shield-9-40-plus-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=sw-mp-shield-9-40-plus-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-1"><img alt="sw-mp-shield-9-40-plus-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-mp-shield-9-40-plus-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-1/public"/></a></div>
 
 I've been using the Blade-Tech Signature OWB Holster for my S&W - M&P Shield 9/40/Plus for several months, and I'm impressed with its performance. The holster is made from a strong, heat-resistant polymer that feels long-lasting and durable.
 
@@ -110,9 +110,9 @@ The IDPA legal Optic Ready Speed Cut makes it easy to draw quickly during traini
 
 One challenge I faced was adjusting the tension on the holster, as there were no specific instructions provided and only two screws available for adjustment. However, after some trial and error, I found the perfect balance between security and smooth draw action. Overall, I'm happy with my purchase but would appreciate more detailed instructions from Blade-Tech in future models or product guides online!
 
-### [IWB Holster for S&W M&P Shield/M2.0/Plus 9mm/.40/30 Super Carry](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [IWB Holster for S&W M&P Shield/M2.0/Plus 9mm/.40/30 Super Carry](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=iwb-holster-for-sw-mp-shieldm20plus-9mm4030-super-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="smith-wesson-mp-shield-m2-0-plus-9mm-40-30-super-carry-iwb-right-handed-holster-by-we-the-people-hol-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-wesson-mp-shield-m2-0-plus-9mm-40-30-super-carry-iwb-right-handed-holster-by-we-the-people-hol-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=smith-wesson-mp-shield-m2-0-plus-9mm-40-30-super-carry-iwb-right-handed-holster-by-we-the-people-hol-1"><img alt="smith-wesson-mp-shield-m2-0-plus-9mm-40-30-super-carry-iwb-right-handed-holster-by-we-the-people-hol-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-wesson-mp-shield-m2-0-plus-9mm-40-30-super-carry-iwb-right-handed-holster-by-we-the-people-hol-1/public"/></a></div>
 
 After using this holster for several weeks with my Smith & Wesson M&P Shield / Plus 9mm/. 40/30 Super Carry, I've found it to be a reliable and durable option for concealed carry. The KYDEX material used is thick and rigid, ensuring that the holster maintains its structure over time. Furthermore, the specific molding of the holster for my firearm provides a snug fit, keeping my weapon securely in place.
 
@@ -122,9 +122,9 @@ However, I did encounter some minor issues during my use. Even though the holste
 
 In conclusion, this IWB Holster offers great value in terms of comfort and durability but may require some slight modifications based on individual preferences or body types. Overall, if you're in search of a reliable and well-made inside-the-waistband holster for your Smith & Wesson M&P Shield / Plus 9mm/. 40/30 Super Carry, this product might just be what you need.
 
-### [Slim and Discreet IWB Holster for Sig P320C and M18](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Slim and Discreet IWB Holster for Sig P320C and M18](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=slim-and-discreet-iwb-holster-for-sig-p320c-and-m18)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="klipt-iwb-sig-p320c-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-sig-p320c-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=klipt-iwb-sig-p320c-holster-right-handed-inside-the-waistband-klipt-blade-tech-1"><img alt="klipt-iwb-sig-p320c-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-sig-p320c-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
 
 I recently tried out the Blade-Tech Klipt IWB Holster for my Sig P320C / M18, and it has definitely become a favorite. The slim design is discreet, making it easy to carry every day without feeling too bulky or uncomfortable.
 
@@ -136,9 +136,9 @@ Comfort-wise, this holster excels with its smooth edges and full-length sweat sh
 
 My only minor complaint would be adjusting the cant can be tricky sometimes; an adjustable cant option would be great to have for added convenience. However, overall this is a fantastic carrying option that's well worth considering if you own a Sig P320C / M18 like myself! 👍
 
-### [Adjustable Retention OWB Holster for S&W 686 4](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Adjustable Retention OWB Holster for S&W 686 4](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=adjustable-retention-owb-holster-for-sw-686-4)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sw-686-4-owb-holster-right-handed-smith-wesson-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-686-4-owb-holster-right-handed-smith-wesson-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=sw-686-4-owb-holster-right-handed-smith-wesson-blade-tech-1"><img alt="sw-686-4-owb-holster-right-handed-smith-wesson-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-686-4-owb-holster-right-handed-smith-wesson-blade-tech-1/public"/></a></div>
 
 I recently had the pleasure of trying out the Blade-Tech Classic OWB Holster for the S&W 686 4". My experience with it has been extremely positive.
 
@@ -164,7 +164,7 @@ When looking for 686 holsters, there are several key features to take into accou
 
 - Concealment: If you're looking for a concealed carry option, consider a holster designed for concealed use, such as an IWB (Inside the Waistband) or OWB (Outside the Waistband) holster.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/686+Holsters-2/public" alt="686 Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=686-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/686+Holsters-2/public" alt="686 Holsters-2"></a></div>
 
 ### Materials and Durability
 
@@ -178,7 +178,7 @@ Some 686 holsters can be further customized with adjustable cant, retention scre
 
 Select a 686 holster that is suitable for the intended use, such as hunting, competitive shooting, or everyday carry. Also, consider the climate and weather conditions in which you'll be using the holster, as factors like moisture and humidity can affect the performance of certain materials.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/686+Holsters-3/public" alt="686 Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=686-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/686+Holsters-3/public" alt="686 Holsters-3"></a></div>
 
 ### Proper Fit and Sizing
 
@@ -192,7 +192,7 @@ Choose a 686 holster from a reputable company that offers a warranty and respons
 
 Before purchasing a 686 holster, read reviews and customer feedback to gain insights into the product's quality, performance, and user satisfaction. Additionally, consulting with a firearms professional or attending a training course can provide valuable guidance and information when choosing the right holster for your needs.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/686+Holsters-4/public" alt="686 Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=686-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/686+Holsters-4/public" alt="686 Holsters-4"></a></div>
 
 ## FAQ
 
@@ -204,7 +204,7 @@ Before purchasing a 686 holster, read reviews and customer feedback to gain insi
 
 686 holsters are compatible with a wide range of firearms, specifically designed to fit various revolvers including those from Smith & Wesson, Taurus, Ruger, and more. To ensure compatibility, check the product description or consult the manufacturer's sizing guidelines for your specific firearm model.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/686+Holsters-5/public" alt="686 Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=686-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/686+Holsters-5/public" alt="686 Holsters-5"></a></div>
 
 ### How do I determine the right size 686 holster for my firearm?
 
@@ -218,7 +218,7 @@ Yes, 686 holsters are suitable for concealed carry. Many models feature compact 
 
 To clean and maintain your 686 holster, use a damp cloth to wipe away dirt or debris. Avoid using excessive water or harsh chemicals, which may damage the material. For regular maintenance, inspect your holster for signs of wear or damage and replace as needed. Proper maintenance will help prolong the life of your holster and ensure continued safe and secure firearm carry.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/686+Holsters-6/public" alt="686 Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=686-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/686+Holsters-6/public" alt="686 Holsters-6"></a></div>
 
 ### Do 686 holsters come with a warranty?
 

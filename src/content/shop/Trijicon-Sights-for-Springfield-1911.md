@@ -19,17 +19,17 @@ category: "Gun Sights"
 
 ## The Top 6 Best Trijicon Sights for Springfield 1911
 
-1. [Ultra-Bright Fiber Optic Sight for Accurate Shots in Low Light](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Experience unparalleled accuracy with the Truglo TSX Pro 5 Pin .019 Sight Black w/Light - an award-winning design, offering lightning quick adjustments and silent performance for optimal shooting.
+1. [Ultra-Bright Fiber Optic Sight for Accurate Shots in Low Light](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=ultra-bright-fiber-optic-sight-for-accurate-shots-in-low-light) - Experience unparalleled accuracy with the Truglo TSX Pro 5 Pin .019 Sight Black w/Light - an award-winning design, offering lightning quick adjustments and silent performance for optimal shooting.
 
-2. [Truglo AC Range Rover Black Sight with Infinite Brightness Settings](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - The Truglo AC Range Rover .019 Black Sight offers precision and convenience, featuring a tool-less yardage lock, adjustable rheostat for infinite brightness settings, and extra-long wrapped fiber for a clean, circular sight picture.
+2. [Truglo AC Range Rover Black Sight with Infinite Brightness Settings](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=truglo-ac-range-rover-black-sight-with-infinite-brightness-settings) - The Truglo AC Range Rover .019 Black Sight offers precision and convenience, featuring a tool-less yardage lock, adjustable rheostat for infinite brightness settings, and extra-long wrapped fiber for a clean, circular sight picture.
 
-3. [Accu-Stat II 5 Pin Sight with Independent Axis Adjustments](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Experience unparalleled accuracy and adjustability with the Axcel Landslyde 1 Pin .010 Green RH, featuring CCT technology, adjustable dead stop, and Picatinny in-line sight mount for seamless integration with your bow setup.
+3. [Accu-Stat II 5 Pin Sight with Independent Axis Adjustments](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=accu-stat-ii-5-pin-sight-with-independent-axis-adjustments) - Experience unparalleled accuracy and adjustability with the Axcel Landslyde 1 Pin .010 Green RH, featuring CCT technology, adjustable dead stop, and Picatinny in-line sight mount for seamless integration with your bow setup.
 
-4. [Axion Soul Hunter 5 Pin Sight .019" Black](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - The Axion Soul Hunter 5 Pin Sight .019" Black, weighing just 6 oz., offers easy setup with laser etched adjustment lines, and is suitable for both right and left-handed users, making it a versatile and high-performance choice for your shooting needs.
+4. [Axion Soul Hunter 5 Pin Sight .019" Black](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=axion-soul-hunter-5-pin-sight-019-black) - The Axion Soul Hunter 5 Pin Sight .019" Black, weighing just 6 oz., offers easy setup with laser etched adjustment lines, and is suitable for both right and left-handed users, making it a versatile and high-performance choice for your shooting needs.
 
-5. [Truglo AC-4 Range Rover Archery Sight with Pre-Printed Yardage Tapes](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Experience unmatched versatility and accuracy with the Truglo AC-4 Range Rover Sight Black 4 Pin, offering customizable yardage tapes and compatibility with various bow and arrow combinations.
+5. [Truglo AC-4 Range Rover Archery Sight with Pre-Printed Yardage Tapes](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=truglo-ac-4-range-rover-archery-sight-with-pre-printed-yardage-tapes) - Experience unmatched versatility and accuracy with the Truglo AC-4 Range Rover Sight Black 4 Pin, offering customizable yardage tapes and compatibility with various bow and arrow combinations.
 
-6. [Top-of-the-line Sight for Your Sig P365 - Enhanced Accuracy & Durability](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - The Axcel Accutouch Picatinny Sight is a precise, adjustable bow-mounted sighting system featuring 3-pin Accustat II, 1st, 2nd, and 3rd axis adjustments, built-in slider sight, and CCT aiming ring for enhanced accuracy and customization options.
+6. [Top-of-the-line Sight for Your Sig P365 - Enhanced Accuracy & Durability](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=top-of-the-line-sight-for-your-sig-p365-enhanced-accuracy-durability) - The Axcel Accutouch Picatinny Sight is a precise, adjustable bow-mounted sighting system featuring 3-pin Accustat II, 1st, 2nd, and 3rd axis adjustments, built-in slider sight, and CCT aiming ring for enhanced accuracy and customization options.
 
 *As an Amazon™ Associate, we earn from qualifying purchases.*
 
@@ -37,9 +37,9 @@ category: "Gun Sights"
 ## Reviews
 
 
-### [Ultra-Bright Fiber Optic Sight for Accurate Shots in Low Light](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Ultra-Bright Fiber Optic Sight for Accurate Shots in Low Light](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=ultra-bright-fiber-optic-sight-for-accurate-shots-in-low-light)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="truglo-tsx-pro-5-pin-019-sight-black-w-light-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-tsx-pro-5-pin-019-sight-black-w-light-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=truglo-tsx-pro-5-pin-019-sight-black-w-light-1"><img alt="truglo-tsx-pro-5-pin-019-sight-black-w-light-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-tsx-pro-5-pin-019-sight-black-w-light-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the TruGlo TSX Pro Series Standard Sight and I've been using it extensively for the past few weeks. This sight is based on the award-winning TRU-SITE XTREME Series design, making it an ultrastrong and lightweight option for any archer. The stainless steel tube helps illuminate the pins, while the ultra-fine click adjustment allows for precise windage and elevation adjustments. 
 
@@ -52,9 +52,9 @@ However, there are some cons that I've encountered while using this sight. First
 Overall, I've had a positive experience with the TruGlo TSX Pro Series Standard Sight. It offers various useful features and is a great option for those looking to improve their accuracy and overall shooting experience. While there are some minor drawbacks, such as the not-so-bright light and finicky pin alignment, I believe that these can be easily overlooked given the sight's many benefits and competitive price point. 
 
 
-### [Truglo AC Range Rover Black Sight with Infinite Brightness Settings](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Truglo AC Range Rover Black Sight with Infinite Brightness Settings](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=truglo-ac-range-rover-black-sight-with-infinite-brightness-settings)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="truglo-ac-range-rover-019-black-sight-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-ac-range-rover-019-black-sight-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=truglo-ac-range-rover-019-black-sight-1"><img alt="truglo-ac-range-rover-019-black-sight-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-ac-range-rover-019-black-sight-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the Truglo AC Range Rover. 019 Black Sight, and it's been a game-changer for my target shooting experience. The first thing that struck me was how easy it was to set up. The tool-less yardage lock and smooth bracket movement made it incredibly user-friendly, even for someone like me who's not particularly tech-savvy. 
 
@@ -65,9 +65,9 @@ However, there are a few minor cons to consider. Some users reported issues with
 Despite these minor drawbacks, the overall experience with the Truglo AC Range Rover. 019 Black Sight has been overwhelmingly positive. Its durability, ease of use, and adaptability make it a worthwhile investment for anyone looking to enhance their target shooting skills. 
 
 
-### [Accu-Stat II 5 Pin Sight with Independent Axis Adjustments](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Accu-Stat II 5 Pin Sight with Independent Axis Adjustments](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=accu-stat-ii-5-pin-sight-with-independent-axis-adjustments)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="axcel-landslyde-picatinny-sight-black-av-41-1-pin-010-green-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/axcel-landslyde-picatinny-sight-black-av-41-1-pin-010-green-rh-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=axcel-landslyde-picatinny-sight-black-av-41-1-pin-010-green-rh-1"><img alt="axcel-landslyde-picatinny-sight-black-av-41-1-pin-010-green-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/axcel-landslyde-picatinny-sight-black-av-41-1-pin-010-green-rh-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I've been using this Axcel Landslyde Picatinny Sight for a few months now, and I must say, it's become one of my go-to options for enhancing my archery experience. The first thing that caught my attention was its sleek, black design. It looks good and feels solid in my hands. 
 
@@ -80,9 +80,9 @@ However, there's one con that I've noticed. The CCT technology aiming ring at th
 All in all, the Axcel Landslyde Picatinny Sight has definitely improved my archery game. Its unique features make it stand out from other sights on the market, and I would highly recommend it to anyone looking to up their game. 
 
 
-### [Axion Soul Hunter 5 Pin Sight .019" Black](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Axion Soul Hunter 5 Pin Sight .019" Black](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=axion-soul-hunter-5-pin-sight-019-black)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="axion-soul-hunter-5-pin-sight-019-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/axion-soul-hunter-5-pin-sight-019-black-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=axion-soul-hunter-5-pin-sight-019-black-1"><img alt="axion-soul-hunter-5-pin-sight-019-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/axion-soul-hunter-5-pin-sight-019-black-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 As someone who's tried out many sights for my Springfield 1911, I can attest to the Axion Soul Hunter being a game changer. Its lightweight design at just 6 oz makes it incredibly comfortable to use, and its all CNC machined build lends it a solid feel. The laser-etched adjustment lines are a nifty feature, making setup and windage adjustments a breeze. 
 
@@ -93,9 +93,9 @@ The Soul Hunter's staggered mounting holes took adaptability to another level, f
 Admittedly, there were a few minor drawbacks. The adjustment knobs could be a tad smoother, and the pins felt slightly stiffer than what I'm accustomed to. However, the benefits vastly outweighed these minor annoyances for me. In conclusion, while the Axion Soul Hunter comes with its own set of quirks, I'd recommend it to anyone looking for a reliable, compact sight for their Springfield 1911. 
 
 
-### [Truglo AC-4 Range Rover Archery Sight with Pre-Printed Yardage Tapes](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Truglo AC-4 Range Rover Archery Sight with Pre-Printed Yardage Tapes](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=truglo-ac-4-range-rover-archery-sight-with-pre-printed-yardage-tapes)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="truglo-ac-4-range-rover-sight-black-4-pin-019-rh-lh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-ac-4-range-rover-sight-black-4-pin-019-rh-lh-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=truglo-ac-4-range-rover-sight-black-4-pin-019-rh-lh-1"><img alt="truglo-ac-4-range-rover-sight-black-4-pin-019-rh-lh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-ac-4-range-rover-sight-black-4-pin-019-rh-lh-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I recently came across the Truglo AC-4 Range Rover Sight, and it's quickly become my go-to bow sight. Why, you ask? . Well, unlike traditional bow sights, the AC-4 can be locked in place as a multi-pin sight, or easily dialed in to whatever distance I'm shooting. 
 
@@ -104,9 +104,9 @@ It's like having two sights in one! . Plus, the pre-printed yardage tapes are su
 There's a whopping 60+ pre-printed yardage tapes included, so I can use it with pretty much any bow and arrow combo out there. It's been a game-changer for me, especially during those intense archery sessions. If you're in the market for a top-notch bow sight, the Truglo AC-4 Range Rover Sight is definitely worth checking out. 
 
 
-### [Top-of-the-line Sight for Your Sig P365 - Enhanced Accuracy & Durability](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Top-of-the-line Sight for Your Sig P365 - Enhanced Accuracy & Durability](https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=top-of-the-line-sight-for-your-sig-p365-enhanced-accuracy-durability)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="axcel-accutouch-picatinny-sight-black-accustat-ii-3-pin-019-rh-lh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/axcel-accutouch-picatinny-sight-black-accustat-ii-3-pin-019-rh-lh-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=axcel-accutouch-picatinny-sight-black-accustat-ii-3-pin-019-rh-lh-1"><img alt="axcel-accutouch-picatinny-sight-black-accustat-ii-3-pin-019-rh-lh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/axcel-accutouch-picatinny-sight-black-accustat-ii-3-pin-019-rh-lh-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Axcel Accutouch Picatinny Sight Black / Accustat II 3 Pin for the past few weeks, and I must say, it has completely revolutionized my archery experience. The adjustable red elevation tension lever is perfect for customizing how easily the sight slides along the elevation bar, giving me full control over my aim. 
 
@@ -121,7 +121,7 @@ In summary, this sight has significantly enhanced my archery experience, making 
 
 Trijicon Sights are a popular choice amongst shooters who own a Springfield 1911 pistol. These sights are designed to help improve accuracy and quicken target acquisition. Below, we will discuss some important features, considerations, and general advice when choosing Trijicon Sights for your Springfield 1911. 
 
-<div><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Trijicon-Sights-for-Springfield-1911-2/w=720,h=540,fit=pad,background=black" alt="Trijicon-Sights-for-Springfield-1911-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=trijicon-sights-for-springfield-1911-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Trijicon-Sights-for-Springfield-1911-2/w=720,h=540,fit=pad,background=black" alt="Trijicon-Sights-for-Springfield-1911-2"></a></div>
 
 
 ### Features of Trijicon Sights
@@ -147,7 +147,7 @@ Trijicon Sights are a popular choice amongst shooters who own a Springfield 1911
 
 * Compare prices and reviews from reputable sources to find the best option for your needs and budget
 
-<div><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Trijicon-Sights-for-Springfield-1911-3/w=720,h=540,fit=pad,background=black" alt="Trijicon-Sights-for-Springfield-1911-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=trijicon-sights-for-springfield-1911-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Trijicon-Sights-for-Springfield-1911-3/w=720,h=540,fit=pad,background=black" alt="Trijicon-Sights-for-Springfield-1911-3"></a></div>
 
 
 ### General Advice for Installing Trijicon Sights
@@ -165,7 +165,7 @@ Trijicon Sights are a popular choice amongst shooters who own a Springfield 1911
 
 Trijicon Sights are a great choice for upgrading the sights on your Springfield 1911 pistol. By considering the features, evaluating your needs and preferences, and properly installing and maintaining your sights, you can enjoy enhanced accuracy and quicker target acquisition with your Trijicon-equipped 1911. 
 
-<div><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Trijicon-Sights-for-Springfield-1911-4/w=720,h=540,fit=pad,background=black" alt="Trijicon-Sights-for-Springfield-1911-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=trijicon-sights-for-springfield-1911-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Trijicon-Sights-for-Springfield-1911-4/w=720,h=540,fit=pad,background=black" alt="Trijicon-Sights-for-Springfield-1911-4"></a></div>
 
 
 ## FAQ
@@ -175,7 +175,7 @@ Trijicon Sights are a great choice for upgrading the sights on your Springfield 
 
 Trijicon Sights are high-quality, durable, and precise aftermarket sights designed specifically for the Springfield 1911 pistol. These sights enhance shooters' accuracy and target acquisition capabilities, offering a range of options to suit different shooting styles and preferences. 
 
-<div><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Trijicon-Sights-for-Springfield-1911-5/w=720,h=540,fit=pad,background=black" alt="Trijicon-Sights-for-Springfield-1911-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=trijicon-sights-for-springfield-1911-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Trijicon-Sights-for-Springfield-1911-5/w=720,h=540,fit=pad,background=black" alt="Trijicon-Sights-for-Springfield-1911-5"></a></div>
 
 
 ### Why choose Trijicon Sights for a Springfield 1911?
@@ -193,7 +193,7 @@ Trijicon offers a variety of models for the Springfield 1911, including: * Brigh
 
 * Adjustable: A high visibility adjustable rear sight with tritium inserts and a fiber optic front sight for precision shooting.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Trijicon-Sights-for-Springfield-1911-6/w=720,h=540,fit=pad,background=black" alt="Trijicon-Sights-for-Springfield-1911-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/trijicon-sights-for-springfield-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=trijicon-sights-for-springfield-1911&utm_term=trijicon-sights-for-springfield-1911-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Trijicon-Sights-for-Springfield-1911-6/w=720,h=540,fit=pad,background=black" alt="Trijicon-Sights-for-Springfield-1911-6"></a></div>
 
 
 ### How do I install Trijicon Sights on my Springfield 1911?

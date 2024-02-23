@@ -18,23 +18,23 @@ At the core of every Scheels Gun Safe is a commitment to outstanding craftsmansh
 
 ## The Top 5 Best Scheels Gun Safes
 
-1. [Secure 18-Gun Compact Security Cabinet with Key Lock](https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Store, protect, and easily organize your firearms and valuables in the secure and durable Stack-On Steel 18 Gun Cabinet, meeting California DOJ safety regulations.
+1. [Secure 18-Gun Compact Security Cabinet with Key Lock](https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=scheels-gun-safes&utm_term=secure-18-gun-compact-security-cabinet-with-key-lock) - Store, protect, and easily organize your firearms and valuables in the secure and durable Stack-On Steel 18 Gun Cabinet, meeting California DOJ safety regulations.
 
-2. [Winchester 26 Long Gun Fireproof Safe](https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Protect your long guns and valuables with the Winchester 26 Long Gun Safe, boasting a 45-minute fire rating, robust security features, and ample storage for up to 26 long guns.
+2. [Winchester 26 Long Gun Fireproof Safe](https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=scheels-gun-safes&utm_term=winchester-26-long-gun-fireproof-safe) - Protect your long guns and valuables with the Winchester 26 Long Gun Safe, boasting a 45-minute fire rating, robust security features, and ample storage for up to 26 long guns.
 
-3. [Sports Afield Preserve Series Gun Safe - Secure up to 48 Firearms](https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Sports Afield Preserve Series SA5940P Gun Safe is a well-made, spacious storage solution for your guns and valuables, offering optimal security with its easy touch programmable electric lock.
+3. [Sports Afield Preserve Series Gun Safe - Secure up to 48 Firearms](https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=scheels-gun-safes&utm_term=sports-afield-preserve-series-gun-safe-secure-up-to-48-firearms) - The Sports Afield Preserve Series SA5940P Gun Safe is a well-made, spacious storage solution for your guns and valuables, offering optimal security with its easy touch programmable electric lock.
 
-4. [Haven Safe Model SA5942HX for Gun Storage](https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Safely store and protect your valuable firearms with the Sports Afield SA5942HX Haven Gun Safe, featuring pry-resistant recessed doors, adjustable shelving, and a random code e-lock for enhanced security.
+4. [Haven Safe Model SA5942HX for Gun Storage](https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=scheels-gun-safes&utm_term=haven-safe-model-sa5942hx-for-gun-storage) - Safely store and protect your valuable firearms with the Sports Afield SA5942HX Haven Gun Safe, featuring pry-resistant recessed doors, adjustable shelving, and a random code e-lock for enhanced security.
 
-5. [Cabela's Ambassador E-Lock 24-Gun Safe by Liberty in White Gloss](https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Cabela's Ambassador E-Lock Gun Safe by Liberty, featuring 11-gauge steel and 90 minutes of fire protection, provides unparalleled protection and storage for your firearms with its solid craftsmanship and elegant white gloss finish.
+5. [Cabela's Ambassador E-Lock 24-Gun Safe by Liberty in White Gloss](https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=scheels-gun-safes&utm_term=cabelas-ambassador-e-lock-24-gun-safe-by-liberty-in-white-gloss) - The Cabela's Ambassador E-Lock Gun Safe by Liberty, featuring 11-gauge steel and 90 minutes of fire protection, provides unparalleled protection and storage for your firearms with its solid craftsmanship and elegant white gloss finish.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Secure 18-Gun Compact Security Cabinet with Key Lock](https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Secure 18-Gun Compact Security Cabinet with Key Lock](https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=scheels-gun-safes&utm_term=secure-18-gun-compact-security-cabinet-with-key-lock)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="stack-on-beveled-18-gun-security-cabinet-steel-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/stack-on-beveled-18-gun-security-cabinet-steel-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=scheels-gun-safes&utm_term=stack-on-beveled-18-gun-security-cabinet-steel-1"><img alt="stack-on-beveled-18-gun-security-cabinet-steel-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/stack-on-beveled-18-gun-security-cabinet-steel-1/public"/></a></div>
 
 I recently purchased the Stack-On 18 Firearm Compact Security Cabinet Locker Gun Safe to secure my collection of firearms. After using it for several months, I have noticed some positive aspects as well as a few areas where it could improve.
 
@@ -44,9 +44,9 @@ However, there are a couple of issues that I have encountered during use. The in
 
 Overall, the Stack-On 18 Firearm Compact Security Cabinet Locker Gun Safe does provide basic protection for your firearms with its sturdy structure and multiple locks. However, if you're looking for something more heavy-duty or long lasting in terms of construction quality, this might not be the ideal option for you.
 
-### [Winchester 26 Long Gun Fireproof Safe](https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Winchester 26 Long Gun Fireproof Safe](https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=scheels-gun-safes&utm_term=winchester-26-long-gun-fireproof-safe)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="winchester-36-long-gun-e-lock-gun-safe-gray-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/winchester-36-long-gun-e-lock-gun-safe-gray-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=scheels-gun-safes&utm_term=winchester-36-long-gun-e-lock-gun-safe-gray-1"><img alt="winchester-36-long-gun-e-lock-gun-safe-gray-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/winchester-36-long-gun-e-lock-gun-safe-gray-1/public"/></a></div>
 
 I recently purchased the Winchester 26 Long Gun Safe, and I couldn't be happier with my decision. As a gun enthusiast, I needed a safe that could not only protect my long guns but also keep them organized. The Winchester safe has exceeded my expectations in terms of storage, accessibility, and security.
 
@@ -60,9 +60,9 @@ However, there are a few cons to consider with this safe. Some users have report
 
 Overall, I highly recommend the Winchester 26 Long Gun Safe to anyone in need of a reliable, secure, and well-organized gun safe. Its steel construction, fire rating, and accessibility features make it a top choice in its price range.
 
-### [Sports Afield Preserve Series Gun Safe - Secure up to 48 Firearms](https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Sports Afield Preserve Series Gun Safe - Secure up to 48 Firearms](https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=scheels-gun-safes&utm_term=sports-afield-preserve-series-gun-safe-secure-up-to-48-firearms)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sports-afield-sa5940p-preserve-series-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sports-afield-sa5940p-preserve-series-gun-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=scheels-gun-safes&utm_term=sports-afield-sa5940p-preserve-series-gun-safe-1"><img alt="sports-afield-sa5940p-preserve-series-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sports-afield-sa5940p-preserve-series-gun-safe-1/public"/></a></div>
 
 I recently invested in the Sports Afield SA5940P gun safe to keep my growing collection of firearms safe and secure. This top-notch preservation series safe not only provides an exceptional level of security but also offers features like a fully programmable electric lock and an adjustable interior.
 
@@ -78,9 +78,9 @@ Another minor issue I encountered was the lingering new product smell that fille
 
 In conclusion, the Sports Afield SA5940P Preserve Series gun safe has truly enhanced my home security, giving me the confidence and peace of mind knowing that my valuable firearms and other precious belongings are well-protected. This safe offers an excellent combination of quality, versatility, and style, all at an affordable price point. If you're searching for a reliable gun safe that's sure to exceed your expectations, look no further than the SA5940P.
 
-### [Haven Safe Model SA5942HX for Gun Storage](https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Haven Safe Model SA5942HX for Gun Storage](https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=scheels-gun-safes&utm_term=haven-safe-model-sa5942hx-for-gun-storage)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sports-afield-sa5942hx-haven-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sports-afield-sa5942hx-haven-gun-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=scheels-gun-safes&utm_term=sports-afield-sa5942hx-haven-gun-safe-1"><img alt="sports-afield-sa5942hx-haven-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sports-afield-sa5942hx-haven-gun-safe-1/public"/></a></div>
 
 As an avid shooter and gun collector, I've had the opportunity to use quite a few gun safes throughout the years. However, none of them have held a candle to the Sports Afield SA5942HX Haven Safe.
 
@@ -96,9 +96,9 @@ Another minor issue I encountered was with the keypad. The sticker on the keypad
 
 All in all, the Sports Afield SA5942HX Haven Safe is an excellent choice for anyone looking to secure their firearms and other valuables. Its robust construction, customizable features, and proven security make it a worthwhile investment.
 
-### [Cabela's Ambassador E-Lock 24-Gun Safe by Liberty in White Gloss](https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Cabela's Ambassador E-Lock 24-Gun Safe by Liberty in White Gloss](https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=scheels-gun-safes&utm_term=cabelas-ambassador-e-lock-24-gun-safe-by-liberty-in-white-gloss)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cabelas-ambassador-e-lock-gun-safe-by-liberty-white-gloss-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cabelas-ambassador-e-lock-gun-safe-by-liberty-white-gloss-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=scheels-gun-safes&utm_term=cabelas-ambassador-e-lock-gun-safe-by-liberty-white-gloss-1"><img alt="cabelas-ambassador-e-lock-gun-safe-by-liberty-white-gloss-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cabelas-ambassador-e-lock-gun-safe-by-liberty-white-gloss-1/public"/></a></div>
 
 I never knew how much I needed a good gun safe until I got my hands on the Cabela's Ambassador E-Lock Gun Safe by Liberty. This safe is a solid piece of work, made from 11-gauge steel. It's like a fortress for myguns! And I appreciate the fire protection it offers; I hope I never need to use it, but it's comforting to have.
 
@@ -124,7 +124,7 @@ When shopping for gun safes, there are several important features to take into a
 
 - Warranty: Choose a product with a long-term warranty to ensure that you are covered in case of any defects or malfunctions.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Scheels+Gun+Safes-2/public" alt="Scheels Gun Safes-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=scheels-gun-safes&utm_term=scheels-gun-safes-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Scheels+Gun+Safes-2/public" alt="Scheels Gun Safes-2"></a></div>
 
 ### Considerations
 
@@ -150,7 +150,7 @@ To make the most of your gun safe, follow these tips:
 
 By considering the features, factors, and advice outlined in this guide, you'll be well-equipped to choose the perfect gun safe for your needs and ensure the safety and security of your firearms.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Scheels+Gun+Safes-3/public" alt="Scheels Gun Safes-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=scheels-gun-safes&utm_term=scheels-gun-safes-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Scheels+Gun+Safes-3/public" alt="Scheels Gun Safes-3"></a></div>
 
 ## FAQ
 
@@ -162,7 +162,7 @@ Scheels Gun Safes offer a variety of features such as fire protection, adjustabl
 
 Scheels Gun Safes are designed with high-quality locks, strong construction materials, and heavy-duty door hinges to provide optimal security for your firearms.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Scheels+Gun+Safes-4/public" alt="Scheels Gun Safes-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=scheels-gun-safes&utm_term=scheels-gun-safes-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Scheels+Gun+Safes-4/public" alt="Scheels Gun Safes-4"></a></div>
 
 ### What is the fire resistance rating of Scheels Gun Safes?
 
@@ -176,7 +176,7 @@ Yes, Scheels Gun Safes come with a limited warranty ranging from 1 to 5 years, d
 
 Scheels Gun Safes are designed for easy installation, but they may require the use of power tools. Make sure to follow the provided instruction manual for proper installation.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Scheels+Gun+Safes-5/public" alt="Scheels Gun Safes-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=scheels-gun-safes&utm_term=scheels-gun-safes-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Scheels+Gun+Safes-5/public" alt="Scheels Gun Safes-5"></a></div>
 
 ### How can I ensure my Scheels Gun Safe is secure in my home?
 
@@ -194,7 +194,7 @@ Clean the exterior of your Scheels Gun Safe with a damp cloth and mild detergent
 
 Capacity can vary depending on the model, with some offering storage for 5 to 10 long guns and others offering additional storage for pistols, ammunition, and accessories.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Scheels+Gun+Safes-6/public" alt="Scheels Gun Safes-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/scheels-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=scheels-gun-safes&utm_term=scheels-gun-safes-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Scheels+Gun+Safes-6/public" alt="Scheels Gun Safes-6"></a></div>
 
 ### What is the weight of Scheels Gun Safes?
 

@@ -16,33 +16,33 @@ Looking for the perfect shooting target to hone your skills? Legion Targets offe
 
 ## The Top 10 Best Legion Targets
 
-1. [Bright Self-Adhesive Shooting Targets with Pasters](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Birchwood Casey Shoot-N-C Target provides an 8" bullseye, exploding in color upon bullet impact, perfect for indoor and outdoor shooting, including low-light conditions and extended target life with adhesive backings and repair pasters.
+1. [Bright Self-Adhesive Shooting Targets with Pasters](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=bright-self-adhesive-shooting-targets-with-pasters) - The Birchwood Casey Shoot-N-C Target provides an 8" bullseye, exploding in color upon bullet impact, perfect for indoor and outdoor shooting, including low-light conditions and extended target life with adhesive backings and repair pasters.
 
-2. [High-Visibility Yellow Steel Gong Target for Shooting Practice](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience precision shooting with the durable Caldwell AR500 5" Yellow Gong Target, designed for competition, training, and recreational use, featuring hardened steel construction and 3000 FPS impact velocity rating.
+2. [High-Visibility Yellow Steel Gong Target for Shooting Practice](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=high-visibility-yellow-steel-gong-target-for-shooting-practice) - Experience precision shooting with the durable Caldwell AR500 5" Yellow Gong Target, designed for competition, training, and recreational use, featuring hardened steel construction and 3000 FPS impact velocity rating.
 
-3. [Realistic Woodland Coyote 3D Archery Target by Rinehart](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Rinehart Signature Coyote Target: Experience lifelike practice sessions with the 3D Woodland Series Coyote designed for durable, year-round practice and easy arrow removal.
+3. [Realistic Woodland Coyote 3D Archery Target by Rinehart](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=realistic-woodland-coyote-3d-archery-target-by-rinehart) - The Rinehart Signature Coyote Target: Experience lifelike practice sessions with the 3D Woodland Series Coyote designed for durable, year-round practice and easy arrow removal.
 
-4. [High Quality AR500 Steel Shooting Targets for Accurate Practice](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the premium AR500 steel 4" target by Dragon Targets, crafted for durability and longevity in your shooting sessions. Experience the satisfying ding sound as you hit the mark and elevate your aim with this American-made, CNC laser-cut target.
+4. [High Quality AR500 Steel Shooting Targets for Accurate Practice](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=high-quality-ar500-steel-shooting-targets-for-accurate-practice) - Discover the premium AR500 steel 4" target by Dragon Targets, crafted for durability and longevity in your shooting sessions. Experience the satisfying ding sound as you hit the mark and elevate your aim with this American-made, CNC laser-cut target.
 
-5. [Indestructible AR500 Steel Shooting Targets for Rifle and Pistol Practice](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience accurate and hassle-free shooting practice with the CTS AR500 Hardened Steel Plate Targets, available in 6x6, 8x8 and 10x10 inch sizes, made in the USA with 1/2 inch thick American steel.
+5. [Indestructible AR500 Steel Shooting Targets for Rifle and Pistol Practice](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=indestructible-ar500-steel-shooting-targets-for-rifle-and-pistol-practice) - Experience accurate and hassle-free shooting practice with the CTS AR500 Hardened Steel Plate Targets, available in 6x6, 8x8 and 10x10 inch sizes, made in the USA with 1/2 inch thick American steel.
 
-6. [6" AR500 Steel Gong Target for Rifles and Pistols](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the thrill of laser-cut USA steel AR500 gong targets in various sizes for rifles, offering unmatched hardness and durability for long-lasting precision practice, enhancing shooter proficiency up to 50% faster than traditional paper targets.
+6. [6" AR500 Steel Gong Target for Rifles and Pistols](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=6-ar500-steel-gong-target-for-rifles-and-pistols) - Experience the thrill of laser-cut USA steel AR500 gong targets in various sizes for rifles, offering unmatched hardness and durability for long-lasting precision practice, enhancing shooter proficiency up to 50% faster than traditional paper targets.
 
-7. [Durable AR500 Steel Shooting Targets Kit for Long-Range & Close-Range Shooting](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - High-quality AR500 steel targets designed for long-lasting performance and compatibility with 308 and 5.56 rounds, offering a variety of sizes, styles, and kits for a comprehensive steel target shooting experience.
+7. [Durable AR500 Steel Shooting Targets Kit for Long-Range & Close-Range Shooting](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=durable-ar500-steel-shooting-targets-kit-for-long-range-close-range-shooting) - High-quality AR500 steel targets designed for long-lasting performance and compatibility with 308 and 5.56 rounds, offering a variety of sizes, styles, and kits for a comprehensive steel target shooting experience.
 
-8. [AR500 Steel IPSC AC Torso Silhouette Target for Double Tap Drills](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Legion Targets' steel IPSC torso silhouette target boasts exceptional quality and performance with precision laser-cut AR500 steel, suitable for double tap drills and enhancing accuracy.
+8. [AR500 Steel IPSC AC Torso Silhouette Target for Double Tap Drills](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=ar500-steel-ipsc-ac-torso-silhouette-target-for-double-tap-drills) - Legion Targets' steel IPSC torso silhouette target boasts exceptional quality and performance with precision laser-cut AR500 steel, suitable for double tap drills and enhancing accuracy.
 
-9. [High-Quality AR500 Steel Gong Target for Handguns and Rifles](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the perfect blend of precision, durability, and performance with the Xsteel 8" AR500 Gong 3/8" - designed for handguns and rifles up to 0.308 win, featuring laser-cut targets for stronger steel integrity and unmatched sound with every hit.
+9. [High-Quality AR500 Steel Gong Target for Handguns and Rifles](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=high-quality-ar500-steel-gong-target-for-handguns-and-rifles) - Experience the perfect blend of precision, durability, and performance with the Xsteel 8" AR500 Gong 3/8" - designed for handguns and rifles up to 0.308 win, featuring laser-cut targets for stronger steel integrity and unmatched sound with every hit.
 
-10. [Fluorescent Handgun Targets for All Weapon Types - 6 Pack](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Highly visible and versatile handgun target, perfect for enhancing your shooting experience.
+10. [Fluorescent Handgun Targets for All Weapon Types - 6 Pack](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=fluorescent-handgun-targets-for-all-weapon-types-6-pack) - Highly visible and versatile handgun target, perfect for enhancing your shooting experience.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Bright Self-Adhesive Shooting Targets with Pasters](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Bright Self-Adhesive Shooting Targets with Pasters](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=bright-self-adhesive-shooting-targets-with-pasters)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="birchwood-casey-shoot-n-c-target-8-bullseye-30-pack-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/birchwood-casey-shoot-n-c-target-8-bullseye-30-pack-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=birchwood-casey-shoot-n-c-target-8-bullseye-30-pack-1"><img alt="birchwood-casey-shoot-n-c-target-8-bullseye-30-pack-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/birchwood-casey-shoot-n-c-target-8-bullseye-30-pack-1/public"/></a></div>
 
 After using the Birchwood Casey ShootNC 8" Bull's-Eye, 30 Targets for several weeks, I've found that it has become an integral part of my shooting routine. The quality is outstanding, and the features are incredibly useful. One aspect that really stands out to me is the ease of use and versatility; these targets have made my practice sessions much more efficient.
 
@@ -50,9 +50,9 @@ One of the highlights for me was the self-adhesive backing, which makes setting 
 
 However, there are a few downsides to consider – battery life could be improved – but this issue is minor compared to all the benefits this product offers. In conclusion, I highly recommend these targets to anyone seeking a reliable and user-friendly solution for their shooting needs.
 
-### [High-Visibility Yellow Steel Gong Target for Shooting Practice](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [High-Visibility Yellow Steel Gong Target for Shooting Practice](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=high-visibility-yellow-steel-gong-target-for-shooting-practice)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="caldwell-ar500-5-in-yellow-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/caldwell-ar500-5-in-yellow-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=caldwell-ar500-5-in-yellow-1"><img alt="caldwell-ar500-5-in-yellow-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/caldwell-ar500-5-in-yellow-1/public"/></a></div>
 
 After using the Caldwell 5" Gong Target AR500 steel for several weeks, it's become a go-to target for my shooting sessions. The bright yellow color makes it easy to spot from afar, and the mounting holes offer versatility in hanging options.
 
@@ -62,9 +62,9 @@ A feature that stands out is the audible "ping" upon impact, providing real-time
 
 Overall, I am very satisfied with my purchase as it offers excellent quality for its price point and has held up well throughout extended use. However, prospective buyers should note its visibility limitations during low light conditions.
 
-### [Realistic Woodland Coyote 3D Archery Target by Rinehart](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Realistic Woodland Coyote 3D Archery Target by Rinehart](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=realistic-woodland-coyote-3d-archery-target-by-rinehart)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="rinehart-signature-coyote-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rinehart-signature-coyote-target-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=rinehart-signature-coyote-target-1"><img alt="rinehart-signature-coyote-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rinehart-signature-coyote-target-1/public"/></a></div>
 
 As a dedicated archer, I recently had the opportunity to try out the Rinehart Woodland Coyote 3D target. This target is part of their renowned Woodland Series, known for its realistic and durable designs. The coyote target features hand-painted details that closely resemble the actual animal, making practice both enjoyable and effective.
 
@@ -74,9 +74,9 @@ I found arrow removal to be simple thanks to the target's durable construction. 
 
 While there are many positive aspects of this product, one potential drawback is that it may not be as suitable for beginners or those who prefer targets with larger dimensions. However, for experienced archers looking for a challenging yet realistic practice tool, the Rinehart Woodland Coyote 3D target is definitely worth considering.
 
-### [High Quality AR500 Steel Shooting Targets for Accurate Practice](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [High Quality AR500 Steel Shooting Targets for Accurate Practice](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=high-quality-ar500-steel-shooting-targets-for-accurate-practice)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="dragon-targets-ar500-steel-4-x-3-8-shooting-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dragon-targets-ar500-steel-4-x-3-8-shooting-target-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=dragon-targets-ar500-steel-4-x-3-8-shooting-target-1"><img alt="dragon-targets-ar500-steel-4-x-3-8-shooting-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dragon-targets-ar500-steel-4-x-3-8-shooting-target-1/public"/></a></div>
 
 Dragon Brand targets have been my go-to for a while now, and I'll tell you why. The AR500 steel construction is as tough as they come, ensuring these targets can withstand even the most intense shooting sessions. And trust me, the loud sound upon impact is music to my ears – no more trekking downrange to check my aim. Bonus points for the matte white paint job that makes it easy to see shots from a distance.
 
@@ -84,9 +84,9 @@ While some may knock the price tag as high, I see it as more of an investment in
 
 After giving Dragon Brand a shot, I can confidently say I won't be switching back to paper targets anytime soon. For those in search of robust metal shooting targets made right here in America, look no further than Dragon Brand – they're worth every penny!
 
-### [Indestructible AR500 Steel Shooting Targets for Rifle and Pistol Practice](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Indestructible AR500 Steel Shooting Targets for Rifle and Pistol Practice](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=indestructible-ar500-steel-shooting-targets-for-rifle-and-pistol-practice)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cts-ar500-hardened-steel-plate-shooting-target-1-2-inch-thick-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cts-ar500-hardened-steel-plate-shooting-target-1-2-inch-thick-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=cts-ar500-hardened-steel-plate-shooting-target-1-2-inch-thick-1"><img alt="cts-ar500-hardened-steel-plate-shooting-target-1-2-inch-thick-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cts-ar500-hardened-steel-plate-shooting-target-1-2-inch-thick-1/public"/></a></div>
 
 As a hobbyist gun enthusiast, I was eager to test out the Metal Shooting Targets, so when I came across these targets, I knew I had to give them a try. The domestically sourced A500 hardened steel plates in the construction made me confident in its durability.
 
@@ -96,9 +96,9 @@ The target is laser-cut with precision to ensure exact specifications, eliminati
 
 Overall, these Metal Shooting Targets are definitely worth adding to your range gear thanks to their durable construction and ability to handle high-powered rounds without issue while still providing an enjoyable shooting experience every time you visit the range!
 
-### [6" AR500 Steel Gong Target for Rifles and Pistols](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [6" AR500 Steel Gong Target for Rifles and Pistols](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=6-ar500-steel-gong-target-for-rifles-and-pistols)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="shootingtargets7-ar500-steel-gong-target-6-x-3-8-inch-for-rifles-to-308-laser-cut-usa-steel-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shootingtargets7-ar500-steel-gong-target-6-x-3-8-inch-for-rifles-to-308-laser-cut-usa-steel-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=shootingtargets7-ar500-steel-gong-target-6-x-3-8-inch-for-rifles-to-308-laser-cut-usa-steel-1"><img alt="shootingtargets7-ar500-steel-gong-target-6-x-3-8-inch-for-rifles-to-308-laser-cut-usa-steel-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shootingtargets7-ar500-steel-gong-target-6-x-3-8-inch-for-rifles-to-308-laser-cut-usa-steel-1/public"/></a></div>
 
 Having tested and used the product for several weeks, I was thoroughly impressed with its quality, durability, and performance. The key features are impressive and work flawlessly, making it an excellent investment for anyone in need of this specific item.
 
@@ -110,9 +110,9 @@ In terms of quality, design, functionality, versatility, and customer support �
 
 Remember to always follow safety guidelines when using products like these to ensure a smooth experience.
 
-### [Durable AR500 Steel Shooting Targets Kit for Long-Range & Close-Range Shooting](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Durable AR500 Steel Shooting Targets Kit for Long-Range & Close-Range Shooting](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=durable-ar500-steel-shooting-targets-kit-for-long-range-close-range-shooting)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="ar500-steel-targets-usa-steel-3-8-ar500-2100fpe-1-round-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ar500-steel-targets-usa-steel-3-8-ar500-2100fpe-1-round-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=ar500-steel-targets-usa-steel-3-8-ar500-2100fpe-1-round-1"><img alt="ar500-steel-targets-usa-steel-3-8-ar500-2100fpe-1-round-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ar500-steel-targets-usa-steel-3-8-ar500-2100fpe-1-round-1/public"/></a></div>
 
 I recently purchased the AR500 Steel Gong Targets and I must say, they have been a game-changer for my shooting routine. Made from high-quality durable AR500 steel, these targets are capable of withstanding the impact of 308 and 5. 56 rounds. This allows me to engage in both long-range and close-range shooting without having to worry about damaging the targets.
 
@@ -120,9 +120,9 @@ One of my favorite features of these steel gongs is their variety in sizes and s
 
 Not only that, but these steel targets are suitable for use with A500 and AR400 steel which gives me more flexibility while choosing ammunition. They also hold up incredibly well against wear and tear even after taking numerous hits from high-powered rounds! Based on my personal experience, I highly recommend these AR500 Steel Gong Targets to any shooter looking for a durable target option that offers a versatile range of sizes and styles to enhance their shooting practice!
 
-### [AR500 Steel IPSC AC Torso Silhouette Target for Double Tap Drills](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [AR500 Steel IPSC AC Torso Silhouette Target for Double Tap Drills](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=ar500-steel-ipsc-ac-torso-silhouette-target-for-double-tap-drills)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="ar500-steel-ipsc-ac-torso-silhouette-target-ac-zone-3-17" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ar500-steel-ipsc-ac-torso-silhouette-target-ac-zone-3-17/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=ar500-steel-ipsc-ac-torso-silhouette-target-ac-zone-3-17"><img alt="ar500-steel-ipsc-ac-torso-silhouette-target-ac-zone-3-17" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ar500-steel-ipsc-ac-torso-silhouette-target-ac-zone-3-17/public"/></a></div>
 
 After trying out the Legion Targets AC Zone Toso Target for a while, I'm really impressed with its high-quality build and durability. Made from yellow zinc plated USA laser cut AR500 steel, this target has taken countless rounds without showing any signs of wear.
 
@@ -130,9 +130,9 @@ One feature that stands out is its static design, perfect for practicing double-
 
 While there aren't many downsides to this product, it would have been nice if it came with a stand or mount by default - something to keep in mind if you're purchasing. In conclusion, the Legion Targets AC Zone Toso Target is a top-notch shooting target that'll last you years of use!
 
-### [High-Quality AR500 Steel Gong Target for Handguns and Rifles](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [High-Quality AR500 Steel Gong Target for Handguns and Rifles](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=high-quality-ar500-steel-gong-target-for-handguns-and-rifles)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="xsteel-8-ar500-gong-3-9" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/xsteel-8-ar500-gong-3-9/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=xsteel-8-ar500-gong-3-9"><img alt="xsteel-8-ar500-gong-3-9" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/xsteel-8-ar500-gong-3-9/public"/></a></div>
 
 As a dedicated firearms enthusiast, I have tried various targets over the years. However, Legion Targets are by far my favorite. The 12" Gong AR 550 is not only sturdy but also satisfying to hit. The laser-cut design ensures smooth edges and superior steel integrity, allowing it to withstand even high-caliber rounds without any damage.
 
@@ -142,9 +142,9 @@ Legion Targets' shipping service is incredibly fast, which I highly appreciate a
 
 Although Legion Targets offer top-notch quality, it would be helpful if they expanded their mounting options to accommodate different shooting setups better. Nonetheless, I highly recommend these products to anyone looking for exciting and challenging shooting sessions!
 
-### [Fluorescent Handgun Targets for All Weapon Types - 6 Pack](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Fluorescent Handgun Targets for All Weapon Types - 6 Pack](https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=fluorescent-handgun-targets-for-all-weapon-types-6-pack)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="truglo-tru-see-handgun-target-12-x-18-green-6-pack-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-tru-see-handgun-target-12-x-18-green-6-pack-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=truglo-tru-see-handgun-target-12-x-18-green-6-pack-1"><img alt="truglo-tru-see-handgun-target-12-x-18-green-6-pack-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-tru-see-handgun-target-12-x-18-green-6-pack-1/public"/></a></div>
 
 As a frequent shooter, I take pride in honing my skills and constantly looking for ways to improve my accuracy. When I discovered the Legion Targets, I was intrigued by their promise of enhancing point-of-impact visibility with their fluorescent halos. After trying them out for an extended period of time, I can confidently say that these targets have surpassed my expectations.
 
@@ -168,7 +168,7 @@ Legion Targets are designed with various features that make them suitable for di
 
 - Safety Features: Some targets come equipped with features like automatic reset mechanisms or barriers to protect you from errant shots.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Legion+Targets-2/public" alt="Legion Targets-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=legion-targets-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Legion+Targets-2/public" alt="Legion Targets-2"></a></div>
 
 ### Considerations for Choosing Legion Targets
 
@@ -200,7 +200,7 @@ To maximize your time spent practicing and using Legion Targets, consider the fo
 
 - Monitor Progress: Keep track of your performance over time to identify areas for improvement and celebrate your achievements.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Legion+Targets-3/public" alt="Legion Targets-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=legion-targets-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Legion+Targets-3/public" alt="Legion Targets-3"></a></div>
 
 ## FAQ
 
@@ -212,7 +212,7 @@ Legion Targets are high-quality aiming points designed for shooting practice, fe
 
 Legion Targets are versatile and can be used in numerous shooting activities, including rifle, shotgun, airsoft, and archery. Whether you're a beginner or a seasoned shooter looking to enhance your skills, Legion Targets can be adjusted to meet your needs. Their precision and quality make them excellent for personal practice as well as competitive events.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Legion+Targets-4/public" alt="Legion Targets-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=legion-targets-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Legion+Targets-4/public" alt="Legion Targets-4"></a></div>
 
 ### How do Legion Targets improve shooting skills?
 
@@ -238,7 +238,7 @@ Legion Targets provide immediate feedback on your shot placement, enabling you t
 
 To store your targets safely and preserve their longevity, consider purchasing a gun safe with ample space for your target collection. This ensures that your targets are protected from moisture, mildew, pests, or accidental impacts that could hasten their degradation or damage. Moreover, maintaining a well-organized target storage space minimizes the chance of misplaced or forgotten targets, making them easily accessible during shooting sessions.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Legion+Targets-5/public" alt="Legion Targets-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=legion-targets-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Legion+Targets-5/public" alt="Legion Targets-5"></a></div>
 
 ### How do I maintain and extend the life of my Legion Targets?
 
@@ -252,7 +252,7 @@ While some Legion Targets are designed specifically for indoor use, the majority
 
 The warranty policy for Legion Targets varies depending on the specific product and seller. Generally, most target manufacturers offer some form of warranty to protect the buyer from defects or premature wear. Be sure to carefully review the warranty details for any Legion Targets you may be interested in purchasing to ensure that your investment is protected in case of any issues.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Legion+Targets-6/public" alt="Legion Targets-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/legion-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=legion-targets&utm_term=legion-targets-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Legion+Targets-6/public" alt="Legion Targets-6"></a></div>
 
 ### Are Legion Targets suitable for beginner shooters?
 

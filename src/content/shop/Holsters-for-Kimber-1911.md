@@ -26,33 +26,33 @@ So whether you need a concealed carry option or a more open design, continue rea
 
 ## The Top 10 Best Holsters for Kimber 1911
 
-1. [Customizable Outside the Waistband Holster for 1911 5" Government with Rail](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience enhanced precision and performance with the adjustable, durability-focused Blade-Tech Classic OWB Holster for your 1911 5" Government with Rail, ensuring a secure, tactile experience with a lifetime guarantee for peace of mind.
+1. [Customizable Outside the Waistband Holster for 1911 5" Government with Rail](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=customizable-outside-the-waistband-holster-for-1911-5-government-with-rail) - Experience enhanced precision and performance with the adjustable, durability-focused Blade-Tech Classic OWB Holster for your 1911 5" Government with Rail, ensuring a secure, tactile experience with a lifetime guarantee for peace of mind.
 
-2. [Concealed Carry Holster for Kimber 1911 Pistol](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the superior protection and comfort of the Blackhawk SERPA CQC Concealment Holster, perfectly designed for your 1911 pistol and clones, with a 4.7 rating and 693 satisfied customer reviews.
+2. [Concealed Carry Holster for Kimber 1911 Pistol](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=concealed-carry-holster-for-kimber-1911-pistol) - Discover the superior protection and comfort of the Blackhawk SERPA CQC Concealment Holster, perfectly designed for your 1911 pistol and clones, with a 4.7 rating and 693 satisfied customer reviews.
 
-3. [Competition Starter Kit: Quickship Right Hand Pistol and Double Flat Magazine Combo for 1911 - Tek-Lok (Fits Belts Up to 2.25" Wide & Molle Compatible)](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Competition Starter Kit" enhances your 1911 performance with a durable, American-made holster designed for ﻿IDPA, USPSA, & 3-GUN competitions, ensuring a snug fit and secure concealment for your Kydex-compatible weapon.
+3. [Competition Starter Kit: Quickship Right Hand Pistol and Double Flat Magazine Combo for 1911 - Tek-Lok (Fits Belts Up to 2.25" Wide & Molle Compatible)](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=competition-starter-kit-quickship-right-hand-pistol-and-double-flat-magazine-combo-for-1911-tek-lok-fits-belts-up-to-225-wide-molle-compatible) - Competition Starter Kit" enhances your 1911 performance with a durable, American-made holster designed for ﻿IDPA, USPSA, & 3-GUN competitions, ensuring a snug fit and secure concealment for your Kydex-compatible weapon.
 
-4. [Classic OWB Holster for Sig 1911 with Rail](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Classic OWB Holster for Sig 1911 with Rail delivers unmatched precision, adjustable retention, and optics compatibility, making it a favorite among serious marksmen.
+4. [Classic OWB Holster for Sig 1911 with Rail](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=classic-owb-holster-for-sig-1911-with-rail) - The Blade-Tech Classic OWB Holster for Sig 1911 with Rail delivers unmatched precision, adjustable retention, and optics compatibility, making it a favorite among serious marksmen.
 
-5. [Ambidextrous 1911 5" Government OWB Holster with Full Length Sweat Guard](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience exceptional comfort, reliability, and ambidextrous flexibility with the Blade-Tech Total Eclipse OWB Holster for 1911 5" Government, designed for your seamless daily carry needs.
+5. [Ambidextrous 1911 5" Government OWB Holster with Full Length Sweat Guard](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=ambidextrous-1911-5-government-owb-holster-with-full-length-sweat-guard) - Experience exceptional comfort, reliability, and ambidextrous flexibility with the Blade-Tech Total Eclipse OWB Holster for 1911 5" Government, designed for your seamless daily carry needs.
 
-6. [Cocked & Locked 1911 Holster for Kimber 1911 Pistols](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience seamless, professional-grade concealed carry with the DeSantis Thumb Break Scabbard Holster in black, meticulously crafted for Standard 1911 Models 5" from top manufacturers like Colt, S&W, Sig Sauer, Ruger, Kimber, Springfield, and beyond.
+6. [Cocked & Locked 1911 Holster for Kimber 1911 Pistols](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=cocked-locked-1911-holster-for-kimber-1911-pistols) - Experience seamless, professional-grade concealed carry with the DeSantis Thumb Break Scabbard Holster in black, meticulously crafted for Standard 1911 Models 5" from top manufacturers like Colt, S&W, Sig Sauer, Ruger, Kimber, Springfield, and beyond.
 
-7. [IWB Kydex Holster for 1911 5" with Solid Retention and Comfortable Concealed Carry](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the ultimate in comfort and concealment with C&G's IWB Covert Holster, meticulously crafted for 5" 1911 Right Hand models, boasting superior fit and retention, 100% American-made, and adaptability to accommodate RMR/Red Dots and threaded barrels.
+7. [IWB Kydex Holster for 1911 5" with Solid Retention and Comfortable Concealed Carry](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=iwb-kydex-holster-for-1911-5-with-solid-retention-and-comfortable-concealed-carry) - Discover the ultimate in comfort and concealment with C&G's IWB Covert Holster, meticulously crafted for 5" 1911 Right Hand models, boasting superior fit and retention, 100% American-made, and adaptability to accommodate RMR/Red Dots and threaded barrels.
 
-8. [IWB Kydex Holster for 1911 3.5" Pistol, Right Hand](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience top-grade comfort and secure fit with C&G Holster's Kydex-built Covert IWB for Kimber 1911, made 100% in the USA by seasoned vets and leos.
+8. [IWB Kydex Holster for 1911 3.5" Pistol, Right Hand](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=iwb-kydex-holster-for-1911-35-pistol-right-hand) - Experience top-grade comfort and secure fit with C&G Holster's Kydex-built Covert IWB for Kimber 1911, made 100% in the USA by seasoned vets and leos.
 
-9. [Secure Leather Belt Holster for Kimber Micro 1911](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience secure concealment with the DeSantis Gunhide Mini Scabbard, a compact yet highly functional belt holster explicitly designed for Kimber Micro 1911, offering a snug fit and adjustable tension device for optimal grip and versatility.
+9. [Secure Leather Belt Holster for Kimber Micro 1911](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=secure-leather-belt-holster-for-kimber-micro-1911) - Experience secure concealment with the DeSantis Gunhide Mini Scabbard, a compact yet highly functional belt holster explicitly designed for Kimber Micro 1911, offering a snug fit and adjustable tension device for optimal grip and versatility.
 
-10. [Inforce APL IWB Holster for Kimber 1911 with TLR1/TLR1HL](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - C&G Alpha IWB Tactical Holster: A premium, lightweight 1911 holster, designed specifically for TLR1 and TLR1HL, compatible with popular red dots, open bottom for threaded barrels, and made in America with a lifetime guarantee.
+10. [Inforce APL IWB Holster for Kimber 1911 with TLR1/TLR1HL](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=inforce-apl-iwb-holster-for-kimber-1911-with-tlr1tlr1hl) - C&G Alpha IWB Tactical Holster: A premium, lightweight 1911 holster, designed specifically for TLR1 and TLR1HL, compatible with popular red dots, open bottom for threaded barrels, and made in America with a lifetime guarantee.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Customizable Outside the Waistband Holster for 1911 5" Government with Rail](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Customizable Outside the Waistband Holster for 1911 5" Government with Rail](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=customizable-outside-the-waistband-holster-for-1911-5-government-with-rail)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="1911-5-government-with-rail-owb-holster-right-handed-1911-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1911-5-government-with-rail-owb-holster-right-handed-1911-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=1911-5-government-with-rail-owb-holster-right-handed-1911-blade-tech-1"><img alt="1911-5-government-with-rail-owb-holster-right-handed-1911-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1911-5-government-with-rail-owb-holster-right-handed-1911-blade-tech-1/public"/></a></div>
 
 I have been using the Blade-Tech Classic OWB Holster for my 1911 for quite some time now, and I must say that it has become my go-to choice for everyday carry. The holster's adjustable retention screws allow me to fine-tune the fit and security level of my firearm, giving me peace of mind when it's holstered. The modular mounting holes also provide a great level of versatility, allowing me to customize the draw and ride of my holster according to my preferences or specific situations.
 
@@ -60,9 +60,9 @@ One feature that stands out is the optic-ready speed cut design, which ensures a
 
 It's important to note that some users have reported issues with adjusting the screws on their holsters due to them spinning without catching the post beneath. Fortunately, this has not been an issue for me personally, but it may be worth considering for others who could potentially face similar difficulties. Overall though, I highly recommend this high-quality holster as an excellent option for serious marksmen like myself who demand precision and performance from their gear.
 
-### [Concealed Carry Holster for Kimber 1911 Pistol](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Concealed Carry Holster for Kimber 1911 Pistol](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=concealed-carry-holster-for-kimber-1911-pistol)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="blackhawk-serpa-cqc-concealment-holster-1912" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blackhawk-serpa-cqc-concealment-holster-1912/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=blackhawk-serpa-cqc-concealment-holster-1912"><img alt="blackhawk-serpa-cqc-concealment-holster-1912" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blackhawk-serpa-cqc-concealment-holster-1912/public"/></a></div>
 
 As a retired army veteran, I prioritize safety when it comes to choosing gear for my handgun. So, when I first got my hands on the Blackhawk Tecgrip Holster, I was a bit skeptical due to some reports of accidental discharge. However, after months of using it, I can confidently say that this holster has truly exceeded my expectations!
 
@@ -70,9 +70,9 @@ The retention system is secure and easy to use, giving me peace of mind while ca
 
 Moreover, the paddle on this holster is really impressive. It attaches securely to your belt without any slipping or fussing around like many other paddles I've tried in the past. Overall, Blackhawk Tecgrip Holster has proven itself as an effective and dependable piece of equipment that ensures both you and your handgun are safe at all times!
 
-### [Competition Starter Kit: Quickship Right Hand Pistol and Double Flat Magazine Combo for 1911 - Tek-Lok (Fits Belts Up to 2.25" Wide & Molle Compatible)](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Competition Starter Kit: Quickship Right Hand Pistol and Double Flat Magazine Combo for 1911 - Tek-Lok (Fits Belts Up to 2.25" Wide & Molle Compatible)](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=competition-starter-kit-quickship-right-hand-pistol-and-double-flat-magazine-combo-for-1911-tek-lok-fits-belts-up-to-225-wide-molle-compatible)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="competition-starter-kit-pistol-double-flat-magazine-combo-quickship-right-hand-1911-tek-lok-fits-bel-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/competition-starter-kit-pistol-double-flat-magazine-combo-quickship-right-hand-1911-tek-lok-fits-bel-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=competition-starter-kit-pistol-double-flat-magazine-combo-quickship-right-hand-1911-tek-lok-fits-bel-1"><img alt="competition-starter-kit-pistol-double-flat-magazine-combo-quickship-right-hand-1911-tek-lok-fits-bel-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/competition-starter-kit-pistol-double-flat-magazine-combo-quickship-right-hand-1911-tek-lok-fits-bel-1/public"/></a></div>
 
 I recently purchased the C&G Tactical Kydex Holster for my FNS competition gun and have been thoroughly impressed with its performance. The holster offers a secure and snug fit, complete with audible and tactile "click" retention when holstered, providing peace of mind while carrying or competing.
 
@@ -82,9 +82,9 @@ One standout feature of this holster is its ease of adjustability through the qu
 
 Overall, I am very satisfied with my purchase from C&G Tactical Kydex Holsters – their commitment to quality craftsmanship is evident in each product they offer. With such meticulous attention to detail involved in their manufacturing process, it's no wonder this company continues to excel within its industry segment.
 
-### [Classic OWB Holster for Sig 1911 with Rail](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Classic OWB Holster for Sig 1911 with Rail](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=classic-owb-holster-for-sig-1911-with-rail)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sig-1911-with-rail-owb-holster-right-handed-sig-sauer-1911-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sig-1911-with-rail-owb-holster-right-handed-sig-sauer-1911-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=sig-1911-with-rail-owb-holster-right-handed-sig-sauer-1911-blade-tech-1"><img alt="sig-1911-with-rail-owb-holster-right-handed-sig-sauer-1911-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sig-1911-with-rail-owb-holster-right-handed-sig-sauer-1911-blade-tech-1/public"/></a></div>
 
 As someone who recently purchased the Blade-Tech Classic OWB Holster for my Sig Sauer 1911 with Rail, I had high expectations and this holster did not disappoint. The adjustable retention screws allowed me to customize the fit for a perfect hold, ensuring a smooth draw. Moreover, the modular mounting holes provided additional options for customizing the holster's position on my belt using different attachments.
 
@@ -94,9 +94,9 @@ The craftsmanship is impressive, constructed with robust Boltaron in the U. S. A
 
 Overall, if you're searching for an exceptional Outside the Waistband holster with excellent retention and adjustability while enabling quick draw capabilities - look no further than Blade-Tech Classic OWB Holster for your Sig Sauer 1911 with Rail; it won't let you down!
 
-### [Ambidextrous 1911 5" Government OWB Holster with Full Length Sweat Guard](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Ambidextrous 1911 5" Government OWB Holster with Full Length Sweat Guard](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=ambidextrous-1911-5-government-owb-holster-with-full-length-sweat-guard)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="1911-5-government-total-eclipse-owb-holster-left-or-right-handed-1911-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1911-5-government-total-eclipse-owb-holster-left-or-right-handed-1911-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=1911-5-government-total-eclipse-owb-holster-left-or-right-handed-1911-blade-tech-1"><img alt="1911-5-government-total-eclipse-owb-holster-left-or-right-handed-1911-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1911-5-government-total-eclipse-owb-holster-left-or-right-handed-1911-blade-tech-1/public"/></a></div>
 
 The Blade-Tech Total Eclipse OWB Holster for the 1911 5" Government is a cost-effective option for both left and right-handed shooters due to its ambidextrous design. The holster's belt clips can be easily switched to either side, providing versatility and convenience. Crafted from durable heat-resistant polymer, this holster provides a smooth draw while ensuring your firearm stays secure with its unique audible click when re-holstering.
 
@@ -104,9 +104,9 @@ Many users appreciate the superior fit, retention features, and adjustability of
 
 In summary, the Blade-Tech Total Eclipse OWB Holster offers great value for money with its high quality construction and reliable performance. It has garnered positive reviews for its fit, durability, retention features, and comfort while being suitable for all types of shooters.
 
-### [Cocked & Locked 1911 Holster for Kimber 1911 Pistols](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Cocked & Locked 1911 Holster for Kimber 1911 Pistols](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=cocked-locked-1911-holster-for-kimber-1911-pistols)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="desantis-thumb-break-scabbard-c-l-holster-for-standard-1911-models-5-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/desantis-thumb-break-scabbard-c-l-holster-for-standard-1911-models-5-black-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=desantis-thumb-break-scabbard-c-l-holster-for-standard-1911-models-5-black-1"><img alt="desantis-thumb-break-scabbard-c-l-holster-for-standard-1911-models-5-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/desantis-thumb-break-scabbard-c-l-holster-for-standard-1911-models-5-black-1/public"/></a></div>
 
 I've been using this 1CL holster for my 1911 model for several months now and I must say it has exceeded my expectations. The three-slot design is perfect for cocked and locked carry, providing the level of safety that is essential during duty.
 
@@ -116,9 +116,9 @@ However, it's important to note that this holster may only be compatible with st
 
 Overall though? Fantastic product! It offers great value considering how well made it feels in comparison to similar items on sale elsewhere online or at local gun stores where prices tend to be higher because demand outstrips supply when talking about high quality goods like these here today - so take advantage now before they run out!
 
-### [IWB Kydex Holster for 1911 5" with Solid Retention and Comfortable Concealed Carry](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [IWB Kydex Holster for 1911 5" with Solid Retention and Comfortable Concealed Carry](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=iwb-kydex-holster-for-1911-5-with-solid-retention-and-comfortable-concealed-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cg-holsters-covert-iwb-fits-1911-5-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-covert-iwb-fits-1911-5-right-hand-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=cg-holsters-covert-iwb-fits-1911-5-right-hand-1"><img alt="cg-holsters-covert-iwb-fits-1911-5-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-covert-iwb-fits-1911-5-right-hand-1/public"/></a></div>
 
 The C&G Holsters IWB Covert holster is an excellent choice for concealed carry with its solid locking retention and comfortable Kydex construction. Made in America by veterans and law enforcement, it offers a secure fit for your 1911, ensuring peace of mind while on the move. Being made from durable Kydex material, it doesn't rub or chafe against the skin even during warmer days when perspiration can be an issue with other types of holsters.
 
@@ -126,15 +126,15 @@ One of the key features is the open bottom design that allows users to switch be
 
 Overall, this product stands out as a top contender among today's market offerings due to its quality craftsmanship and superior retention capabilities.
 
-### [IWB Kydex Holster for 1911 3.5" Pistol, Right Hand](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [IWB Kydex Holster for 1911 3.5" Pistol, Right Hand](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=iwb-kydex-holster-for-1911-35-pistol-right-hand)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cg-holsters-covert-iwb-fits-1911-3-5-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-covert-iwb-fits-1911-3-5-right-hand-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=cg-holsters-covert-iwb-fits-1911-3-5-right-hand-1"><img alt="cg-holsters-covert-iwb-fits-1911-3-5-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-covert-iwb-fits-1911-3-5-right-hand-1/public"/></a></div>
 
 I've been using C&G's IWB Covert holster as my everyday carry for the past few months and have had an excellent experience. The Kydex material is of high quality, ensuring a solid locking retention for my firearm. Ergonomic design and open bottom compatibility with most RMR/Red Dots make it comfortable to wear all day long, even though it requires a bit of effort when inserting or removing the weapon due to its tight fit. Overall, I highly recommend this product for anyone seeking a secure and comfortable concealed carry experience.
 
-### [Secure Leather Belt Holster for Kimber Micro 1911](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Secure Leather Belt Holster for Kimber Micro 1911](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=secure-leather-belt-holster-for-kimber-micro-1911)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="desantis-gunhide-019-mini-scabbard-belt-holster-fits-kimber-micro-1911-right-hand-black-leather-019b-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/desantis-gunhide-019-mini-scabbard-belt-holster-fits-kimber-micro-1911-right-hand-black-leather-019b-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=desantis-gunhide-019-mini-scabbard-belt-holster-fits-kimber-micro-1911-right-hand-black-leather-019b-1"><img alt="desantis-gunhide-019-mini-scabbard-belt-holster-fits-kimber-micro-1911-right-hand-black-leather-019b-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/desantis-gunhide-019-mini-scabbard-belt-holster-fits-kimber-micro-1911-right-hand-black-leather-019b-1/public"/></a></div>
 
 I recently purchased the Mini Scabbard, and I must say that it has exceeded my expectations. This holster is designed to be minimalist yet extremely effective, offering a secure grip on my handgun thanks to its precise molding and adjustable tension device. The ability to accommodate belts up to 1 3/4" wide is an added bonus, providing versatility for different styles and preferences.
 
@@ -142,9 +142,9 @@ One of the standout features of this holster is its ability to ride close to the
 
 While there may be some models without adjustable tension devices, this feature enhances the Mini Scabbard's functionality by ensuring that my gun stays in place, giving me peace of mind while carrying it around. Overall, I highly recommend this unique holster as a practical option tailored towards comfort and safety without breaking the bank.
 
-### [Inforce APL IWB Holster for Kimber 1911 with TLR1/TLR1HL](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Inforce APL IWB Holster for Kimber 1911 with TLR1/TLR1HL](https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=inforce-apl-iwb-holster-for-kimber-1911-with-tlr1tlr1hl)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cg-holsters-alpha-iwb-tactical-holster-1911-5-tlr1-hl-right-hand-black-7084-101" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-alpha-iwb-tactical-holster-1911-5-tlr1-hl-right-hand-black-7084-101/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=cg-holsters-alpha-iwb-tactical-holster-1911-5-tlr1-hl-right-hand-black-7084-101"><img alt="cg-holsters-alpha-iwb-tactical-holster-1911-5-tlr1-hl-right-hand-black-7084-101" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-alpha-iwb-tactical-holster-1911-5-tlr1-hl-right-hand-black-7084-101/public"/></a></div>
 
 I was thrilled to try out the Inforce APL Holsters for my 1911. The Kydex construction is top-notch, providing strength and durability. I appreciate the design that caters specifically to TLR1 and TLR1HL, ensuring efficient functionality.
 
@@ -156,7 +156,7 @@ Overall, I've had a great experience using these highly-rated holsters – 4. 9 
 
 ## Buyer's Guide
 
-<div><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Holsters+for+Kimber+1911-2/public" alt="Holsters for Kimber 1911-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=holsters-for-kimber-1911-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Holsters+for+Kimber+1911-2/public" alt="Holsters for Kimber 1911-2"></a></div>
 
 ### Important Features to Consider
 
@@ -180,7 +180,7 @@ Various holster styles are designed to be worn in different ways. Some popular o
 
 - Shoulder Holsters: Provide an alternative mode of carry, allowing for quick access with minimal discomfort.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Holsters+for+Kimber+1911-3/public" alt="Holsters for Kimber 1911-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=holsters-for-kimber-1911-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Holsters+for+Kimber+1911-3/public" alt="Holsters for Kimber 1911-3"></a></div>
 
 ### Advice for Choosing the Right Holster
 
@@ -194,7 +194,7 @@ Before making your purchase, keep these tips in mind:
 
 ## FAQ
 
-<div><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Holsters+for+Kimber+1911-4/public" alt="Holsters for Kimber 1911-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=holsters-for-kimber-1911-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Holsters+for+Kimber+1911-4/public" alt="Holsters for Kimber 1911-4"></a></div>
 
 ### What should I consider when choosing a holster for my Kimber 1911?
 
@@ -204,7 +204,7 @@ Consider factors such as comfort, concealment, accessibility, and durability whe
 
 Both leather and Kydex holsters have their advantages. Leather holsters offer comfort and natural aesthetics, while Kydex holsters provide durability and consistent retention. The choice depends on your personal preference, intended use, and the environment in which you'll be carrying your Kimber 1911.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Holsters+for+Kimber+1911-5/public" alt="Holsters for Kimber 1911-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=holsters-for-kimber-1911-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Holsters+for+Kimber+1911-5/public" alt="Holsters for Kimber 1911-5"></a></div>
 
 ### Do I need a specific holster for an Officers Model?
 
@@ -216,7 +216,7 @@ Yes, it's essential to choose a holster that specifically fits the Officers Mode
 
 - It is designed for a comfortable, low-profile carry and can be worn either strongside or cross-draw.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Holsters+for+Kimber+1911-6/public" alt="Holsters for Kimber 1911-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/holsters-for-kimber-1911?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holsters-for-kimber-1911&utm_term=holsters-for-kimber-1911-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Holsters+for+Kimber+1911-6/public" alt="Holsters for Kimber 1911-6"></a></div>
 
 ### How do I properly draw my Kimber 1911 from a holster?
 

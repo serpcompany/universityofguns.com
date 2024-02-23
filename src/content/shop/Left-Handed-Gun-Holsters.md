@@ -16,31 +16,31 @@ Whether you're a seasoned shooter or just starting off, having the right gun hol
 
 ## The Top 9 Best Left-Handed Gun Holsters
 
-1. [Crucial Concealment Ambi Covert IWB FN Reflex Holster](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the ultimate in concealed carry comfort and versatility with the Crucial Concealment Ambi Covert IWB FN Reflex Holster, boasting low profile design, adjustable retention, and optics compatibility for seamless EDC usage.
+1. [Crucial Concealment Ambi Covert IWB FN Reflex Holster](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=crucial-concealment-ambi-covert-iwb-fn-reflex-holster) - Experience the ultimate in concealed carry comfort and versatility with the Crucial Concealment Ambi Covert IWB FN Reflex Holster, boasting low profile design, adjustable retention, and optics compatibility for seamless EDC usage.
 
-2. [Custom Comfort Flex Holster for S&W M&P Shield](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The VersaCarry Comfort Flex Deluxe IWB Holster offers a comfortable and secure inside-the-waistband carry solution with custom-molded polymer front, closed-cell foam padding, and adjustable draw tension for optimal concealed firearm protection.
+2. [Custom Comfort Flex Holster for S&W M&P Shield](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=custom-comfort-flex-holster-for-sw-mp-shield) - The VersaCarry Comfort Flex Deluxe IWB Holster offers a comfortable and secure inside-the-waistband carry solution with custom-molded polymer front, closed-cell foam padding, and adjustable draw tension for optimal concealed firearm protection.
 
-3. [Alien Gear ShapeShift Modular Holster System](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Get versatile with the Alien Gear ShapeShift Core Carry Pack, offering easy conversion between IWB, Appendix, OWB belt slide, and OWB paddle holsters, all built to last and made in the USA.
+3. [Alien Gear ShapeShift Modular Holster System](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=alien-gear-shapeshift-modular-holster-system) - Get versatile with the Alien Gear ShapeShift Core Carry Pack, offering easy conversion between IWB, Appendix, OWB belt slide, and OWB paddle holsters, all built to last and made in the USA.
 
-4. [Alien Gear Core Carry Kit for Glock 43, Left-Handed Holster System](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Alien Gear Core Carry Kit for Glock 43 (Left-Handed) is a versatile, modular holster system that offers four distinct carrying options and a quick-attach Holster Mount for added convenience.
+4. [Alien Gear Core Carry Kit for Glock 43, Left-Handed Holster System](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=alien-gear-core-carry-kit-for-glock-43-left-handed-holster-system) - The Alien Gear Core Carry Kit for Glock 43 (Left-Handed) is a versatile, modular holster system that offers four distinct carrying options and a quick-attach Holster Mount for added convenience.
 
-5. [Stylish and Comfortable Deer Hide IWB Holster for LH Firearms](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The 1791 Fair Chase Deer Hide IWB LH 2 combines wild and ethically hunted deer hide and meticulous handcrafting for an unrivaled comfortable and concealable holster experience.
+5. [Stylish and Comfortable Deer Hide IWB Holster for LH Firearms](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=stylish-and-comfortable-deer-hide-iwb-holster-for-lh-firearms) - The 1791 Fair Chase Deer Hide IWB LH 2 combines wild and ethically hunted deer hide and meticulous handcrafting for an unrivaled comfortable and concealable holster experience.
 
-6. [1791 Gunleather Premium Nylon IWB Holster for Compatible Firearms - Left-Handed](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the 1791 Gunleather Premium Nylon IWB holster, designed for seamless compatibility with multiple firearms, ensuring both safety and comfort with each use.
+6. [1791 Gunleather Premium Nylon IWB Holster for Compatible Firearms - Left-Handed](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=1791-gunleather-premium-nylon-iwb-holster-for-compatible-firearms-left-handed) - Discover the 1791 Gunleather Premium Nylon IWB holster, designed for seamless compatibility with multiple firearms, ensuring both safety and comfort with each use.
 
-7. [Adjustable Left-Handed Competition Holster](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Staccato C2 Pro Competition Holster offers a customizable, left-hand draw experience for sport shooting enthusiasts, ensuring a secure and comfortable fit while maintaining compliance with 3Gun, IPSC, and USPSA guidelines.
+7. [Adjustable Left-Handed Competition Holster](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=adjustable-left-handed-competition-holster) - The Staccato C2 Pro Competition Holster offers a customizable, left-hand draw experience for sport shooting enthusiasts, ensuring a secure and comfortable fit while maintaining compliance with 3Gun, IPSC, and USPSA guidelines.
 
-8. [Left-Handed ShapeShift Modular Holster System](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The ShapeShift Core Carry Pack is a versatile holster system that adapts to your lifestyle and needs, providing four distinct carrying options and a convenient Holster Mount for easy use anytime, anywhere.
+8. [Left-Handed ShapeShift Modular Holster System](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=left-handed-shapeshift-modular-holster-system) - The ShapeShift Core Carry Pack is a versatile holster system that adapts to your lifestyle and needs, providing four distinct carrying options and a convenient Holster Mount for easy use anytime, anywhere.
 
-9. [Left-Handed Sig Sauer P365 IWB Holster - Composite](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Sig Sauer Blackpoint Tactical P365 IWB Holster for Left Hand provides unparalleled adaptability for strong-side IWB carry positions, incorporating SIG Strut technology and adjustable features, while being designed specifically for appendix carry.
+9. [Left-Handed Sig Sauer P365 IWB Holster - Composite](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=left-handed-sig-sauer-p365-iwb-holster-composite) - The Sig Sauer Blackpoint Tactical P365 IWB Holster for Left Hand provides unparalleled adaptability for strong-side IWB carry positions, incorporating SIG Strut technology and adjustable features, while being designed specifically for appendix carry.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Crucial Concealment Ambi Covert IWB FN Reflex Holster](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Crucial Concealment Ambi Covert IWB FN Reflex Holster](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=crucial-concealment-ambi-covert-iwb-fn-reflex-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="crucial-concealment-ambi-covert-iwb-fn-reflex-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crucial-concealment-ambi-covert-iwb-fn-reflex-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=crucial-concealment-ambi-covert-iwb-fn-reflex-1"><img alt="crucial-concealment-ambi-covert-iwb-fn-reflex-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crucial-concealment-ambi-covert-iwb-fn-reflex-1/public"/></a></div>
 
 The Crucial Concealment Ambi Covert IWB FN Reflex holster has been an essential addition to my daily routine. As someone who prioritizes concealed carry, I've found that this holster offers a perfect blend of low profile design and rugged durability.
 
@@ -56,9 +56,9 @@ There are a few minor cons worth mentioning though. The initial installation can
 
 Overall, I would highly recommend the Crucial Concealment Ambi Covert IWB FN Reflex holster for those prioritizing concealed carry. Its blend of features, durability, and functionality make it a standout choice.
 
-### [Custom Comfort Flex Holster for S&W M&P Shield](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Custom Comfort Flex Holster for S&W M&P Shield](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=custom-comfort-flex-holster-for-sw-mp-shield)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="versacarry-comfort-flex-custom-holster-iwb-sw-mp-shield-brwn-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/versacarry-comfort-flex-custom-holster-iwb-sw-mp-shield-brwn-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=versacarry-comfort-flex-custom-holster-iwb-sw-mp-shield-brwn-1"><img alt="versacarry-comfort-flex-custom-holster-iwb-sw-mp-shield-brwn-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/versacarry-comfort-flex-custom-holster-iwb-sw-mp-shield-brwn-1/public"/></a></div>
 
 I recently had the chance to try out the VersaCarry Comfort Flex Custom IWB holster for my Smith & Wesson M&P Shield. This holster is designed to be worn inside the waistband, providing both concealment and comfort. It's been a game-changer for me in terms of carrying my firearm discreetly and comfortably.
 
@@ -68,9 +68,9 @@ However, one downside I've noticed is that the holster tends to scratch the slid
 
 Overall, I've had a positive experience with the VersaCarry Comfort Flex Custom IWB holster. It provides excellent concealment and comfort, making it a great choice for anyone looking to carry their firearm discreetly and securely.
 
-### [Alien Gear ShapeShift Modular Holster System](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Alien Gear ShapeShift Modular Holster System](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=alien-gear-shapeshift-modular-holster-system)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="alien-gear-shapeshift-holster-d-core-carry-pack-glock-20" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alien-gear-shapeshift-holster-d-core-carry-pack-glock-20/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=alien-gear-shapeshift-holster-d-core-carry-pack-glock-20"><img alt="alien-gear-shapeshift-holster-d-core-carry-pack-glock-20" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alien-gear-shapeshift-holster-d-core-carry-pack-glock-20/public"/></a></div>
 
 The Alien Gear ShapeShift Holster D Core Carry Pack is my go-to accessory for my 1911 5" Government. This modular system is perfect for those who like to switch things up and try different carry positions throughout the day. With just a few quick adjustments, I can easily transform the ShapeShift from an IWB holster for casual outings to an OWB paddle holster for more active pursuits.
 
@@ -80,9 +80,9 @@ On the positive side, though, the Alien Gear ShapeShift is made in the USA, whic
 
 In conclusion, while the Alien Gear ShapeShift Holster D Core Carry Pack offers a lot of flexibility in terms of carrying positions, it may not be the most comfortable or practical option for everyone. If you're open to trying out various carrying styles and are okay with a slightly bulky design, this product might be worth considering. But if you prioritize comfort and convenience above all else, it might be best to keep looking.
 
-### [Alien Gear Core Carry Kit for Glock 43, Left-Handed Holster System](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Alien Gear Core Carry Kit for Glock 43, Left-Handed Holster System](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=alien-gear-core-carry-kit-for-glock-43-left-handed-holster-system)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="alien-gear-core-carry-kit-glock-43-left-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alien-gear-core-carry-kit-glock-43-left-hand-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=alien-gear-core-carry-kit-glock-43-left-hand-1"><img alt="alien-gear-core-carry-kit-glock-43-left-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alien-gear-core-carry-kit-glock-43-left-hand-1/public"/></a></div>
 
 I recently got the chance to try out the Alien Gear Core Carry Kit for my trusty Glock 43, and let me tell you, it has truly revolutionized the way I carry my firearm. The Core Carry Pack is the backbone of the ShapeShift Modular Holster System, which means it comes with everything you need to transform your holster into four distinct carrying options in mere seconds.
 
@@ -96,9 +96,9 @@ On the downside, the Core Carry Pack is a bit on the pricier side, so it may not
 
 Overall, I have been extremely happy with the performance of the Alien Gear Core Carry Kit for my Glock 43. Its versatility, durability, and ease of use make it a top contender in the world of left-handed gun holsters. If you're in the market for a high-quality, highly adaptable holster system, look no further than the Core Carry Pack from Alien Gear.
 
-### [Stylish and Comfortable Deer Hide IWB Holster for LH Firearms](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Stylish and Comfortable Deer Hide IWB Holster for LH Firearms](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=stylish-and-comfortable-deer-hide-iwb-holster-for-lh-firearms)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="1791-fair-chase-deer-hide-iwb-lh-3" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1791-fair-chase-deer-hide-iwb-lh-3/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=1791-fair-chase-deer-hide-iwb-lh-3"><img alt="1791-fair-chase-deer-hide-iwb-lh-3" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1791-fair-chase-deer-hide-iwb-lh-3/public"/></a></div>
 
 The 1791 Fair Chase Deer Hide IWB LH 2 holster is a must-have for any left-handed shooter. I've been using this model for months and it has yet to disappoint. The handcrafted design means that each holster is made with precision and care, which is evident as soon as you take it out of the box.
 
@@ -108,9 +108,9 @@ However, no product is perfect. While this holster is incredibly comfortable and
 
 Overall, I highly recommend the 1791 Fair Chase Deer Hide IWB LH 2 holster for anyone looking for a high-quality left-handed gun holster. The combination of comfort, concealability, and durability makes it a standout in its class.
 
-### [1791 Gunleather Premium Nylon IWB Holster for Compatible Firearms - Left-Handed](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [1791 Gunleather Premium Nylon IWB Holster for Compatible Firearms - Left-Handed](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=1791-gunleather-premium-nylon-iwb-holster-for-compatible-firearms-left-handed)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="1791-gunleather-pn-iwb-1-blk-l-prem-nylon-iwb-size-1-black-left-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1791-gunleather-pn-iwb-1-blk-l-prem-nylon-iwb-size-1-black-left-hand-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=1791-gunleather-pn-iwb-1-blk-l-prem-nylon-iwb-size-1-black-left-hand-1"><img alt="1791-gunleather-pn-iwb-1-blk-l-prem-nylon-iwb-size-1-black-left-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1791-gunleather-pn-iwb-1-blk-l-prem-nylon-iwb-size-1-black-left-hand-1/public"/></a></div>
 
 As an avid shooter, I've been through my fair share of holsters. But when I got my hands on the 1791 Gunleather Premium Nylon IWB holster, I knew it was something special. This black left-hand model is designed to fit a variety of firearms, including the Beretta Pico, Kahr CM/MP40, and Sig Sauer P239, among others. Right off the bat, I was impressed with the craftsmanship and attention to detail in its design.
 
@@ -118,9 +118,9 @@ The adjustable cant feature was a game-changer for me, allowing me to customize 
 
 However, one minor drawback I noticed was that the holster might be slightly tight for some firearms at first, but it seemed to loosen up after a few uses. Overall, the 1791 Gunleather Premium Nylon IWB holster has quickly become my go-to choice for concealed carry – it's lightweight, comfortable, and highly functional.
 
-### [Adjustable Left-Handed Competition Holster](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Adjustable Left-Handed Competition Holster](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=adjustable-left-handed-competition-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="staccato-c2-pro-competition-holster-left-hand-draw-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/staccato-c2-pro-competition-holster-left-hand-draw-black-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=staccato-c2-pro-competition-holster-left-hand-draw-black-1"><img alt="staccato-c2-pro-competition-holster-left-hand-draw-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/staccato-c2-pro-competition-holster-left-hand-draw-black-1/public"/></a></div>
 
 Have you ever struggled to find the perfect outside-the-waistband holster for your left-hand draw? Look no further, because this Staccato Pro Competition Holster is here to save the day!
 
@@ -128,9 +128,9 @@ I recently got my hands on one of these, and I must say, it's made a world of di
 
 One minor con it does have is that the belt loop/slot attachment could be a bit more sturdy. But hey, nobody's perfect, right? All in all, I'm thrilled with my purchase and would definitely recommend this holster to fellow lefties who take their shooting as seriously as I do. Happy shooting, folks!
 
-### [Left-Handed ShapeShift Modular Holster System](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Left-Handed ShapeShift Modular Holster System](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=left-handed-shapeshift-modular-holster-system)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="alien-gear-shapeshift-core-carry-pack-sig-p365-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alien-gear-shapeshift-core-carry-pack-sig-p365-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=alien-gear-shapeshift-core-carry-pack-sig-p365-1"><img alt="alien-gear-shapeshift-core-carry-pack-sig-p365-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alien-gear-shapeshift-core-carry-pack-sig-p365-1/public"/></a></div>
 
 As a holster enthusiast who totes a Sig P365, I recently invested in the Alien Gear ShapeShift Core Carry Pack. This convenient package includes not just one, but four distinct carry options - a discreet IWB (inside the waistband) holster, an appendix carry holster for those seeking extra control over their weapon, a slide-on OWB (outside the waistband) belt holster, and a paddle-style OWB holster for easy on-and-off capability.
 
@@ -142,9 +142,9 @@ Despite these drawbacks, I absolutely love how my Sig P365 looks in this holster
 
 So, to sum it up, the Alien Gear ShapeShift Core Carry Pack provides a customizable array of holster options for the Sig P365. It's comfortable, versatile and the variety of carrying options is impressive. But the bulkiness of the OWB holster might be a deterrent for casual users like me. Overall, it's a good product that could use little refining.
 
-### [Left-Handed Sig Sauer P365 IWB Holster - Composite](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Left-Handed Sig Sauer P365 IWB Holster - Composite](https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=left-handed-sig-sauer-p365-iwb-holster-composite)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sig-sauer-blackpoint-tactical-p365-iwb-lh-holster-left-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sig-sauer-blackpoint-tactical-p365-iwb-lh-holster-left-hand-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=sig-sauer-blackpoint-tactical-p365-iwb-lh-holster-left-hand-1"><img alt="sig-sauer-blackpoint-tactical-p365-iwb-lh-holster-left-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sig-sauer-blackpoint-tactical-p365-iwb-lh-holster-left-hand-1/public"/></a></div>
 
 I recently got the chance to try out the BlackPoint Tactical P365 Inside Waist Band holster for my SIG Sauer P365, and I couldn't be happier with my purchase. As a left-hander, it's tough finding quality holsters specifically designed for us, so I was excited to see this one from BlackPoint Tactical.
 
@@ -158,7 +158,7 @@ Overall, the BlackPoint Tactical P365 IWB holster has been a game-changer for me
 
 ## Buyer's Guide
 
-<div><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Left-Handed+Gun+Holsters-2/public" alt="Left-Handed Gun Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=left-handed-gun-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Left-Handed+Gun+Holsters-2/public" alt="Left-Handed Gun Holsters-2"></a></div>
 
 ### Important Features
 
@@ -188,7 +188,7 @@ Before purchasing a left-handed gun holster, consider the following:
 
 - Budget: Establish a budget range for your purchase and compare different options within that range.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Left-Handed+Gun+Holsters-3/public" alt="Left-Handed Gun Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=left-handed-gun-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Left-Handed+Gun+Holsters-3/public" alt="Left-Handed Gun Holsters-3"></a></div>
 
 ### General Advice
 
@@ -206,7 +206,7 @@ Here are some tips to consider when buying a left-handed gun holster:
 
 ## FAQ
 
-<div><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Left-Handed+Gun+Holsters-4/public" alt="Left-Handed Gun Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=left-handed-gun-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Left-Handed+Gun+Holsters-4/public" alt="Left-Handed Gun Holsters-4"></a></div>
 
 ### What are left-handed gun holsters?
 
@@ -216,7 +216,7 @@ Left-handed gun holsters are specially designed to accommodate the unique needs 
 
 Left-handed gun holsters are necessary because they allow left-handed shooters to effectively and comfortably carry their firearms. Standard right-handed holsters can be difficult for left-handed shooters to draw from quickly and accurately, potentially resulting in danger during critical situations.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Left-Handed+Gun+Holsters-5/public" alt="Left-Handed Gun Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=left-handed-gun-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Left-Handed+Gun+Holsters-5/public" alt="Left-Handed Gun Holsters-5"></a></div>
 
 ### What types of left-handed gun holsters are available?
 
@@ -226,7 +226,7 @@ There is a wide range of left-handed gun holsters available, including inside-th
 
 To choose the best left-handed gun holster for you, consider factors such as your dominant hand, your body's shape, the type of firearm you carry, and your desired level of concealment. Additionally, read reviews and consult with experienced shooters for recommendations on specific models and brands.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Left-Handed+Gun+Holsters-6/public" alt="Left-Handed Gun Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/left-handed-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=left-handed-gun-holsters&utm_term=left-handed-gun-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Left-Handed+Gun+Holsters-6/public" alt="Left-Handed Gun Holsters-6"></a></div>
 
 ### How do I properly wear a left-handed gun holster?
 

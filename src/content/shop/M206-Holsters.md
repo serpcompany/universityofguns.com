@@ -16,41 +16,41 @@ Looking for the perfect holster to keep your gun secure and within easy reach? O
 
 ## The Top 10 Best M206 Holsters
 
-1. [Tactical OWB Holster for Sig P226 - Made in USA](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience top-tier reliability and versatility with the Classic OWB Holster, offering adjustable retention, precision Boltaron craftsmanship, positive locking trigger guard, and IDPA & USPSA legal speed cut for competitive edge.
+1. [Tactical OWB Holster for Sig P226 - Made in USA](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=tactical-owb-holster-for-sig-p226-made-in-usa) - Experience top-tier reliability and versatility with the Classic OWB Holster, offering adjustable retention, precision Boltaron craftsmanship, positive locking trigger guard, and IDPA & USPSA legal speed cut for competitive edge.
 
-2. [Modular IWB/OWB Holster for Sig P365 / P365X - Blade-Tech Total Eclipse 2.0](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unmatched versatility and exceptional security with the Total Eclipse 2.0 Holster for Sig P365/P365X, boasting an auto-locking design, ambidextrous capability, and USA-made durability for a seamless and reliable carry solution.
+2. [Modular IWB/OWB Holster for Sig P365 / P365X - Blade-Tech Total Eclipse 2.0](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=modular-iwbowb-holster-for-sig-p365-p365x-blade-tech-total-eclipse-20) - Experience unmatched versatility and exceptional security with the Total Eclipse 2.0 Holster for Sig P365/P365X, boasting an auto-locking design, ambidextrous capability, and USA-made durability for a seamless and reliable carry solution.
 
-3. [IWB Kydex Holster for Smith & Wesson M&P Shield](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Top-notch IWB Holster - Highly secure, custom-fit, inside-the-waistband Kydex holster from We The People, perfect for your Smith & Wesson M&P Shield, M20 or Plus 9mm/40, providing lifetime guarantee confidence.
+3. [IWB Kydex Holster for Smith & Wesson M&P Shield](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=iwb-kydex-holster-for-smith-wesson-mp-shield) - Top-notch IWB Holster - Highly secure, custom-fit, inside-the-waistband Kydex holster from We The People, perfect for your Smith & Wesson M&P Shield, M20 or Plus 9mm/40, providing lifetime guarantee confidence.
 
-4. [Custom Kydex OWB Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience superior comfort and convenience with the top-rated C&G Covert OWB Kydex Pistol and Mag Holster, endorsed by NTOA for unmatched concealed carry performance.
+4. [Custom Kydex OWB Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=custom-kydex-owb-holster-for-concealed-carry) - Experience superior comfort and convenience with the top-rated C&G Covert OWB Kydex Pistol and Mag Holster, endorsed by NTOA for unmatched concealed carry performance.
 
-5. [Appendix IWB Holster and Mag Pouch Mod Kit for Glock 19/44/45 Gen 3-5 & 23/32 Gen 3-4](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the Perfect AIWB Carry with Blade-Tech's Total Eclipse 2.0 Holster & Mag Pouch Mod Kit, specifically designed for Glock 19/44/45 Gen 3-5 & 23/32 Gen 3-4, perfectly matching with Streamlight TLR-1.
+5. [Appendix IWB Holster and Mag Pouch Mod Kit for Glock 19/44/45 Gen 3-5 & 23/32 Gen 3-4](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=appendix-iwb-holster-and-mag-pouch-mod-kit-for-glock-194445-gen-3-5-2332-gen-3-4) - Discover the Perfect AIWB Carry with Blade-Tech's Total Eclipse 2.0 Holster & Mag Pouch Mod Kit, specifically designed for Glock 19/44/45 Gen 3-5 & 23/32 Gen 3-4, perfectly matching with Streamlight TLR-1.
 
-6. [Total Eclipse 2.0 Modular Holster for Sig Sauer P320C / M18](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Total Eclipse 2.0 Holster is a versatile, auto-locking, ambidextrous IWB/OWB holster for Sig P320C / M18, boasting superior fit, durability, and unmatched adjustability with quick-release Mods.
+6. [Total Eclipse 2.0 Modular Holster for Sig Sauer P320C / M18](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=total-eclipse-20-modular-holster-for-sig-sauer-p320c-m18) - The Blade-Tech Total Eclipse 2.0 Holster is a versatile, auto-locking, ambidextrous IWB/OWB holster for Sig P320C / M18, boasting superior fit, durability, and unmatched adjustability with quick-release Mods.
 
-7. [Total Eclipse 2.0 Holster for S&W M&P Shield 9/40 with Mod-Lok System](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Total Eclipse 2.0 IWB/OWB Modular Holster by Blade-Tech offers versatile, ambidextrous design for securely concealing your S&W Shield 9/40/Plus with mods for customized carry options and a superior fit for durability and comfort.
+7. [Total Eclipse 2.0 Holster for S&W M&P Shield 9/40 with Mod-Lok System](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=total-eclipse-20-holster-for-sw-mp-shield-940-with-mod-lok-system) - Total Eclipse 2.0 IWB/OWB Modular Holster by Blade-Tech offers versatile, ambidextrous design for securely concealing your S&W Shield 9/40/Plus with mods for customized carry options and a superior fit for durability and comfort.
 
-8. [Inside Waistband Holster for Ruger LCR](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Blade-Tech's Klipt IWB Holster for the Ruger LCR combines exceptional comfort, security, and easy concealment, offering a discreet and reliable option for everyday carry.
+8. [Inside Waistband Holster for Ruger LCR](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=inside-waistband-holster-for-ruger-lcr) - Blade-Tech's Klipt IWB Holster for the Ruger LCR combines exceptional comfort, security, and easy concealment, offering a discreet and reliable option for everyday carry.
 
-9. [Ambidextrous Total Eclipse Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the Blade-Tech Total Eclipse Holster, perfect for both left and right-hand shooters with its ambidextrous design, full-length sweat guard, positive lock trigger guard, and superior fit made in the USA.
+9. [Ambidextrous Total Eclipse Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=ambidextrous-total-eclipse-holster-for-concealed-carry) - Discover the Blade-Tech Total Eclipse Holster, perfect for both left and right-hand shooters with its ambidextrous design, full-length sweat guard, positive lock trigger guard, and superior fit made in the USA.
 
-10. [Adjustable IWB Kydex Holster for S&W M&P Shield 9mm/.40 TLR-6](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Tulster Profile IWB Holster offers optimal concealment and comfort for carrying S&W M&P Shield 9mm/.40 with TLR-6, designed with custom features and adjustable settings for versatile, confident carrying.
+10. [Adjustable IWB Kydex Holster for S&W M&P Shield 9mm/.40 TLR-6](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=adjustable-iwb-kydex-holster-for-sw-mp-shield-9mm40-tlr-6) - Tulster Profile IWB Holster offers optimal concealment and comfort for carrying S&W M&P Shield 9mm/.40 with TLR-6, designed with custom features and adjustable settings for versatile, confident carrying.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Tactical OWB Holster for Sig P226 - Made in USA](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Tactical OWB Holster for Sig P226 - Made in USA](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=tactical-owb-holster-for-sig-p226-made-in-usa)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="classic-owb-holster-sig-p226-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/classic-owb-holster-sig-p226-right-hand-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=classic-owb-holster-sig-p226-right-hand-1"><img alt="classic-owb-holster-sig-p226-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/classic-owb-holster-sig-p226-right-hand-1/public"/></a></div>
 
 After using the Blade-Tech Classic OWB holster for a couple of weeks with my firearm, I can say that the adjustable retention feature is a game-changer. Being able to easily tighten or loosen the fit around my gun has been extremely convenient, and the fact that it's made in the USA from strong Boltaron adds to its durability. The positive locking trigger guard provides peace of mind by giving me tactile feedback when my firearm is securely in place.
 
 However, some users have reported difficulty with adjusting the screws and fitting certain optics on their firearms. This may vary based on individual preferences and specific firearms models. Despite this, I believe that the IDPA & USPSA legal optic ready speed cut feature makes it ideal for both tactical and competition use. Overall, I am pleased with my purchase of the Blade-Tech Classic OWB holster for its adjustability, durability, and functionality.
 
-### [Modular IWB/OWB Holster for Sig P365 / P365X - Blade-Tech Total Eclipse 2.0](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Modular IWB/OWB Holster for Sig P365 / P365X - Blade-Tech Total Eclipse 2.0](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=modular-iwbowb-holster-for-sig-p365-p365x-blade-tech-total-eclipse-20)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-sig-p365-p365x-no-light-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-sig-p365-p365x-no-light-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-sig-p365-p365x-no-light-1"><img alt="total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-sig-p365-p365x-no-light-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-sig-p365-p365x-no-light-1/public"/></a></div>
 
 After using the Blade-Tech Total Eclipse 2. 0 IWB/OWB Modular Holster for my Sig P365 / P365X, I was thoroughly impressed with its versatility and design. The toolless design allows for quick transitions from inside to outside the waistband, and the modular adaptability ensures that you can customize it to your specific needs by simply swapping out the Mod-Lok system.
 
@@ -60,9 +60,9 @@ The secure fit of this holster keeps your firearm in place while emitting a sati
 
 The 844 reviews with an impressive rating of 4. 7 further validate this holster's excellence, especially highlighting its auto-locking mechanism with Mod-Lok functionality, modular adaptability to accommodate specific needs, ambidextrous design, superior fit due to USA manufacturing standards using durable materials as well as its locking trigger guard feature which provides tactile feedback assuring complete safety when securing or unsecuring one’s firearm within this top notch carrying device option known as Blade Tech Total Eclipse 2O IWB OWB Modular Holster specifically designed for those who value their safety above all else!
 
-### [IWB Kydex Holster for Smith & Wesson M&P Shield](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [IWB Kydex Holster for Smith & Wesson M&P Shield](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=iwb-kydex-holster-for-smith-wesson-mp-shield)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="we-the-people-holsters-constitution-right-hand-iwb-holster-compatible-with-smith-wesson-mp-shield-m2-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/we-the-people-holsters-constitution-right-hand-iwb-holster-compatible-with-smith-wesson-mp-shield-m2-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=we-the-people-holsters-constitution-right-hand-iwb-holster-compatible-with-smith-wesson-mp-shield-m2-1"><img alt="we-the-people-holsters-constitution-right-hand-iwb-holster-compatible-with-smith-wesson-mp-shield-m2-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/we-the-people-holsters-constitution-right-hand-iwb-holster-compatible-with-smith-wesson-mp-shield-m2-1/public"/></a></div>
 
 I recently purchased this Kydex holster for my concealed carry needs and have been using it daily. One of the standout features of this holster is its precise fit for my specific gun model, providing me with an audible click when I securely holster my gun, giving me peace of mind that it's held in place safely.
 
@@ -72,9 +72,9 @@ However, there are a few areas where I believe this product could improve furthe
 
 Overall this Kydex Holster from Odin offers good value for money considering its lifetime guarantee against defects along with other great features like being waterproof and offering a precise fit for your specific gun model.
 
-### [Custom Kydex OWB Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Custom Kydex OWB Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=custom-kydex-owb-holster-for-concealed-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="custom-owb-covert-kydex-pistol-mag-holster-cg-holsters-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/custom-owb-covert-kydex-pistol-mag-holster-cg-holsters-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=custom-owb-covert-kydex-pistol-mag-holster-cg-holsters-1"><img alt="custom-owb-covert-kydex-pistol-mag-holster-cg-holsters-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/custom-owb-covert-kydex-pistol-mag-holster-cg-holsters-1/public"/></a></div>
 
 I recently tested the C&G Covert OWB kydex holster, and I must say, it's one of the most comfortable concealed carry solutions I've tried. The adjustable retention screw lets you customize how tightly your gun fits, ensuring a smooth draw when needed while keeping your gun secure. The geometry of this holster works well to keep my firearm in place without causing discomfort or chafing during extended periods of wear.
 
@@ -82,15 +82,15 @@ In terms of design, the sleek appearance and durability provided by the kydex ma
 
 Overall, I highly recommend this product to anyone searching for a reliable and comfortable concealed carry solution that balances functionality with comfort.
 
-### [Appendix IWB Holster and Mag Pouch Mod Kit for Glock 19/44/45 Gen 3-5 & 23/32 Gen 3-4](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Appendix IWB Holster and Mag Pouch Mod Kit for Glock 19/44/45 Gen 3-5 & 23/32 Gen 3-4](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=appendix-iwb-holster-and-mag-pouch-mod-kit-for-glock-194445-gen-3-5-2332-gen-3-4)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-glock-19-44-45-gen-3-5-23-32-gen-3-4-s-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-glock-19-44-45-gen-3-5-23-32-gen-3-4-s-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-glock-19-44-45-gen-3-5-23-32-gen-3-4-s-1"><img alt="total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-glock-19-44-45-gen-3-5-23-32-gen-3-4-s-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-glock-19-44-45-gen-3-5-23-32-gen-3-4-s-1/public"/></a></div>
 
 The Blade-Tech Total Eclipse 2. 0 with Total Eclipse 2. 0 Appendix IWB Mag Pouch Mod Kit is an exceptional holster for concealed carry, combining superior build quality, versatility, and comfort. Its durable construction and adjustability for cant and ride height set it apart from other holsters on the market. Additionally, the retention screw allows for a perfect balance between safety measures and quick accessibility. The ability to accommodate a wide range of firearms makes it suitable for carrying regardless of the type of gun you own. The lightness ensures extended periods of wear without feeling weighed down by bulky equipment, even while wearing heavy clothing like jackets or vests. Overall, this ambidextrous option caters to left-handed individuals as well and is an excellent choice among available options within its budget bracket range.
 
-### [Total Eclipse 2.0 Modular Holster for Sig Sauer P320C / M18](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Total Eclipse 2.0 Modular Holster for Sig Sauer P320C / M18](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=total-eclipse-20-modular-holster-for-sig-sauer-p320c-m18)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-sig-p320c-m18-no-light-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-sig-p320c-m18-no-light-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-sig-p320c-m18-no-light-1"><img alt="total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-sig-p320c-m18-no-light-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-sig-p320c-m18-no-light-1/public"/></a></div>
 
 As a firearms instructor, I recently had the opportunity to test the Blade-Tech Total Eclipse 2. 0 IWB/OWB Modular Holster with my Sig P320C / M18. The holster's auto-locking, toolless design made it extremely easy to switch between OWB and IWB carry without any hassle. And the ambidextrous design ensured that both left and right-handed shooters could easily use it.
 
@@ -98,9 +98,9 @@ One of my favorite aspects of this holster is its high-strength, heat-resistant 
 
 The positive lock trigger guard was a great feature that provided me with tactile feedback indicating when my firearm was securely in place. And the audible click when reholstering gave me added confidence that my weapon was safely locked in place every time I reholstered it, allowing me peace of mind while carrying it daily or during training sessions. Overall, I'd highly recommend the Blade-Tech Total Eclipse 2. 0 Holster as an excellent choice for those looking for versatility, reliability, and comfort in their everyday carry or training holsters – especially for users of Sig P320C/M18 handguns!
 
-### [Total Eclipse 2.0 Holster for S&W M&P Shield 9/40 with Mod-Lok System](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Total Eclipse 2.0 Holster for S&W M&P Shield 9/40 with Mod-Lok System](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=total-eclipse-20-holster-for-sw-mp-shield-940-with-mod-lok-system)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-sw-mp-shield-9-40-3-1-not-optics-compa-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-sw-mp-shield-9-40-3-1-not-optics-compa-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-sw-mp-shield-9-40-3-1-not-optics-compa-1"><img alt="total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-sw-mp-shield-9-40-3-1-not-optics-compa-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/total-eclipse-2-0-holster-with-appendix-iwb-mag-pouch-mod-kit-sw-mp-shield-9-40-3-1-not-optics-compa-1/public"/></a></div>
 
 The Blade-Tech Total Eclipse 2. 0 IWB/OWB Modular Holster for Smith & Wesson Shield 9/40/Plus is an innovative product that offers a versatile and reliable experience. The auto-locking, toolless design with Mod-Lok makes it easy to transition from OWB to IWB carry, and the modular adaptability allows you to choose quick-release Mods that fit your individual needs. It's also great to have the ambidextrous holster design as it accommodates both left and right-handed shooters.
 
@@ -108,9 +108,9 @@ One of the particularly impressive features is the positive lock trigger guard w
 
 Overall, this holster earns an A++ for its durability and versatility. Finding a holster that meets these criteria can be challenging, but Blade-Tech manages to deliver with their Total Eclipse 2. 0 Holster for S&W Shield 9/40/Plus.
 
-### [Inside Waistband Holster for Ruger LCR](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Inside Waistband Holster for Ruger LCR](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=inside-waistband-holster-for-ruger-lcr)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="klipt-iwb-holster-for-ruger-lcr-from-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-holster-for-ruger-lcr-from-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=klipt-iwb-holster-for-ruger-lcr-from-right-handed-inside-the-waistband-klipt-blade-tech-1"><img alt="klipt-iwb-holster-for-ruger-lcr-from-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-holster-for-ruger-lcr-from-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
 
 I recently tested the Blade-Tech Klipt IWB Holster for my Ruger LCR and was impressed by its slim design and high sweat guard. The holster fit snugly onto my belt with the easy on/easy off belt clip, providing a secure and comfortable carry experience.
 
@@ -122,9 +122,9 @@ One minor drawback of this product is that it may take a bit of time to get used
 
 Despite being designed primarily for everyday carry, this no nonsense holster quickly became one of my favorites thanks to its balance of comfort and security features. Overall, if you're looking for a reliable concealed carry option without any bulkiness or fussy adjustments, then Blade-Tech Klipt IWB Holster for the Ruger LCR could be an excellent choice!
 
-### [Ambidextrous Total Eclipse Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Ambidextrous Total Eclipse Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=ambidextrous-total-eclipse-holster-for-concealed-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="blade-tech-total-eclipse-ambidextrous-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-total-eclipse-ambidextrous-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=blade-tech-total-eclipse-ambidextrous-holster-1"><img alt="blade-tech-total-eclipse-ambidextrous-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-total-eclipse-ambidextrous-holster-1/public"/></a></div>
 
 I've been using the Total Eclipse holster for a while now and it has really exceeded my expectations. The best part about this holster is its ambidextrous design that allows me to switch between left or right-hand shooting with ease. I also appreciate the full-length sweat guard that not only prevents discomfort but also ensures there are no sharp edges against my skin.
 
@@ -134,9 +134,9 @@ However, there are some minor cons worth mentioning. The extra sweat guard on bo
 
 Despite these minor cons, I’m overall pleased with what is undeniably a high-quality concealment holster with exceptional retention capabilities that makes me feel confident having it at my side whether on duty or off!
 
-### [Adjustable IWB Kydex Holster for S&W M&P Shield 9mm/.40 TLR-6](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Adjustable IWB Kydex Holster for S&W M&P Shield 9mm/.40 TLR-6](https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=adjustable-iwb-kydex-holster-for-sw-mp-shield-9mm40-tlr-6)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="tulster-profile-iwb-holster-sw-mp-shield-9mm-40-tlr-7" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tulster-profile-iwb-holster-sw-mp-shield-9mm-40-tlr-7/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=tulster-profile-iwb-holster-sw-mp-shield-9mm-40-tlr-7"><img alt="tulster-profile-iwb-holster-sw-mp-shield-9mm-40-tlr-7" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tulster-profile-iwb-holster-sw-mp-shield-9mm-40-tlr-7/public"/></a></div>
 
 After using the IWB Profile Series holster from Tulster for several months, I must say it's an exceptional minimalistic solution for everyday carry. Its sleek design and high-quality materials have made it a daily go-to. The matte edge finish is comfortable, and the low profile ensures that my firearm remains concealed while carrying.
 
@@ -146,7 +146,7 @@ Overall, this product has proven itself as an excellent choice for concealed car
 
 ## Buyer's Guide
 
-<div><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/M206+Holsters-2/public" alt="M206 Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=m206-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/M206+Holsters-2/public" alt="M206 Holsters-2"></a></div>
 
 ### Important Features in M206 Holsters
 
@@ -170,7 +170,7 @@ Before purchasing an M206 holster, consider the following:
 
 3. Retention Level: Decide what level of retention is necessary for your carry needs and overall safety.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/M206+Holsters-3/public" alt="M206 Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=m206-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/M206+Holsters-3/public" alt="M206 Holsters-3"></a></div>
 
 ### General Advice for M206 Holster Use
 
@@ -184,7 +184,7 @@ To ensure the proper use and maintenance of your M206 holster:
 
 ## FAQ
 
-<div><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/M206+Holsters-4/public" alt="M206 Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=m206-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/M206+Holsters-4/public" alt="M206 Holsters-4"></a></div>
 
 ### What types of M206 Holsters are available?
 
@@ -194,7 +194,7 @@ M206 Holsters come in various types designed for different firearms and purposes
 
 The ideal material for an M206 Holster depends on your preference and the specific purpose. Common materials include leather, kydex, and nylon, with leather being the most traditional and comfortable, kydex offering durability and a snug fit, and nylon being lightweight and affordable.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/M206+Holsters-5/public" alt="M206 Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=m206-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/M206+Holsters-5/public" alt="M206 Holsters-5"></a></div>
 
 ### How do I choose the right size holster for my firearm?
 
@@ -204,7 +204,7 @@ To choose the right size holster, you need to know the exact model and make of y
 
 Some M206 Holsters are designed to be adjustable or fit multiple firearms, while others are tailored to a specific make and model. Be sure to select a holster that is compatible with your chosen firearm to ensure proper fit and function.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/M206+Holsters-6/public" alt="M206 Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/m206-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=m206-holsters&utm_term=m206-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/M206+Holsters-6/public" alt="M206 Holsters-6"></a></div>
 
 ### How should I maintain my M206 Holster?
 

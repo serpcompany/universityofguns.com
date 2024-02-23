@@ -16,23 +16,23 @@ Finding the perfect holster for your firearm can be a daunting task. But worry n
 
 ## The Top 5 Best Custom Leather Gun Holsters
 
-1. [Custom Kydex Holster System for Walther PDP 4" - Right Hand, IWB Orientation](https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - 5-star Mod1 IWB Kydex Holster System for Walther PDP 4" crafted custom to fit your needs, 100% American made by veterans and law enforcement, adjustable for retention, and designed for optimal concealment and comfort.
+1. [Custom Kydex Holster System for Walther PDP 4" - Right Hand, IWB Orientation](https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-leather-gun-holsters&utm_term=custom-kydex-holster-system-for-walther-pdp-4-right-hand-iwb-orientation) - 5-star Mod1 IWB Kydex Holster System for Walther PDP 4" crafted custom to fit your needs, 100% American made by veterans and law enforcement, adjustable for retention, and designed for optimal concealment and comfort.
 
-2. [Versacarry Distressed Brown OWB Holster](https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Versacarry Guardian OWB Holster is a premium leather holster that offers comfort and protection for your concealed carry pistol, with a unique design that accelerates break-in time and a right-handed draw.
+2. [Versacarry Distressed Brown OWB Holster](https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-leather-gun-holsters&utm_term=versacarry-distressed-brown-owb-holster) - The Versacarry Guardian OWB Holster is a premium leather holster that offers comfort and protection for your concealed carry pistol, with a unique design that accelerates break-in time and a right-handed draw.
 
-3. [Galco MIami Classic II Shoulder Holster for Sig P365, Premium Leather Concealment, Comfortable Spider Harness, Modular Design](https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unmatched comfort and convenience with Galco's Miami Classic II Shoulder Holster, featuring premium steerhide construction, swiveling Flexalon back plate, and modular design for versatile accessory attachment.
+3. [Galco MIami Classic II Shoulder Holster for Sig P365, Premium Leather Concealment, Comfortable Spider Harness, Modular Design](https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-leather-gun-holsters&utm_term=galco-miami-classic-ii-shoulder-holster-for-sig-p365-premium-leather-concealment-comfortable-spider-harness-modular-design) - Experience unmatched comfort and convenience with Galco's Miami Classic II Shoulder Holster, featuring premium steerhide construction, swiveling Flexalon back plate, and modular design for versatile accessory attachment.
 
-4. [Stylish OWB Kydex Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Customized handmade Quick Draw OWB holster by Vedder Holsters, offering premium leather and molded Kydex construction for a perfect fit and secure firearm concealment under your jacket or loosely-tucked shirt
+4. [Stylish OWB Kydex Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-leather-gun-holsters&utm_term=stylish-owb-kydex-holster-for-concealed-carry) - Customized handmade Quick Draw OWB holster by Vedder Holsters, offering premium leather and molded Kydex construction for a perfect fit and secure firearm concealment under your jacket or loosely-tucked shirt
 
-5. [Custom 1791 IWB Holster with Fast Draw Access](https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The 1791 Ultra Custom IWB Holster is a premium, handcrafted leather holster offering optimal comfort, concealment, and quick draw capabilities for a wide range of firearms, suitable for responsible individuals who prioritize concealed carry.
+5. [Custom 1791 IWB Holster with Fast Draw Access](https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-leather-gun-holsters&utm_term=custom-1791-iwb-holster-with-fast-draw-access) - The 1791 Ultra Custom IWB Holster is a premium, handcrafted leather holster offering optimal comfort, concealment, and quick draw capabilities for a wide range of firearms, suitable for responsible individuals who prioritize concealed carry.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Custom Kydex Holster System for Walther PDP 4" - Right Hand, IWB Orientation](https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Custom Kydex Holster System for Walther PDP 4" - Right Hand, IWB Orientation](https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-leather-gun-holsters&utm_term=custom-kydex-holster-system-for-walther-pdp-4-right-hand-iwb-orientation)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="mod1-iwb-kydex-holster-system-custom-right-hand-walther-pdp-5" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mod1-iwb-kydex-holster-system-custom-right-hand-walther-pdp-5/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-leather-gun-holsters&utm_term=mod1-iwb-kydex-holster-system-custom-right-hand-walther-pdp-5"><img alt="mod1-iwb-kydex-holster-system-custom-right-hand-walther-pdp-5" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mod1-iwb-kydex-holster-system-custom-right-hand-walther-pdp-5/public"/></a></div>
 
 My daily carry routine has significantly improved since switching to the C&G holster a few weeks ago. The proprietary molds, CNC milled design, and precision craftsmanship deliver unmatched comfort and concealment. I opted for the modular belt clips, which have been durable and secure throughout my use. The hinge system makes adjusting the holster angle easy for comfortable concealment even with my larger pistol under a t-shirt.
 
@@ -40,9 +40,9 @@ What sets C&G apart from other holsters is their commitment to quality. Every as
 
 While I am generally thrilled with this purchase, I do wish there were more options for customization like color choices or different sweat guard sizes. Additionally, while it excels in comfort, the fit could be more snug to reduce any potential movement while carrying. Despite these minor drawbacks, I would still recommend C&G Holsters as an excellent choice for anyone in the market for a new concealed carry solution.
 
-### [Versacarry Distressed Brown OWB Holster](https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Versacarry Distressed Brown OWB Holster](https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-leather-gun-holsters&utm_term=versacarry-distressed-brown-owb-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="versacarry-guardian-owb-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/versacarry-guardian-owb-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-leather-gun-holsters&utm_term=versacarry-guardian-owb-holster-1"><img alt="versacarry-guardian-owb-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/versacarry-guardian-owb-holster-1/public"/></a></div>
 
 Finding the perfect holster can be a daunting task, but the VersaCarry Guardian OWB Holster has made it an enjoyable experience for me. As someone who carries a full-sized 1911, I was initially skeptical about how concealable it would be. However, the forward cant design ensures the gun stays tight against my body, while the raised protective backing provides both comfort and protection.
 
@@ -54,9 +54,9 @@ All in all, the VersaCarry Guardian OWB Holster has made concealed carry comfort
 
 Remember, this is just an example of a review and should not be used as an actual review. Always share your honest experience with the product.
 
-### [Galco MIami Classic II Shoulder Holster for Sig P365, Premium Leather Concealment, Comfortable Spider Harness, Modular Design](https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Galco MIami Classic II Shoulder Holster for Sig P365, Premium Leather Concealment, Comfortable Spider Harness, Modular Design](https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-leather-gun-holsters&utm_term=galco-miami-classic-ii-shoulder-holster-for-sig-p365-premium-leather-concealment-comfortable-spider-harness-modular-design)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="galco-miami-classic-ii-shoulder-holster-black-sig-p365-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/galco-miami-classic-ii-shoulder-holster-black-sig-p365-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-leather-gun-holsters&utm_term=galco-miami-classic-ii-shoulder-holster-black-sig-p365-1"><img alt="galco-miami-classic-ii-shoulder-holster-black-sig-p365-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/galco-miami-classic-ii-shoulder-holster-black-sig-p365-1/public"/></a></div>
 
 I recently got my hands on the Galco Miami Classic II Shoulder Holster and let me tell you, it's a game-changer! This beauty is not only sleek and stylish but also incredibly comfortable to wear. The premium steerhide holster and magazine carrier make it feel like you're carrying a piece of quality craftsmanship.
 
@@ -66,9 +66,9 @@ However, there are some cons that I need to mention. While walking my dog, both 
 
 All in all, I am absolutely thrilled with the Galco Miami Classic II Shoulder Holster! The quality is top-notch, and I feel confident knowing that it's going to last me a long time. If you're in the market for a new concealed carrying solution, I highly recommend giving this holster a try.
 
-### [Stylish OWB Kydex Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Stylish OWB Kydex Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-leather-gun-holsters&utm_term=stylish-owb-kydex-holster-for-concealed-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="vedder-holsters-quick-draw-owb-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vedder-holsters-quick-draw-owb-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-leather-gun-holsters&utm_term=vedder-holsters-quick-draw-owb-holster-1"><img alt="vedder-holsters-quick-draw-owb-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vedder-holsters-quick-draw-owb-holster-1/public"/></a></div>
 
 I've been using the Vedder Holsters Quick Draw OWB Holster for a few weeks now and it's been quite the adventure. The first thing that caught my eye was the sleek design and high-quality craftsmanship. The combination of premium leather and molded Kydex creates a perfect fit for my firearm, making it incredibly comfortable to carry.
 
@@ -78,9 +78,9 @@ However, there are a few drawbacks to this holster. The rough spot on the polyme
 
 In conclusion, the Vedder Holsters Quick Draw OWB Holster delivers on its promise of a comfortable, well-fitting holster but could benefit from some minor improvements. Despite these issues, I'm overall satisfied with its performance and would recommend it to others seeking an OWB concealed carry option.
 
-### [Custom 1791 IWB Holster with Fast Draw Access](https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Custom 1791 IWB Holster with Fast Draw Access](https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-leather-gun-holsters&utm_term=custom-1791-iwb-holster-with-fast-draw-access)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="1791-ultra-custom-iwb-sz-0-nsb-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1791-ultra-custom-iwb-sz-0-nsb-rh-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-leather-gun-holsters&utm_term=1791-ultra-custom-iwb-sz-0-nsb-rh-1"><img alt="1791-ultra-custom-iwb-sz-0-nsb-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1791-ultra-custom-iwb-sz-0-nsb-rh-1/public"/></a></div>
 
 As a dedicated firearms enthusiast, I'm always on the lookout for the perfect concealed carry holster. I recently came across the 1791 Ultra Custom IWB Holster, and it has quickly become a staple in my EDC setup.
 
@@ -98,7 +98,7 @@ All things considered, the 1791 Ultra Custom IWB Holster has been an exceptional
 
 ### Important Features to Consider in Custom Leather Gun Holsters
 
-<div><a href="https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Custom+Leather+Gun+Holsters-2/public" alt="Custom Leather Gun Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-leather-gun-holsters&utm_term=custom-leather-gun-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Custom+Leather+Gun+Holsters-2/public" alt="Custom Leather Gun Holsters-2"></a></div>
 
 1. Material Quality: Ensuring the leather is of high quality helps maintain durability and longevity of the holster. This also ensures comfort while carrying your firearm.
 
@@ -122,7 +122,7 @@ All things considered, the 1791 Ultra Custom IWB Holster has been an exceptional
 
 2. Safety Recommendations: Always handle your firearm responsibly, whether it's inside or outside the holster. Never leave a loaded gun unattended, and always ensure your finger is off the trigger until you're ready to shoot.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Custom+Leather+Gun+Holsters-3/public" alt="Custom Leather Gun Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-leather-gun-holsters&utm_term=custom-leather-gun-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Custom+Leather+Gun+Holsters-3/public" alt="Custom Leather Gun Holsters-3"></a></div>
 
 ## FAQ
 
@@ -132,7 +132,7 @@ Custom Leather Gun Holsters are specially designed holsters made from high-quali
 
 ### Why choose a Custom Leather Gun Holster?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Custom+Leather+Gun+Holsters-4/public" alt="Custom Leather Gun Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-leather-gun-holsters&utm_term=custom-leather-gun-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Custom+Leather+Gun+Holsters-4/public" alt="Custom Leather Gun Holsters-4"></a></div>
 
 A Custom Leather Gun Holster provides superior fit, superior durability, and superior concealment compared to other materials. It is also more comfortable to wear for long periods of time.
 
@@ -144,7 +144,7 @@ When choosing a Custom Leather Gun Holster, consider the type of weapon you own 
 
 Yes, Custom Leather Gun Holsters are excellent for concealed carry. They can be worn either inside or outside the waistband, depending on personal preference and clothing choices.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Custom+Leather+Gun+Holsters-5/public" alt="Custom Leather Gun Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-leather-gun-holsters&utm_term=custom-leather-gun-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Custom+Leather+Gun+Holsters-5/public" alt="Custom Leather Gun Holsters-5"></a></div>
 
 ### How should I care for my Custom Leather Gun Holster?
 
@@ -156,7 +156,7 @@ Custom Leather Gun Holsters are available for various types of firearms, includi
 
 ### How do I install a Custom Leather Gun Holster?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Custom+Leather+Gun+Holsters-6/public" alt="Custom Leather Gun Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/custom-leather-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=custom-leather-gun-holsters&utm_term=custom-leather-gun-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Custom+Leather+Gun+Holsters-6/public" alt="Custom Leather Gun Holsters-6"></a></div>
 
 Each Custom Leather Gun Holster comes with specific installation instructions for your weapon model. Typically, it involves securing the holster to a belt loop or other attachment point on your belt or waistband.
 

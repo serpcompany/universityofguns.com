@@ -16,25 +16,25 @@ Are you always ready for the unexpected when you're out on your bike? Well, you'
 
 ## The Top 6 Best Motorcycle Mounted Gun Holsters
 
-1. [SERPA Auto Lock Conceal Carry Holster for Sig P365-P365XL](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blackhawk Serpa CQC Holster for Sig P365-P365xl RH delivers advanced retention, rapid draw capabilities, and exceptional concealment for concealed carry enthusiasts.
+1. [SERPA Auto Lock Conceal Carry Holster for Sig P365-P365XL](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=serpa-auto-lock-conceal-carry-holster-for-sig-p365-p365xl) - The Blackhawk Serpa CQC Holster for Sig P365-P365xl RH delivers advanced retention, rapid draw capabilities, and exceptional concealment for concealed carry enthusiasts.
 
-2. [Secure IWB Holster Mount for Vehicles, Desk, and Nightstand Use](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unmatched security and convenience with the IWB Holster Mount Single, designed to carry and store your holster and firearm safely and securely in a variety of settings.
+2. [Secure IWB Holster Mount for Vehicles, Desk, and Nightstand Use](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=secure-iwb-holster-mount-for-vehicles-desk-and-nightstand-use) - Experience unmatched security and convenience with the IWB Holster Mount Single, designed to carry and store your holster and firearm safely and securely in a variety of settings.
 
-3. [IWB & OWB Crossfire Cyclone Holster](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - This versatile Cyclone Micro Semi-Auto Holster offers compact design, custom fit, moisture barriers, and wear options for both inside- or outside-the-waistband carry. Perfect for tactical and military enthusiasts.
+3. [IWB & OWB Crossfire Cyclone Holster](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=iwb-owb-crossfire-cyclone-holster) - This versatile Cyclone Micro Semi-Auto Holster offers compact design, custom fit, moisture barriers, and wear options for both inside- or outside-the-waistband carry. Perfect for tactical and military enthusiasts.
 
-4. [7360RDS Safariland 7TS ALS/SLS Mid-Ride Red Dot Optics Holster for Duty](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience optimal protection and quick easy draw with the Safariland 7360RDS 7TS Mid-Ride holster, designed to fit and protect weapons equipped with red dot optics.
+4. [7360RDS Safariland 7TS ALS/SLS Mid-Ride Red Dot Optics Holster for Duty](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=7360rds-safariland-7ts-alssls-mid-ride-red-dot-optics-holster-for-duty) - Experience optimal protection and quick easy draw with the Safariland 7360RDS 7TS Mid-Ride holster, designed to fit and protect weapons equipped with red dot optics.
 
-5. [Magnetic Gun Mount for Hidden Storage](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Unleash the power of the Magna-Arm: a stealthy, robust magnetic gun mount that securely holds up to 15 lbs, perfect for handguns or two for long guns, ensuring your peace of mind in countless hidden locations from desks to boats.
+5. [Magnetic Gun Mount for Hidden Storage](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=magnetic-gun-mount-for-hidden-storage) - Unleash the power of the Magna-Arm: a stealthy, robust magnetic gun mount that securely holds up to 15 lbs, perfect for handguns or two for long guns, ensuring your peace of mind in countless hidden locations from desks to boats.
 
-6. [Polaris ACE OEM Gun Scabbard Boot Mount](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Securely transport and protect your firearm on Polaris ACE vehicles with the Polaris OEM Lock & Ride Gun Scabbard Boot Mount, offering quick installation and removal without tools.
+6. [Polaris ACE OEM Gun Scabbard Boot Mount](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=polaris-ace-oem-gun-scabbard-boot-mount) - Securely transport and protect your firearm on Polaris ACE vehicles with the Polaris OEM Lock & Ride Gun Scabbard Boot Mount, offering quick installation and removal without tools.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [SERPA Auto Lock Conceal Carry Holster for Sig P365-P365XL](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [SERPA Auto Lock Conceal Carry Holster for Sig P365-P365XL](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=serpa-auto-lock-conceal-carry-holster-for-sig-p365-p365xl)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="blackhawk-serpa-cqc-holster-sig-p365-p365xl-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blackhawk-serpa-cqc-holster-sig-p365-p365xl-rh-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=blackhawk-serpa-cqc-holster-sig-p365-p365xl-rh-1"><img alt="blackhawk-serpa-cqc-holster-sig-p365-p365xl-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blackhawk-serpa-cqc-holster-sig-p365-p365xl-rh-1/public"/></a></div>
 
 The Blackhawk Tecgrip Holsters have been an excellent addition to my collection. The SERPA Auto Lock technology is an impressive feature, ensuring that my firearm remains securely in place while only disengaging during the draw cycle, giving me peace of mind. The Speed Cut Aids are also a great design as they allow for rapid draw and target acquisition.
 
@@ -44,9 +44,9 @@ I really appreciate the thin profile of this holster; it's comfortable against m
 
 Overall, I'm satisfied with this product as it delivers on its promises: high-quality construction combined with innovative features such as SERPA Auto Lock technology provide confidence when carrying your firearm safely and securely throughout your daily routine!
 
-### [Secure IWB Holster Mount for Vehicles, Desk, and Nightstand Use](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Secure IWB Holster Mount for Vehicles, Desk, and Nightstand Use](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=secure-iwb-holster-mount-for-vehicles-desk-and-nightstand-use)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="iwb-holster-mount-single-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/iwb-holster-mount-single-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=iwb-holster-mount-single-1"><img alt="iwb-holster-mount-single-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/iwb-holster-mount-single-1/public"/></a></div>
 
 I recently purchased the IWB Holster Mount and have been using it daily for a few weeks now. This product has truly transformed my daily carry experience, offering both convenience and peace of mind. The mount securely holds my holstered firearm in place, whether I'm at my office desk or driving in my truck. Its dual locking design provides assurance that the weapon won't fall out, even on bumpy roads.
 
@@ -56,9 +56,9 @@ I was also impressed by the two unique mounting methods offered by this product,
 
 Overall, this IWB Holster Mount is an essential accessory for anyone who carries concealed weapons daily – definitely worth its cost! With its lightweight design and dual locking mechanism, you can rest assured that your firearm remains safe and secure while on-the-go or stored away when not needed.
 
-### [IWB & OWB Crossfire Cyclone Holster](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [IWB & OWB Crossfire Cyclone Holster](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=iwb-owb-crossfire-cyclone-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="crossfire-elite-cyclsa1m-1l-cyclone-micro-semi-auto-holster-left-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crossfire-elite-cyclsa1m-1l-cyclone-micro-semi-auto-holster-left-hand-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=crossfire-elite-cyclsa1m-1l-cyclone-micro-semi-auto-holster-left-hand-1"><img alt="crossfire-elite-cyclsa1m-1l-cyclone-micro-semi-auto-holster-left-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crossfire-elite-cyclsa1m-1l-cyclone-micro-semi-auto-holster-left-hand-1/public"/></a></div>
 
 I've been using the Crossfire Elite Cyclone Micro Semi-Auto Holster, and let me tell you, it's been quite an experience. The compact design makes it perfect for both concealed and non-concealed use, adjusting easily from an OWB to IWB carry. What really stood out to me was the comfort panel with dual pant clips, making it incredibly comfortable to wear, even for extended periods.
 
@@ -68,9 +68,9 @@ However, there were a few cons that I noticed. The attachment mount type is a cl
 
 Overall, the Crossfire Elite Cyclone Micro Semi-Auto Holster is a versatile and comfortable option for anyone looking for a reliable concealed or non-concealed holster. Just be prepared to spend a bit of time setting it up and getting used to the retention mechanism.
 
-### [7360RDS Safariland 7TS ALS/SLS Mid-Ride Red Dot Optics Holster for Duty](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [7360RDS Safariland 7TS ALS/SLS Mid-Ride Red Dot Optics Holster for Duty](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=7360rds-safariland-7ts-alssls-mid-ride-red-dot-optics-holster-for-duty)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="model-7360rds-7ts-als-sls-mid-ride-duty-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/model-7360rds-7ts-als-sls-mid-ride-duty-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=model-7360rds-7ts-als-sls-mid-ride-duty-holster-1"><img alt="model-7360rds-7ts-als-sls-mid-ride-duty-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/model-7360rds-7ts-als-sls-mid-ride-duty-holster-1/public"/></a></div>
 
 I've been using the Safariland 7360RDS Mid-Ride Duty Holster for quite some time now, and I must say it's been a game-changer in terms of safety and convenience. The holster's primary feature, the ALS (Automatic Locking System), is incredibly user-friendly - just a simple thumb operation that's a breeze to learn and train with. The instinctive straight-up draw is another bonus, making it tough for anyone to swipe my weapon.
 
@@ -80,9 +80,9 @@ The adjustable mid-ride belt loop allows for a comfortable fit, with the holster
 
 However, one downside is the adjustment process. It requires a learning curve and can be a bit tricky initially, especially for those new to this type of holster. Overall, my experience with the Safariland 7360RDS Mid-Ride Duty Holster has been a positive one, with the pros far outweighing the cons.
 
-### [Magnetic Gun Mount for Hidden Storage](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Magnetic Gun Mount for Hidden Storage](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=magnetic-gun-mount-for-hidden-storage)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="crossbreed-holsters-magna-arm-gun-mount-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crossbreed-holsters-magna-arm-gun-mount-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=crossbreed-holsters-magna-arm-gun-mount-1"><img alt="crossbreed-holsters-magna-arm-gun-mount-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crossbreed-holsters-magna-arm-gun-mount-1/public"/></a></div>
 
 I recently purchased the Crossbreed Holsters Magna-Arm Gun Mount and I am thoroughly impressed! The night I installed it under my bed, I felt a lot safer, knowing that my weapon was within reach if needed. The magnetic rubberized surface is not only super secure, but also protects my gun from scratches.
 
@@ -92,9 +92,9 @@ However, there's no denying that the installation process can be a little daunti
 
 All in all, I'd highly recommend the Crossbreed Holsters Magna-Arm Gun Mount if you're looking for a secure, versatile spot to store your handgun at home. Its magnetic power ensures that your weapon stays put, ready to use when you need it most. Sure, the installation can be a bit daunting and multiple mounts are needed for long guns, but these are small cons in contrast to the peace of mind this product provides.
 
-### [Polaris ACE OEM Gun Scabbard Boot Mount](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Polaris ACE OEM Gun Scabbard Boot Mount](https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=polaris-ace-oem-gun-scabbard-boot-mount)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="polaris-2881143-oem-lock-ride-gun-scabbard-boot-mount-2014-2018-ace-500-570-900-sp-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/polaris-2881143-oem-lock-ride-gun-scabbard-boot-mount-2014-2018-ace-500-570-900-sp-black-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=polaris-2881143-oem-lock-ride-gun-scabbard-boot-mount-2014-2018-ace-500-570-900-sp-black-1"><img alt="polaris-2881143-oem-lock-ride-gun-scabbard-boot-mount-2014-2018-ace-500-570-900-sp-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/polaris-2881143-oem-lock-ride-gun-scabbard-boot-mount-2014-2018-ace-500-570-900-sp-black-1/public"/></a></div>
 
 I recently got the Polaris Gun Boot Mount, and I must say, it's been a game-changer for my outdoor excursions. As a big fan of their ACE vehicles, I was excited to find out that this scabbard was designed specifically for my 2014-2018 ACE 500, 570, and 900 SP.
 
@@ -112,7 +112,7 @@ Overall, I am thrilled with my Polaris Gun Boot Mount. Its ease of use, compatib
 
 When purchasing a motorcycle mounted gun holster, there are several important features to consider:
 
-<div><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Motorcycle+Mounted+Gun+Holsters-2/public" alt="Motorcycle Mounted Gun Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=motorcycle-mounted-gun-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Motorcycle+Mounted+Gun+Holsters-2/public" alt="Motorcycle Mounted Gun Holsters-2"></a></div>
 
 #### Retention Mechanism
 
@@ -126,7 +126,7 @@ Look for a holster that allows you to quickly and easily draw your firearm when 
 
 Select a holster designed for outdoor use that is water-resistant and durable under various weather conditions.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Motorcycle+Mounted+Gun+Holsters-3/public" alt="Motorcycle Mounted Gun Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=motorcycle-mounted-gun-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Motorcycle+Mounted+Gun+Holsters-3/public" alt="Motorcycle Mounted Gun Holsters-3"></a></div>
 
 #### Comfort and Stability
 
@@ -160,7 +160,7 @@ Here are some tips to ensure the best experience with your motorcycle mounted gu
 
 By considering these features, choosing the right holster, and following the general advice, you can safely and securely transport your firearm while riding your motorcycle.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Motorcycle+Mounted+Gun+Holsters-4/public" alt="Motorcycle Mounted Gun Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=motorcycle-mounted-gun-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Motorcycle+Mounted+Gun+Holsters-4/public" alt="Motorcycle Mounted Gun Holsters-4"></a></div>
 
 ## FAQ
 
@@ -172,7 +172,7 @@ Motorcycle mounted gun holsters are specially designed holsters that securely ho
 
 A motorcycle mounted gun holster offers quick and easy access to your firearm while riding, ensuring that it is securely stored and protected from the elements. It also prevents the rider from having to carry a concealed weapon while riding, which can be uncomfortable and impractical.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Motorcycle+Mounted+Gun+Holsters-5/public" alt="Motorcycle Mounted Gun Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=motorcycle-mounted-gun-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Motorcycle+Mounted+Gun+Holsters-5/public" alt="Motorcycle Mounted Gun Holsters-5"></a></div>
 
 ### How do I choose the right motorcycle mounted gun holster?
 
@@ -186,7 +186,7 @@ Motorcycle mounted gun holsters can be attached to the motorcycle using various 
 
 The installation process varies depending on the specific holster and mounting option you choose. Generally, it involves attaching the holster to your motorcycle using the provided mounting hardware or adhesive, following the manufacturer's instructions. If you're unsure about the installation process, consult a professional or the manufacturer's customer support.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Motorcycle+Mounted+Gun+Holsters-6/public" alt="Motorcycle Mounted Gun Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/motorcycle-mounted-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=motorcycle-mounted-gun-holsters&utm_term=motorcycle-mounted-gun-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Motorcycle+Mounted+Gun+Holsters-6/public" alt="Motorcycle Mounted Gun Holsters-6"></a></div>
 
 ### How do I safely and legally carry a firearm on a motorcycle?
 

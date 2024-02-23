@@ -18,31 +18,31 @@ From gun safes for secure storage to firearms designed for precision and power, 
 
 ## The Top 9 Best Kryptek Holsters
 
-1. [Slim and Comfortable IWB Holster for Sig Sauer P365/P365X](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Klipt IWB Holster provides a sleek and comfortable solution for everyday concealed carry of your Sig P365 / P365X, offering secure locking mechanisms and easy on/off belt clip with full-length sweat guard for all-day comfort.
+1. [Slim and Comfortable IWB Holster for Sig Sauer P365/P365X](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=slim-and-comfortable-iwb-holster-for-sig-sauer-p365p365x) - The Blade-Tech Klipt IWB Holster provides a sleek and comfortable solution for everyday concealed carry of your Sig P365 / P365X, offering secure locking mechanisms and easy on/off belt clip with full-length sweat guard for all-day comfort.
 
-2. [IWB Kydex Holster for Smith & Wesson M&P Shield](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Top-notch IWB Holster - Highly secure, custom-fit, inside-the-waistband Kydex holster from We The People, perfect for your Smith & Wesson M&P Shield, M20 or Plus 9mm/40, providing lifetime guarantee confidence.
+2. [IWB Kydex Holster for Smith & Wesson M&P Shield](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=iwb-kydex-holster-for-smith-wesson-mp-shield) - Top-notch IWB Holster - Highly secure, custom-fit, inside-the-waistband Kydex holster from We The People, perfect for your Smith & Wesson M&P Shield, M20 or Plus 9mm/40, providing lifetime guarantee confidence.
 
-3. [Slim and Discreet IWB Holster for Sig P320C and M18](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the perfect blend of comfort, security, and functionality with the Klipt IWB Holster for Sig P320C, designed to keep your firearm secure and comfortable while maintaining a sleek and discreet appearance for everyday carry.
+3. [Slim and Discreet IWB Holster for Sig P320C and M18](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=slim-and-discreet-iwb-holster-for-sig-p320c-and-m18) - Experience the perfect blend of comfort, security, and functionality with the Klipt IWB Holster for Sig P320C, designed to keep your firearm secure and comfortable while maintaining a sleek and discreet appearance for everyday carry.
 
-4. [Adjustable Glock 19 IWB Kydex Holster](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discreetly conceal your Glock 19 or 19X with the adjustable, high-quality Kydex IWB Holster by We The People Holsters, offering a perfect blend of comfort, flexibility, and reliability for secure carrying.
+4. [Adjustable Glock 19 IWB Kydex Holster](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=adjustable-glock-19-iwb-kydex-holster) - Discreetly conceal your Glock 19 or 19X with the adjustable, high-quality Kydex IWB Holster by We The People Holsters, offering a perfect blend of comfort, flexibility, and reliability for secure carrying.
 
-5. [Blade-Tech Classic OWB Holster for H&K VP9: Competition-Ready and Customizable](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unparalleled precision and competition-ready performance with the H&K VP9 OWB Holster from Blade-Tech, offering adjustable retention, high-strength Boltaron, and compatibility with IDPA & USPSA speed cut.
+5. [Blade-Tech Classic OWB Holster for H&K VP9: Competition-Ready and Customizable](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=blade-tech-classic-owb-holster-for-hk-vp9-competition-ready-and-customizable) - Experience unparalleled precision and competition-ready performance with the H&K VP9 OWB Holster from Blade-Tech, offering adjustable retention, high-strength Boltaron, and compatibility with IDPA & USPSA speed cut.
 
-6. [Slim and Discreet IWB Holster for Ruger LCP](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - With a sleek design and secure fit, the Blade-Tech Klipt IWB Holster for the Ruger LCP delivers unmatched comfort and retention for all-day IWB carry, suitable for everyday concealed carry.
+6. [Slim and Discreet IWB Holster for Ruger LCP](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=slim-and-discreet-iwb-holster-for-ruger-lcp) - With a sleek design and secure fit, the Blade-Tech Klipt IWB Holster for the Ruger LCP delivers unmatched comfort and retention for all-day IWB carry, suitable for everyday concealed carry.
 
-7. [IWB Holster for Ruger Max-9 / LCP II, Slim and Discreet Design for Everyday Carry](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Klipt IWB Holster for the Ruger Max-9 / LCP II is a slim, discreet, and high-performance holster designed for everyday carry, providing comfort, security, and easy access.
+7. [IWB Holster for Ruger Max-9 / LCP II, Slim and Discreet Design for Everyday Carry](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=iwb-holster-for-ruger-max-9-lcp-ii-slim-and-discreet-design-for-everyday-carry) - The Blade-Tech Klipt IWB Holster for the Ruger Max-9 / LCP II is a slim, discreet, and high-performance holster designed for everyday carry, providing comfort, security, and easy access.
 
-8. [Universal Mag Carrier Kydex Concealed Carry IWB Magazine Holster by We The People Holsters](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Universal Mag Carrier by We The People Holsters, a single stack, adjustable IWB magazine carrier for concealed carry in black kydex material.
+8. [Universal Mag Carrier Kydex Concealed Carry IWB Magazine Holster by We The People Holsters](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=universal-mag-carrier-kydex-concealed-carry-iwb-magazine-holster-by-we-the-people-holsters) - Universal Mag Carrier by We The People Holsters, a single stack, adjustable IWB magazine carrier for concealed carry in black kydex material.
 
-9. [Adjustable Right-Handed Glock 43/43X IWB Kydex Holster by We The People Holsters](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the perfect Glock 43/43X IWB Holster by We The People Holsters - Molon Labe, offering secure and comfortable concealed carry options, adjustable retention, ride, and cant, all hand-molded and assembled for exceptional durability.
+9. [Adjustable Right-Handed Glock 43/43X IWB Kydex Holster by We The People Holsters](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=adjustable-right-handed-glock-4343x-iwb-kydex-holster-by-we-the-people-holsters) - Discover the perfect Glock 43/43X IWB Holster by We The People Holsters - Molon Labe, offering secure and comfortable concealed carry options, adjustable retention, ride, and cant, all hand-molded and assembled for exceptional durability.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Slim and Comfortable IWB Holster for Sig Sauer P365/P365X](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Slim and Comfortable IWB Holster for Sig Sauer P365/P365X](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=slim-and-comfortable-iwb-holster-for-sig-sauer-p365p365x)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="blade-tech-klipt-in-the-waistband-sig-p365-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-klipt-in-the-waistband-sig-p365-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=blade-tech-klipt-in-the-waistband-sig-p365-holster-1"><img alt="blade-tech-klipt-in-the-waistband-sig-p365-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-klipt-in-the-waistband-sig-p365-holster-1/public"/></a></div>
 
 I recently purchased the Blade-Tech Klipt IWB Holster for my Sig P365, and have been quite impressed with its performance. The slim design makes it easy to conceal, even when wearing light clothing. One of the most significant features is the high sweat guard, which keeps my firearm off my body and prevents any discomfort from moisture or slide serrations.
 
@@ -50,9 +50,9 @@ The belt clip that comes with the holster is an innovative addition; it allows y
 
 Overall, this product exceeded all expectations; it is comfortable throughout the day as well as providing peace of mind knowing that my firearm is securely tucked away until needed. This holster has become a go-to in my EDC routine, and I highly recommend it to anyone looking for a reliable IWB option for their Sig P365 / P365X!
 
-### [IWB Kydex Holster for Smith & Wesson M&P Shield](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [IWB Kydex Holster for Smith & Wesson M&P Shield](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=iwb-kydex-holster-for-smith-wesson-mp-shield)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="we-the-people-holsters-constitution-right-hand-iwb-holster-compatible-with-smith-wesson-mp-shield-m2-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/we-the-people-holsters-constitution-right-hand-iwb-holster-compatible-with-smith-wesson-mp-shield-m2-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=we-the-people-holsters-constitution-right-hand-iwb-holster-compatible-with-smith-wesson-mp-shield-m2-1"><img alt="we-the-people-holsters-constitution-right-hand-iwb-holster-compatible-with-smith-wesson-mp-shield-m2-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/we-the-people-holsters-constitution-right-hand-iwb-holster-compatible-with-smith-wesson-mp-shield-m2-1/public"/></a></div>
 
 I recently purchased this Kydex holster for my concealed carry needs and have been using it daily. One of the standout features of this holster is its precise fit for my specific gun model, providing me with an audible click when I securely holster my gun, giving me peace of mind that it's held in place safely.
 
@@ -62,9 +62,9 @@ However, there are a few areas where I believe this product could improve furthe
 
 Overall this Kydex Holster from Odin offers good value for money considering its lifetime guarantee against defects along with other great features like being waterproof and offering a precise fit for your specific gun model.
 
-### [Slim and Discreet IWB Holster for Sig P320C and M18](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Slim and Discreet IWB Holster for Sig P320C and M18](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=slim-and-discreet-iwb-holster-for-sig-p320c-and-m18)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="klipt-iwb-sig-p320c-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-sig-p320c-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=klipt-iwb-sig-p320c-holster-right-handed-inside-the-waistband-klipt-blade-tech-1"><img alt="klipt-iwb-sig-p320c-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-sig-p320c-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
 
 I recently tried out the Blade-Tech Klipt IWB Holster for my Sig P320C / M18, and it has definitely become a favorite. The slim design is discreet, making it easy to carry every day without feeling too bulky or uncomfortable.
 
@@ -76,9 +76,9 @@ Comfort-wise, this holster excels with its smooth edges and full-length sweat sh
 
 My only minor complaint would be adjusting the cant can be tricky sometimes; an adjustable cant option would be great to have for added convenience. However, overall this is a fantastic carrying option that's well worth considering if you own a Sig P320C / M18 like myself! 👍
 
-### [Adjustable Glock 19 IWB Kydex Holster](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Adjustable Glock 19 IWB Kydex Holster](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=adjustable-glock-19-iwb-kydex-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glock-19-19x-iwb-right-handed-holster-by-we-the-people-holsters-green-ink-swirl-kydex-adjustable-sec-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-19-19x-iwb-right-handed-holster-by-we-the-people-holsters-green-ink-swirl-kydex-adjustable-sec-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=glock-19-19x-iwb-right-handed-holster-by-we-the-people-holsters-green-ink-swirl-kydex-adjustable-sec-1"><img alt="glock-19-19x-iwb-right-handed-holster-by-we-the-people-holsters-green-ink-swirl-kydex-adjustable-sec-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-19-19x-iwb-right-handed-holster-by-we-the-people-holsters-green-ink-swirl-kydex-adjustable-sec-1/public"/></a></div>
 
 After using this Glock 19 IWB holster for a while, I found it to be a reliable choice for concealed carry. The Kydex material is durable and maintains a thin profile, making it easy to conceal under my clothing. One of my favorite features is the adjustable retention, allowing me to personalize the tension according to my liking. Additionally, the ride and cant can be adjusted for maximum flexibility in carrying positions.
 
@@ -88,9 +88,9 @@ In terms of comfort, this Glock 19 IWB holster provides adequate support but cou
 
 Overall, this is a solid product with plenty of useful features such as adjustability and secure attachment methods that make it suitable for many individual needs and preferences when carrying concealed firearms daily - though there are still areas where refinement can be made regarding its fitness for long-term use while seated or driving long distances without compromising on comfort levels experienced by those who choose such usage patterns frequently throughout their day-to-day routines alike too!
 
-### [Blade-Tech Classic OWB Holster for H&K VP9: Competition-Ready and Customizable](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Blade-Tech Classic OWB Holster for H&K VP9: Competition-Ready and Customizable](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=blade-tech-classic-owb-holster-for-hk-vp9-competition-ready-and-customizable)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hk-vp9-owb-holster-right-handed-hk-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hk-vp9-owb-holster-right-handed-hk-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=hk-vp9-owb-holster-right-handed-hk-blade-tech-1"><img alt="hk-vp9-owb-holster-right-handed-hk-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hk-vp9-owb-holster-right-handed-hk-blade-tech-1/public"/></a></div>
 
 After using the Blade-Tech Classic OWB holster for my EDC pistol, I can confidently say that I am highly impressed with its quality and features. The materials used in its construction are high-strength Boltaron, making it durable and long-lasting. One of the standout features of this holster is its adjustable retention, allowing for a customized fit to your specific gun model. This is great for those who want a personalized experience when carrying their firearm.
 
@@ -98,9 +98,9 @@ Another great aspect of this holster is the positive locking trigger guard which
 
 In terms of comfort, the Blade-Tech Classic OWB holster does not disappoint as it can be worn comfortably throughout an entire day without issue. With a lifetime guarantee from Blade-Tech, investing in this product ensures reliability and longevity in securing your firearm while providing superior functionality in daily carry or competitive settings. Overall, I am very satisfied with my purchase and would recommend this product to anyone looking for a high-quality, reliable holster that offers both security and performance enhancements.
 
-### [Slim and Discreet IWB Holster for Ruger LCP](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Slim and Discreet IWB Holster for Ruger LCP](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=slim-and-discreet-iwb-holster-for-ruger-lcp)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="blade-tech-in-the-waist-band-holster-for-ruger-lcp-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-in-the-waist-band-holster-for-ruger-lcp-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=blade-tech-in-the-waist-band-holster-for-ruger-lcp-1"><img alt="blade-tech-in-the-waist-band-holster-for-ruger-lcp-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-in-the-waist-band-holster-for-ruger-lcp-1/public"/></a></div>
 
 After using the Blade-Tech Klipt IWB Holster for my Ruger LCP for a few weeks, I have to say it's become my go-to holster. The slim and discreet design makes it easy to carry every day, and the high sweat guard effectively keeps my firearm off my body, providing comfort throughout the day.
 
@@ -110,9 +110,9 @@ The smooth edges and full-length sweat guard provide all-day comfort even when w
 
 Overall, while there may be some room for improvement with regards to material durability, this product stands out for its ease of use and ability to keep your firearm securely in place without any fuss or hassle.
 
-### [IWB Holster for Ruger Max-9 / LCP II, Slim and Discreet Design for Everyday Carry](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [IWB Holster for Ruger Max-9 / LCP II, Slim and Discreet Design for Everyday Carry](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=iwb-holster-for-ruger-max-9-lcp-ii-slim-and-discreet-design-for-everyday-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="blade-tech-klipt-ruger-lcpii-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-klipt-ruger-lcpii-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=blade-tech-klipt-ruger-lcpii-holster-1"><img alt="blade-tech-klipt-ruger-lcpii-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blade-tech-klipt-ruger-lcpii-holster-1/public"/></a></div>
 
 The Klipt IWB holster for the Ruger Max-9/LCP II is a great option for everyday concealed carry. The slim and discreet design makes it comfortable to wear all day without adding extra bulk. One of my favorite features is the high sweat guard, which keeps my firearm away from my body and prevents any discomfort from moisture or slide serrations.
 
@@ -120,9 +120,9 @@ The 1. 5-inch belt clip makes attaching and removing the holster a breeze, and i
 
 One slight area for improvement could be a more comprehensive fit for various body types, but so far it has worked well on me. Overall, I highly recommend this holster to anyone looking for a comfortable and reliable concealed carry option with added safety features like smooth edges and full-length sweat guard protection against irritation during daily activities.
 
-### [Universal Mag Carrier Kydex Concealed Carry IWB Magazine Holster by We The People Holsters](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Universal Mag Carrier Kydex Concealed Carry IWB Magazine Holster by We The People Holsters](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=universal-mag-carrier-kydex-concealed-carry-iwb-magazine-holster-by-we-the-people-holsters)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="universal-mag-carrier-kydex-concealed-carry-iwb-magazine-carrier-holster-by-we-the-people-holsters-b-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/universal-mag-carrier-kydex-concealed-carry-iwb-magazine-carrier-holster-by-we-the-people-holsters-b-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=universal-mag-carrier-kydex-concealed-carry-iwb-magazine-carrier-holster-by-we-the-people-holsters-b-1"><img alt="universal-mag-carrier-kydex-concealed-carry-iwb-magazine-carrier-holster-by-we-the-people-holsters-b-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/universal-mag-carrier-kydex-concealed-carry-iwb-magazine-carrier-holster-by-we-the-people-holsters-b-1/public"/></a></div>
 
 When I first received my Universal Mag Carrier Kydex Concealed Carry/Holster by We The People Holsters, I was immediately impressed with its quality and design. This carrier is made from durable Kydex material that ensures a secure grip on my magazines, while still allowing for easy access.
 
@@ -132,9 +132,9 @@ This mag carrier has worked well for both single-stack and double-stack mags, as
 
 In conclusion, this mag carrier has become an essential part of my everyday carry setup offering excellent concealment and reliability while providing fast accessibility when needed.
 
-### [Adjustable Right-Handed Glock 43/43X IWB Kydex Holster by We The People Holsters](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Adjustable Right-Handed Glock 43/43X IWB Kydex Holster by We The People Holsters](https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=adjustable-right-handed-glock-4343x-iwb-kydex-holster-by-we-the-people-holsters)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glock-43-43x-iwb-right-handed-holster-by-we-the-people-holsters-molon-labe-kydex-adjustable-secure-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-43-43x-iwb-right-handed-holster-by-we-the-people-holsters-molon-labe-kydex-adjustable-secure-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=glock-43-43x-iwb-right-handed-holster-by-we-the-people-holsters-molon-labe-kydex-adjustable-secure-1"><img alt="glock-43-43x-iwb-right-handed-holster-by-we-the-people-holsters-molon-labe-kydex-adjustable-secure-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-43-43x-iwb-right-handed-holster-by-we-the-people-holsters-molon-labe-kydex-adjustable-secure-1/public"/></a></div>
 
 Having tested the Glock 43/43X IWB Holster by We The People Holsters, I can confidently say that it's one of the best holsters on the market. This holster is sleek and made from high-quality Kydex material, providing excellent security for my gun while maintaining a slim profile. The adjustable retention feature also allows me to customize the tension according to my preferences for extra safety.
 
@@ -156,7 +156,7 @@ Kryptek holsters are designed to carry your firearms securely and comfortably. H
 
 - Concealment: If you're planning on carrying concealed, look for holsters designed for concealment without compromising safety or accessibility.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Kryptek+Holsters-2/public" alt="Kryptek Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=kryptek-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Kryptek+Holsters-2/public" alt="Kryptek Holsters-2"></a></div>
 
 ### Types of Kryptek Holsters
 
@@ -176,7 +176,7 @@ Choose a holster made from high-quality materials like leather, Kydex, or nylon,
 
 A comfortable holster is crucial for prolonged use. Look for features such as adjustable retention, interchangeable belt loops, and contoured designs that fit your body shape. Personalized customization options can help make the holster feel more tailored to your needs.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Kryptek+Holsters-3/public" alt="Kryptek Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=kryptek-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Kryptek+Holsters-3/public" alt="Kryptek Holsters-3"></a></div>
 
 ### Safety Features
 
@@ -192,7 +192,7 @@ When shopping for a Kryptek holster, consider your intended use, weapon, body ty
 
 By following these guidelines and considering the features detailed above, you're well on your way to selecting a high-quality Kryptek holster that will serve you well for years to come.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Kryptek+Holsters-4/public" alt="Kryptek Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=kryptek-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Kryptek+Holsters-4/public" alt="Kryptek Holsters-4"></a></div>
 
 ## FAQ
 
@@ -204,7 +204,7 @@ A Kryptek holster is a specially designed, high-quality accessory that securely 
 
 Kryptek offers a variety of holsters, such as IWB (Inside the Waistband), OWB (Outside the Waistband), and Ankle holsters. Each type caters to different needs and preferences depending on how you carry your firearm.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Kryptek+Holsters-5/public" alt="Kryptek Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=kryptek-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Kryptek+Holsters-5/public" alt="Kryptek Holsters-5"></a></div>
 
 ### How comfortable are Kryptek holsters?
 
@@ -218,7 +218,7 @@ Maintaining a Kryptek holster is fairly easy. Regularly clean your holster with 
 
 Kryptek holsters are known for their high quality and durability. They are made with premium materials, offering excellent craftsmanship and design. These holsters are built to withstand everyday use and provide reliable performance for years to come.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Kryptek+Holsters-6/public" alt="Kryptek Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/kryptek-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=kryptek-holsters&utm_term=kryptek-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Kryptek+Holsters-6/public" alt="Kryptek Holsters-6"></a></div>
 
 ### Can I carry concealed with a Kryptek holster?
 

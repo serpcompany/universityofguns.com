@@ -16,51 +16,51 @@ Gun safes are an essential investment for gun owners, helping to keep your firea
 
 ## The Top 19 Best Hollon Gun Safes
 
-1. [Crescent Shield Series 12-Gun Fire Resistant Gun Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the ultimate protection with the Hollon CS-12C Crescent Shield Series Gun Safe, boasting 75-minute fire resistance, 12-gauge steel, and ultra-strong 1.5-inch chrome steel bolts for unmatched privacy and security.
+1. [Crescent Shield Series 12-Gun Fire Resistant Gun Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=crescent-shield-series-12-gun-fire-resistant-gun-safe) - Discover the ultimate protection with the Hollon CS-12C Crescent Shield Series Gun Safe, boasting 75-minute fire resistance, 12-gauge steel, and ultra-strong 1.5-inch chrome steel bolts for unmatched privacy and security.
 
-2. [White Republic Gun Safe - Sturdy and Spacious Storage](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Introducing the White RG-42 Republic Gun Safe – a top-of-the-line, 300% thicker steel storage solution for firearms, made in America with impeccable build quality and visually appealing design. Discover why it's a game-changer in the market.
+2. [White Republic Gun Safe - Sturdy and Spacious Storage](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=white-republic-gun-safe-sturdy-and-spacious-storage) - Introducing the White RG-42 Republic Gun Safe – a top-of-the-line, 300% thicker steel storage solution for firearms, made in America with impeccable build quality and visually appealing design. Discover why it's a game-changer in the market.
 
-3. [Black Hawk 90-Minute Fire-Rated Gun Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Black Hawk Gun Safe by Hollon, featuring a 10 gauge steel body and 5-inch thick door, offers exceptional protection with ample storage, a hammered gray material finish, and a high rating of 4.9 stars based on 74 reviews.
+3. [Black Hawk 90-Minute Fire-Rated Gun Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=black-hawk-90-minute-fire-rated-gun-safe) - The Black Hawk Gun Safe by Hollon, featuring a 10 gauge steel body and 5-inch thick door, offers exceptional protection with ample storage, a hammered gray material finish, and a high rating of 4.9 stars based on 74 reviews.
 
-4. [Hunter Series 9.04 cubic feet 45-minute fire-rated, 12-gauge steel gun safe with 16-gun capacity and electronic lock](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the Hollon HGS-11E Hunter Series Gun Safe - a sturdy, visually appealing storage solution with 12 gauge steel walls, 45-minute fire rating, and up to twelve 1.25-inch locking bolts for optimal protection.
+4. [Hunter Series 9.04 cubic feet 45-minute fire-rated, 12-gauge steel gun safe with 16-gun capacity and electronic lock](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hunter-series-904-cubic-feet-45-minute-fire-rated-12-gauge-steel-gun-safe-with-16-gun-capacity-and-electronic-lock) - Discover the Hollon HGS-11E Hunter Series Gun Safe - a sturdy, visually appealing storage solution with 12 gauge steel walls, 45-minute fire rating, and up to twelve 1.25-inch locking bolts for optimal protection.
 
-5. [Hollon PM-1014E Gun Safe with Fire and Burglary Protection](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the Hollon PM-1014E, a top-rated fire and burglary-resistant safe with a special burglary resistant handle, glass re-locker, hard plate, and a bolster of high-quality materials that provide robust protection for your valuables.
+5. [Hollon PM-1014E Gun Safe with Fire and Burglary Protection](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-pm-1014e-gun-safe-with-fire-and-burglary-protection) - Discover the Hollon PM-1014E, a top-rated fire and burglary-resistant safe with a special burglary resistant handle, glass re-locker, hard plate, and a bolster of high-quality materials that provide robust protection for your valuables.
 
-6. [Black Hawk 90-Min Durable Gun Safe with 16 Rifle Capacity](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Black Hawk Gun Safe by Hollon delivers exceptional protection and ample storage, featuring a strong, 10-gauge steel exterior and visually striking hammered gray material, perfect for home security enthusiasts.
+6. [Black Hawk 90-Min Durable Gun Safe with 16 Rifle Capacity](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=black-hawk-90-min-durable-gun-safe-with-16-rifle-capacity) - The Black Hawk Gun Safe by Hollon delivers exceptional protection and ample storage, featuring a strong, 10-gauge steel exterior and visually striking hammered gray material, perfect for home security enthusiasts.
 
-7. [Durable B-Rated Cash Safe by Hollon](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Hollon B2015C B Rated Cash Safe combines sturdy construction with top-notch security features like drill-resistant hard plate, spring-loaded re-locker, and adjustable, removable shelving for optimal organization and protection.
+7. [Durable B-Rated Cash Safe by Hollon](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=durable-b-rated-cash-safe-by-hollon) - The Hollon B2015C B Rated Cash Safe combines sturdy construction with top-notch security features like drill-resistant hard plate, spring-loaded re-locker, and adjustable, removable shelving for optimal organization and protection.
 
-8. [Hunter Series 12 Gauge Gun Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the Hollon HGS-11E Gun Safe with 12-gauge steel, 45-minute fire rating, and up to twelve 1.25-inch locking bolts for ultimate security and protection, perfect for gun storage in any home.
+8. [Hunter Series 12 Gauge Gun Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hunter-series-12-gauge-gun-safe) - Discover the Hollon HGS-11E Gun Safe with 12-gauge steel, 45-minute fire rating, and up to twelve 1.25-inch locking bolts for ultimate security and protection, perfect for gun storage in any home.
 
-9. [Sturdy and Durable B-Rated Cash Safe by Hollon](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Unbeatable security and craftsmanship, Hollon's B2015E B-Rated Cash Safe offers flawless protection for your cash assets, equipped with a robust steel structure, an SNG electronic lock, and a range of advanced security features.
+9. [Sturdy and Durable B-Rated Cash Safe by Hollon](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=sturdy-and-durable-b-rated-cash-safe-by-hollon) - Unbeatable security and craftsmanship, Hollon's B2015E B-Rated Cash Safe offers flawless protection for your cash assets, equipped with a robust steel structure, an SNG electronic lock, and a range of advanced security features.
 
-10. [B-Rated Secure Cash Safe by Hollon](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Hollon B1414E B-Rated Cash Safe, with its solid steel construction, 1/2" thick door, and 3 massive live locking bolts, offers unbeatable protection for your valuables, while its electronic lock and mounting holes make it easy to use and set up.
+10. [B-Rated Secure Cash Safe by Hollon](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=b-rated-secure-cash-safe-by-hollon) - The Hollon B1414E B-Rated Cash Safe, with its solid steel construction, 1/2" thick door, and 3 massive live locking bolts, offers unbeatable protection for your valuables, while its electronic lock and mounting holes make it easy to use and set up.
 
-11. [Hollon Hunter Series 12-Gauge Gun Safe with S&G Electronic Lock](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the confidence and peace of mind with the Hollon HGS-11C Hunter Series Gun Safe - featuring a 12 gauge steel construction, drill-resistant hardplate, and a deluxe interior, providing excellent protection and storage for your firearms.
+11. [Hollon Hunter Series 12-Gauge Gun Safe with S&G Electronic Lock](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-hunter-series-12-gauge-gun-safe-with-sg-electronic-lock) - Experience the confidence and peace of mind with the Hollon HGS-11C Hunter Series Gun Safe - featuring a 12 gauge steel construction, drill-resistant hardplate, and a deluxe interior, providing excellent protection and storage for your firearms.
 
-12. [Hollon White RG-42 Republic Gun Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Hollon White RG-42 Republic Gun Safe offers exceptional protection with 300% thicker steel than competitors, providing a secure and visually appealing storage solution for your firearms.
+12. [Hollon White RG-42 Republic Gun Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-white-rg-42-republic-gun-safe) - The Hollon White RG-42 Republic Gun Safe offers exceptional protection with 300% thicker steel than competitors, providing a secure and visually appealing storage solution for your firearms.
 
-13. [Hunter Series 16-Gun Safe with S&G Electronic Lock and Hammock](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Hollon HGS-11C Hunter Series Gun Safe is a durable, secure, and visually appealing solution for storing and protecting your firearms, offering ample storage, a Type 1 EMP Resistant electronic lock, and a fire-resistant rating of up to 45 minutes.
+13. [Hunter Series 16-Gun Safe with S&G Electronic Lock and Hammock](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hunter-series-16-gun-safe-with-sg-electronic-lock-and-hammock) - The Hollon HGS-11C Hunter Series Gun Safe is a durable, secure, and visually appealing solution for storing and protecting your firearms, offering ample storage, a Type 1 EMP Resistant electronic lock, and a fire-resistant rating of up to 45 minutes.
 
-14. [Hollon 2 Hour Fireproof Home Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience ultimate peace of mind with the Hollon HS-530WD 2 Hour Home Safe, an expertly crafted fireproof sanctuary for your valuables, boasting a robust 2 hour fire rating for optimal protection and unmatched ease of use.
+14. [Hollon 2 Hour Fireproof Home Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-2-hour-fireproof-home-safe) - Experience ultimate peace of mind with the Hollon HS-530WD 2 Hour Home Safe, an expertly crafted fireproof sanctuary for your valuables, boasting a robust 2 hour fire rating for optimal protection and unmatched ease of use.
 
-15. [High-Capacity Home Safe with 1850-Degree Fire Protection and Electronic Lock](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Hollon 2-Hour Home Safe provides 100% more fire protection than standard home safes and features a 30-foot impact rating, making it a secure and long-lasting choice for safeguarding your precious belongings.
+15. [High-Capacity Home Safe with 1850-Degree Fire Protection and Electronic Lock](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=high-capacity-home-safe-with-1850-degree-fire-protection-and-electronic-lock) - The Hollon 2-Hour Home Safe provides 100% more fire protection than standard home safes and features a 30-foot impact rating, making it a secure and long-lasting choice for safeguarding your precious belongings.
 
-16. [Two-Hour Fire-Rated Home Safe by Hollon](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Hollon HS-360D 2 Hour Home Safe provides excellent fire protection, high-quality construction, and ample storage for your important documents and valuables, making it a top choice for securing your personal belongings.
+16. [Two-Hour Fire-Rated Home Safe by Hollon](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=two-hour-fire-rated-home-safe-by-hollon) - The Hollon HS-360D 2 Hour Home Safe provides excellent fire protection, high-quality construction, and ample storage for your important documents and valuables, making it a top choice for securing your personal belongings.
 
-17. [Hollon 2 Hour Fire-Rated Home Safe for Secure Storage](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Hollon HS-310D 2 Hour Home Safe provides excellent protection for your important documents and valuables, with a sturdy construction, 2-hour fire rating, and reliable dial lock, making it a reliable and easy-to-use option for home security.
+17. [Hollon 2 Hour Fire-Rated Home Safe for Secure Storage](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-2-hour-fire-rated-home-safe-for-secure-storage) - The Hollon HS-310D 2 Hour Home Safe provides excellent protection for your important documents and valuables, with a sturdy construction, 2-hour fire rating, and reliable dial lock, making it a reliable and easy-to-use option for home security.
 
-18. [Hollon American-Made 2-Hour Fire-Resistant Gun Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Hollon RG-42C Republic Gun Safe boasts unparalleled protection and craftsmanship with 300% thicker steel, offering unmatched security for your firearms.
+18. [Hollon American-Made 2-Hour Fire-Resistant Gun Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-american-made-2-hour-fire-resistant-gun-safe) - The Hollon RG-42C Republic Gun Safe boasts unparalleled protection and craftsmanship with 300% thicker steel, offering unmatched security for your firearms.
 
-19. [2-hour Fire and Water Resistant Home Safe with Dual Lock System](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Introducing the Hollon HS-610D Home Safe, offering 2-hour fire and water resistance along with smoke protection and dual lock control, designed with ample storage, superior build quality, and user-friendly features for optimal security and organization.
+19. [2-hour Fire and Water Resistant Home Safe with Dual Lock System](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=2-hour-fire-and-water-resistant-home-safe-with-dual-lock-system) - Introducing the Hollon HS-610D Home Safe, offering 2-hour fire and water resistance along with smoke protection and dual lock control, designed with ample storage, superior build quality, and user-friendly features for optimal security and organization.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Crescent Shield Series 12-Gun Fire Resistant Gun Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Crescent Shield Series 12-Gun Fire Resistant Gun Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=crescent-shield-series-12-gun-fire-resistant-gun-safe)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hollon-cs-12c-crescent-shield-series-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-cs-12c-crescent-shield-series-gun-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-cs-12c-crescent-shield-series-gun-safe-1"><img alt="hollon-cs-12c-crescent-shield-series-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-cs-12c-crescent-shield-series-gun-safe-1/public"/></a></div>
 
 I've been using the Hollon CS-12C Crescent Shield Series Gun Safe for a few months now, and I must say, it's been a game-changer. As someone who values both security and style, this gun safe has delivered on both fronts. The 12-gauge steel and 1.5-inch chrome, steel bolts make me feel confident that my belongings are secure, while the deluxe interior with its deep grey foam-backed liner adds a touch of class.
 
@@ -68,9 +68,9 @@ The fire resistance feature is truly impressive – it can withstand fires for u
 
 However, there is a minor issue with the lock mechanism, which can sometimes be a bit stubborn. Despite this, the pros easily outweigh the cons, making the Hollon CS-12C Crescent Shield Series Gun Safe a worthwhile investment for anyone in need of secure gun storage.
 
-### [White Republic Gun Safe - Sturdy and Spacious Storage](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [White Republic Gun Safe - Sturdy and Spacious Storage](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=white-republic-gun-safe-sturdy-and-spacious-storage)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hollon-white-rg-42-republic-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-white-rg-42-republic-gun-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-white-rg-42-republic-gun-safe-1"><img alt="hollon-white-rg-42-republic-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-white-rg-42-republic-gun-safe-1/public"/></a></div>
 
 As a gun enthusiast, I recently got the chance to try out the Hollon White RG-42 Republic Gun Safe and I'm happy to say that it's a real game-changer. This safe is not only visually appealing with its classic look, but also incredibly secure and spacious.
 
@@ -80,9 +80,9 @@ However, one downside is the lack of mounting hardware included in the package. 
 
 All in all, I highly recommend the Hollon White RG-42 Republic Gun Safe. It provides excellent protection for your firearms and valuables and it looks great in my den.
 
-### [Black Hawk 90-Minute Fire-Rated Gun Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Black Hawk 90-Minute Fire-Rated Gun Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=black-hawk-90-minute-fire-rated-gun-safe)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hollon-90-min-bhs-16-black-hawk-gun-safe-series-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-90-min-bhs-16-black-hawk-gun-safe-series-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-90-min-bhs-16-black-hawk-gun-safe-series-1"><img alt="hollon-90-min-bhs-16-black-hawk-gun-safe-series-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-90-min-bhs-16-black-hawk-gun-safe-series-1/public"/></a></div>
 
 Once upon a time, I found myself in the market for a high-quality gun safe. After plenty of research and contemplation, I landed on the Hollon Black Hawk Gun Safe Series. I've been using it for about six months now, and let me tell you, it's been a game-changer.
 
@@ -94,9 +94,9 @@ However, there are two minor drawbacks I've noticed. Firstly, the safe can be a 
 
 All things considered, the Hollon Black Hawk Gun Safe Series is a fantastic investment. Its robust construction, ample storage space, and top-notch security features make it a must-have for anyone with a valuable collection of firearms or other items that need protection.
 
-### [Hunter Series 9.04 cubic feet 45-minute fire-rated, 12-gauge steel gun safe with 16-gun capacity and electronic lock](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Hunter Series 9.04 cubic feet 45-minute fire-rated, 12-gauge steel gun safe with 16-gun capacity and electronic lock](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hunter-series-904-cubic-feet-45-minute-fire-rated-12-gauge-steel-gun-safe-with-16-gun-capacity-and-electronic-lock)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hollon-hgs-11e-hunter-series-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-hgs-11e-hunter-series-gun-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-hgs-11e-hunter-series-gun-safe-1"><img alt="hollon-hgs-11e-hunter-series-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-hgs-11e-hunter-series-gun-safe-1/public"/></a></div>
 
 I recently got the chance to test out the Hollon Hunter Series Gun Safe, and I have to say, it's a game-changer. I've been on the hunt for a safe and secure way to store my firearms, and this one has surpassed all my expectations.
 
@@ -108,9 +108,9 @@ However, one minor drawback is that the exterior width is quite limited at just 
 
 All in all, I'm extremely satisfied with the Hollon HGS-11E Gun Safe. Its combination of strength, security, and stylish appearance makes it a worthy addition to any home. If you're in the market for a new gun safe, I highly recommend giving this one a try.
 
-### [Hollon PM-1014E Gun Safe with Fire and Burglary Protection](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Hollon PM-1014E Gun Safe with Fire and Burglary Protection](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-pm-1014e-gun-safe-with-fire-and-burglary-protection)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hollon-pm-1014e-tl-15-rated-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-pm-1014e-tl-15-rated-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-pm-1014e-tl-15-rated-safe-1"><img alt="hollon-pm-1014e-tl-15-rated-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-pm-1014e-tl-15-rated-safe-1/public"/></a></div>
 
 When it came to finding a safe for my apartment, I knew I needed something that was both secure and compact. That's why I decided to give the Hollon PM-1014E a try. Let me tell you, this little gem is like Fort Knox in a box.
 
@@ -124,9 +124,9 @@ But it's not just about security – the Hollon PM-1014E is also incredibly well
 
 Overall, my experience with the Hollon PM-1014E has been nothing short of exceptional. In the words of many satisfied customers, "This is the real deal" and "definitely a good choice for valuables. " So if you're in the market for a compact yet highly secure safe, I highly recommend giving this one a shot.
 
-### [Black Hawk 90-Min Durable Gun Safe with 16 Rifle Capacity](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Black Hawk 90-Min Durable Gun Safe with 16 Rifle Capacity](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=black-hawk-90-min-durable-gun-safe-with-16-rifle-capacity)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hollon-90-min-bhs-22-black-hawk-gun-safe-series-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-90-min-bhs-22-black-hawk-gun-safe-series-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-90-min-bhs-22-black-hawk-gun-safe-series-1"><img alt="hollon-90-min-bhs-22-black-hawk-gun-safe-series-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-90-min-bhs-22-black-hawk-gun-safe-series-1/public"/></a></div>
 
 I recently bought the Hollon Black Hawk Gun Safe to protect my beloved firearms and other valuable possessions. After spending weeks researching different options on the market, I finally decided on this one.
 
@@ -140,9 +140,9 @@ However, there is one minor drawback to this safe - the lack of a clear and conc
 
 All in all, I am extremely satisfied with my purchase of the Hollon Black Hawk Gun Safe. Its solid construction, spacious interior, and ease of use make it an excellent choice for anyone looking to secure their valuable possessions.
 
-### [Durable B-Rated Cash Safe by Hollon](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Durable B-Rated Cash Safe by Hollon](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=durable-b-rated-cash-safe-by-hollon)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hollon-b2015c-b-rated-cash-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-b2015c-b-rated-cash-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-b2015c-b-rated-cash-safe-1"><img alt="hollon-b2015c-b-rated-cash-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-b2015c-b-rated-cash-safe-1/public"/></a></div>
 
 I recently purchased the Hollon B2015C B Rated Cash Safe, and I've been thoroughly impressed with its performance. This solid steel safe is perfect for keeping your cash secure, especially in high-traffic environments. As someone who works tips, I appreciate the added protection it provides.
 
@@ -152,9 +152,9 @@ However, there are a few areas where the safe could be improved. For instance, t
 
 Despite these minor drawbacks, I have no hesitation in recommending the Hollon B2015C B Rated Cash Safe. Its durability, robust security features, and overall ease of use make it an excellent choice for anyone in need of a reliable cash storage solution.
 
-### [Hunter Series 12 Gauge Gun Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Hunter Series 12 Gauge Gun Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hunter-series-12-gauge-gun-safe)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hollon-hgs-16e-hunter-series-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-hgs-16e-hunter-series-gun-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-hgs-16e-hunter-series-gun-safe-1"><img alt="hollon-hgs-16e-hunter-series-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-hgs-16e-hunter-series-gun-safe-1/public"/></a></div>
 
 As a passionate hunter, I've always been on the lookout for the perfect gun safe. When I heard about Hollon's Hunter Series gun safe, I was skeptical, given the high-quality safes I've used in the past. However, I couldn't resist giving it a shot. Boy, am I glad I did!
 
@@ -168,9 +168,9 @@ However, there's room for improvement. While the size is just right for smaller 
 
 Overall, I am extremely satisfied with Hollon's Hunter Series gun safe. It offers the perfect combination of security, space, and style. If you're in the market for a reliable and high-quality gun safe, I highly recommend giving this one a shot.
 
-### [Sturdy and Durable B-Rated Cash Safe by Hollon](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Sturdy and Durable B-Rated Cash Safe by Hollon](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=sturdy-and-durable-b-rated-cash-safe-by-hollon)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hollon-b2015e-b-rated-cash-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-b2015e-b-rated-cash-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-b2015e-b-rated-cash-safe-1"><img alt="hollon-b2015e-b-rated-cash-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-b2015e-b-rated-cash-safe-1/public"/></a></div>
 
 This B Rated Cash Safe by Hollon has been a lifesaver when it comes to securing my valuables. I was initially drawn to its solid steel construction and Gray Material design, which give it a modern look while also ensuring strong protection.
 
@@ -186,9 +186,9 @@ However, I do wish the installation process was easier. The shelf didn't fit per
 
 Overall, I am very pleased with my purchase. The Hollon B-2015E B Rated Cash Safe has provided excellent protection for my valuables and is definitely worth the investment.
 
-### [B-Rated Secure Cash Safe by Hollon](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [B-Rated Secure Cash Safe by Hollon](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=b-rated-secure-cash-safe-by-hollon)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hollon-b1414e-b-rated-cash-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-b1414e-b-rated-cash-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-b1414e-b-rated-cash-safe-1"><img alt="hollon-b1414e-b-rated-cash-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-b1414e-b-rated-cash-safe-1/public"/></a></div>
 
 I recently purchased a Hollon B1414E B Rated Cash Safe to store my valuables at home. . I was amazed by the solid construction and the use of high-grade steel for the door, which is 3-inches thick with chrome-plated steel locking bolts. .
 
@@ -196,9 +196,9 @@ The locking system is incredibly secure, and it features a drill-resistant hard 
 
 It even comes with mounting holes to bolt the safe to the floor, ensuring maximum security. . Overall, this is an excellent cash safe that provides great protection for my valuables at a competitive price. .
 
-### [Hollon Hunter Series 12-Gauge Gun Safe with S&G Electronic Lock](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Hollon Hunter Series 12-Gauge Gun Safe with S&G Electronic Lock](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-hunter-series-12-gauge-gun-safe-with-sg-electronic-lock)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hollon-hgs-16c-hunter-series-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-hgs-16c-hunter-series-gun-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-hgs-16c-hunter-series-gun-safe-1"><img alt="hollon-hgs-16c-hunter-series-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-hgs-16c-hunter-series-gun-safe-1/public"/></a></div>
 
 When I first encountered the Hollon Hunter Series Gun Safe, I was instantly intrigued by its sturdy exterior and the ample storage space within. The 12-gauge steel structure provides a robust framework, ensuring your firearms are protected against both fire and theft. I was pleasantly surprised by the effective drill-resistant hardplate, which adds an extra layer of security.
 
@@ -206,9 +206,9 @@ One of my favorite features is the S&G UL Type 1 Electronic Lock. It's incredibl
 
 That being said, I've noticed that the capacity of this gun safe might be a bit limited. If you have a sizable collection, you might need to consider other options or invest in multiple units. All in all, the Hollon HGS-11C Gun Safe is a reliable choice for anyone looking to secure their firearms at home or on the go.
 
-### [Hollon White RG-42 Republic Gun Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Hollon White RG-42 Republic Gun Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-white-rg-42-republic-gun-safe)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hollon-rg-39c-white-republic-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-rg-39c-white-republic-gun-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-rg-39c-white-republic-gun-safe-1"><img alt="hollon-rg-39c-white-republic-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-rg-39c-white-republic-gun-safe-1/public"/></a></div>
 
 I recently got my hands on Hollon's White RG-42 Republic Gun Safe, and I must say, this American-made heavy-duty safe has completely transformed my gun storage game. It's not just the 300% thicker steel that gives me the confidence to keep my firearms inside, but also the fire rating of 2 hours at 1400F. It's basically a compact Sherman tank in my den!
 
@@ -216,9 +216,9 @@ The interior is as impressive as its exterior, with adjustable racking and pocke
 
 However, one minor inconvenience is the lack of mounting hardware. But to be honest, this is a small price to pay for such a high-quality and secure safe. Overall, the Hollon White RG-42 Republic Gun Safe has surpassed my expectations, offering great protection, spacious storage, and an aesthetically pleasing look. It's definitely a worthwhile investment for any serious gun owner.
 
-### [Hunter Series 16-Gun Safe with S&G Electronic Lock and Hammock](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Hunter Series 16-Gun Safe with S&G Electronic Lock and Hammock](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hunter-series-16-gun-safe-with-sg-electronic-lock-and-hammock)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hollon-hgs-11c-hunter-series-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-hgs-11c-hunter-series-gun-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-hgs-11c-hunter-series-gun-safe-1"><img alt="hollon-hgs-11c-hunter-series-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-hgs-11c-hunter-series-gun-safe-1/public"/></a></div>
 
 You know when you're a collector or an avid hunter, and you have prized possessions that require a safe haven? That's where the Hollon HGS-11C Hunter Series Gun Safe comes in. This sturdy, sleek gun safe has left me in awe with its excellent fire protection, up to 45 minutes, and robust 12 gauge steel body.
 
@@ -230,9 +230,9 @@ Now, I know some folks might find the price a bit steep, but remember, investing
 
 In conclusion, I'll say this: If you're looking for a gun safe that perfectly balances security, design, and usability, the Hollon HGS-11C Hunter Series Gun Safe won't disappoint.
 
-### [Hollon 2 Hour Fireproof Home Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Hollon 2 Hour Fireproof Home Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-2-hour-fireproof-home-safe)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hollon-hs-530wd-2-hour-home-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-hs-530wd-2-hour-home-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-hs-530wd-2-hour-home-safe-1"><img alt="hollon-hs-530wd-2-hour-home-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-hs-530wd-2-hour-home-safe-1/public"/></a></div>
 
 The Hollon HS-530WD is my go-to home safe for storing important documents, jewelry, and other valuable items. I love its 2 Hour fire rating, making it perfect for those high-risk areas prone to fires. Not only does it provide excellent protection in case of fires, but it's also highly sturdy and well-made, giving me peace of mind knowing my belongings are secure.
 
@@ -242,9 +242,9 @@ However, it's important to note that the safe does come with a few cons. The del
 
 Overall, I would highly recommend the Hollon HS-530WD for anyone looking for a reliable and sturdy home safe that provides ample storage and maximum protection against fire, theft, and other potential hazards.
 
-### [High-Capacity Home Safe with 1850-Degree Fire Protection and Electronic Lock](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [High-Capacity Home Safe with 1850-Degree Fire Protection and Electronic Lock](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=high-capacity-home-safe-with-1850-degree-fire-protection-and-electronic-lock)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hollon-hs-310e-2-hour-home-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-hs-310e-2-hour-home-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-hs-310e-2-hour-home-safe-1"><img alt="hollon-hs-310e-2-hour-home-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-hs-310e-2-hour-home-safe-1/public"/></a></div>
 
 I recently purchased the Hollon HS-310E 2 Hour Home Safe and I have been nothing but satisfied with its performance. This safe not only looks sleek but also provides an exceptional level of fire and burglary protection, which has given me immense peace of mind.
 
@@ -258,9 +258,9 @@ However, there are a few minor drawbacks worth mentioning. Firstly, the safe is 
 
 Despite these minor issues, I have no hesitation in recommending the Hollon HS-310E 2 Hour Home Safe to anyone seeking a reliable, well-built safe for their home or office. Its combination of advanced security features, compact design, and exceptional fire protection make it a truly standout product in the market today.
 
-### [Two-Hour Fire-Rated Home Safe by Hollon](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Two-Hour Fire-Rated Home Safe by Hollon](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=two-hour-fire-rated-home-safe-by-hollon)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hollon-hs-360d-2-hour-home-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-hs-360d-2-hour-home-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-hs-360d-2-hour-home-safe-1"><img alt="hollon-hs-360d-2-hour-home-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-hs-360d-2-hour-home-safe-1/public"/></a></div>
 
 I recently got the chance to try out the Hollon Home Safe HS-360D, and I must say, I'm quite impressed with it. The safe's sturdy built and seamless body construction make me feel confident that my valuables are well-protected. It's not just about aesthetics though; the Hollon safe can actually take a beating. It effortlessly passed a 30-foot drop test, which is a testament to its durability.
 
@@ -272,9 +272,9 @@ However, there are some things that could be better. The door has some play, whi
 
 Despite these minor concerns, the Hollon Home Safe HS-360D is a reliable, well-built safe that delivers on its promise of protection. Its ease of use and sturdiness make it a great choice for anyone in need of a safe place to store their valuable items.
 
-### [Hollon 2 Hour Fire-Rated Home Safe for Secure Storage](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Hollon 2 Hour Fire-Rated Home Safe for Secure Storage](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-2-hour-fire-rated-home-safe-for-secure-storage)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hollon-hs-310d-2-hour-home-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-hs-310d-2-hour-home-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-hs-310d-2-hour-home-safe-1"><img alt="hollon-hs-310d-2-hour-home-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-hs-310d-2-hour-home-safe-1/public"/></a></div>
 
 I remember the day I finally invested in a Hollon HS-310D Home Safe. I had been searching for a safe that could provide me with a secure, reliable, and easy-to-use solution to store all my important documents, precious jewelry, and keepsakes. This safe has completely surpassed my expectations, and I couldn't be happier with my purchase.
 
@@ -290,9 +290,9 @@ During my time using the Hollon Home Safe, I was incredibly impressed with its q
 
 In conclusion, the Hollon HS-310D Home Safe is a game-changer in the world of home security. Its incredible fire protection, robust construction, and reliable security features make it an essential addition to any household that values the safety of their belongings. I wholeheartedly recommend this safe to anyone seeking a reliable, high-quality solution for their storage needs.
 
-### [Hollon American-Made 2-Hour Fire-Resistant Gun Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Hollon American-Made 2-Hour Fire-Resistant Gun Safe](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-american-made-2-hour-fire-resistant-gun-safe)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hollon-rg-42c-republic-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-rg-42c-republic-gun-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-rg-42c-republic-gun-safe-1"><img alt="hollon-rg-42c-republic-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-rg-42c-republic-gun-safe-1/public"/></a></div>
 
 I recently got the chance to try out the Hollon RG-42C Republic Gun Safe, and I must say, it's been a game-changer for my collection. This American-made beauty stands out from the rest with its 300% thicker steel compared to other major brands. It's like storing my guns in a miniature fortress!
 
@@ -300,9 +300,9 @@ One feature that really impressed me was its 2-hour fire rating. Living in an ar
 
 However, the one thing that could be improved is the lack of mounting hardware. While this was a minor inconvenience, the quality of this safe makes up for it. If you're serious about securing your firearms and valuables, look no further! This is definitely worth the investment.
 
-### [2-hour Fire and Water Resistant Home Safe with Dual Lock System](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [2-hour Fire and Water Resistant Home Safe with Dual Lock System](https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=2-hour-fire-and-water-resistant-home-safe-with-dual-lock-system)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hollon-hs-610d-2-hour-home-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-hs-610d-2-hour-home-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-hs-610d-2-hour-home-safe-1"><img alt="hollon-hs-610d-2-hour-home-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hollon-hs-610d-2-hour-home-safe-1/public"/></a></div>
 
 I have been using the Hollon HS-610D 2 Hour Home Safe for about six months now and I must say it has been a game-changer for me. The recessed curvature offers an airtight seal that has saved my documents from smoke damage when my house caught fire once. The chrome bolt work ensures the safe can withstand an impact test, making me feel secure about my belongings.
 
@@ -316,7 +316,7 @@ Overall, I would highly recommend the Hollon HS-610D 2 Hour Home Safe to anyone 
 
 ### Important Features in a Gun Safe
 
-<div><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Hollon+Gun+Safes-2/public" alt="Hollon Gun Safes-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-gun-safes-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Hollon+Gun+Safes-2/public" alt="Hollon Gun Safes-2"></a></div>
 
 When shopping for a gun safe, consider these important features:
 
@@ -354,7 +354,7 @@ Always remember:
 
 Remember to consider your specific needs and preferences when purchasing a Hollon gun safe. By taking into account essential features and relevant considerations, you can make an informed decision that will keep your firearms secure for years to come.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Hollon+Gun+Safes-3/public" alt="Hollon Gun Safes-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-gun-safes-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Hollon+Gun+Safes-3/public" alt="Hollon Gun Safes-3"></a></div>
 
 ## FAQ
 
@@ -364,7 +364,7 @@ Hollon gun safes are a brand of quality gun safes designed to securely store fir
 
 ### 2. Where can I buy Hollon gun safes?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Hollon+Gun+Safes-4/public" alt="Hollon Gun Safes-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-gun-safes-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Hollon+Gun+Safes-4/public" alt="Hollon Gun Safes-4"></a></div>
 
 Hollon gun safes can be purchased from authorized dealers, sports and outdoors stores, and online retailers.
 
@@ -376,7 +376,7 @@ Yes, many Hollon gun safes come with a fire rating, which indicates how well the
 
 To choose the right Hollon gun safe for your needs, consider factors like the number of firearms you need to store, the type of firearms, the size and capacity of the safe, security features, and your budget.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Hollon+Gun+Safes-5/public" alt="Hollon Gun Safes-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-gun-safes-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Hollon+Gun+Safes-5/public" alt="Hollon Gun Safes-5"></a></div>
 
 ### 5. Can Hollon gun safes be bolted to the floor?
 
@@ -388,7 +388,7 @@ Hollon gun safes are designed for ease of use, with user-friendly locking mechan
 
 ### 7. Does Hollon offer a warranty on its gun safes?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Hollon+Gun+Safes-6/public" alt="Hollon Gun Safes-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/hollon-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=hollon-gun-safes&utm_term=hollon-gun-safes-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Hollon+Gun+Safes-6/public" alt="Hollon Gun Safes-6"></a></div>
 
 Yes, Hollon offers warranties on their gun safes, providing protection against material and workmanship defects. The warranty period varies depending on the specific product model, so it is important to review the manufacturer's warranty information for details.
 

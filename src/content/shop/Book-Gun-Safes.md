@@ -18,27 +18,27 @@ Ensuring the safe storage of your firearms is a top priority for any gun owner. 
 
 ## The Top 7 Best Book Gun Safes
 
-1. [Tracker Safe M Series 59"H x 23"W x 20"D Fire Rated Gun Safe with Dial or Electronic Lock](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience top-notch security and organization with the Tracker Safe M Series 59"H x 23"W x 20"D, equipped with 11-Gauge steel, 2 layers of fireboard, and adjustable shelving for your cherished valuables.
+1. [Tracker Safe M Series 59"H x 23"W x 20"D Fire Rated Gun Safe with Dial or Electronic Lock](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=tracker-safe-m-series-59h-x-23w-x-20d-fire-rated-gun-safe-with-dial-or-electronic-lock) - Experience top-notch security and organization with the Tracker Safe M Series 59"H x 23"W x 20"D, equipped with 11-Gauge steel, 2 layers of fireboard, and adjustable shelving for your cherished valuables.
 
-2. [High-Capacity 5 Gun Safe](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Safely secure your valuables with this sturdy, well-constructed gun safe, featuring a high-strength lock system, wall and floor mounting holes, and keyed access.
+2. [High-Capacity 5 Gun Safe](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=high-capacity-5-gun-safe) - Safely secure your valuables with this sturdy, well-constructed gun safe, featuring a high-strength lock system, wall and floor mounting holes, and keyed access.
 
-3. [5-Gun Metal Security Cabinet](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The American Furniture Classics 5 Gun Metal Security Cabinet, Black provides a secure storage solution for up to 5 long guns and comes equipped with soft foam barrel cushioning, carpeted floor, and an advanced 3-point locking system for added protection.
+3. [5-Gun Metal Security Cabinet](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=5-gun-metal-security-cabinet) - The American Furniture Classics 5 Gun Metal Security Cabinet, Black provides a secure storage solution for up to 5 long guns and comes equipped with soft foam barrel cushioning, carpeted floor, and an advanced 3-point locking system for added protection.
 
-4. [Centurion 24-Gun Steel Fire-Rated Safe](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Liberty Centurion 24 Gun Safe offers premium security and ample storage at an affordable price, providing unmatched protection and durability for your valuable possessions while meeting California firearm security device requirements.
+4. [Centurion 24-Gun Steel Fire-Rated Safe](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=centurion-24-gun-steel-fire-rated-safe) - The Liberty Centurion 24 Gun Safe offers premium security and ample storage at an affordable price, providing unmatched protection and durability for your valuable possessions while meeting California firearm security device requirements.
 
-5. [DIY Attractive Book Gun Safe for Hidden Storage](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the perfect blend of style and security with this Trademark Global Dictionary Diversion Book Safe, boasting a key lock and ample storage for your valuable items, discreetly resembling a regular book on your bookshelf.
+5. [DIY Attractive Book Gun Safe for Hidden Storage](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=diy-attractive-book-gun-safe-for-hidden-storage) - Experience the perfect blend of style and security with this Trademark Global Dictionary Diversion Book Safe, boasting a key lock and ample storage for your valuable items, discreetly resembling a regular book on your bookshelf.
 
-6. [Stylish Portable Book Safe with Key](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discreetly safeguard your valuables with the Stalwart Diversion Book Safe, a stylish and deceptive storage solution to keep your items secure at home or on-the-go.
+6. [Stylish Portable Book Safe with Key](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=stylish-portable-book-safe-with-key) - Discreetly safeguard your valuables with the Stalwart Diversion Book Safe, a stylish and deceptive storage solution to keep your items secure at home or on-the-go.
 
-7. [Combat Series 14-Gun Cabinet by SureLock Security](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Surelock Security Combat Series 14-Gun Cabinet is a spacious and secure choice for storing up to 14 long guns, boasting a sturdy 21-gauge steel body and 19-gauge steel door, complete with a comprehensive 3-point locking system for added peace of mind.
+7. [Combat Series 14-Gun Cabinet by SureLock Security](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=combat-series-14-gun-cabinet-by-surelock-security) - The Surelock Security Combat Series 14-Gun Cabinet is a spacious and secure choice for storing up to 14 long guns, boasting a sturdy 21-gauge steel body and 19-gauge steel door, complete with a comprehensive 3-point locking system for added peace of mind.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Tracker Safe M Series 59"H x 23"W x 20"D Fire Rated Gun Safe with Dial or Electronic Lock](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Tracker Safe M Series 59"H x 23"W x 20"D Fire Rated Gun Safe with Dial or Electronic Lock](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=tracker-safe-m-series-59h-x-23w-x-20d-fire-rated-gun-safe-with-dial-or-electronic-lock)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="gun-safe-with-dial-or-electronic-lock-tracker-safe-59h-x-23w-x-20d-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gun-safe-with-dial-or-electronic-lock-tracker-safe-59h-x-23w-x-20d-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=gun-safe-with-dial-or-electronic-lock-tracker-safe-59h-x-23w-x-20d-1"><img alt="gun-safe-with-dial-or-electronic-lock-tracker-safe-59h-x-23w-x-20d-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gun-safe-with-dial-or-electronic-lock-tracker-safe-59h-x-23w-x-20d-1/public"/></a></div>
 
 I recently purchased the Tracker Safe M Series to ensure the safety and security of my valuable items at home, and I must say, this extra-large gun safe has exceeded my expectations. With its impressive sturdy construction and robust design, the safe was easy to install - thanks to its well-built structure. The 1. 25 inch diameter bolts and additional locking bolts give me peace of mind knowing that my belongings are protected by a secure system.
 
@@ -48,9 +48,9 @@ When it comes to security features, there's plenty to appreciate - including 60-
 
 Overall experience using this product has been highly positive so far; being able rely on something strong yet smooth operating goes far beyond expectations set before deciding buy one yourself today - highly recommended if seeking reliable solutions when needing store anything safely behind locked doors inside homes everywhere nowadays! . As our world is a dangerous place there isn't any better choice than a Tracker Safe for storing valuables that you cherish dearly!
 
-### [High-Capacity 5 Gun Safe](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [High-Capacity 5 Gun Safe](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=high-capacity-5-gun-safe)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="5-gun-safe-american-furniture-classics-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/5-gun-safe-american-furniture-classics-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=5-gun-safe-american-furniture-classics-1"><img alt="5-gun-safe-american-furniture-classics-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/5-gun-safe-american-furniture-classics-1/public"/></a></div>
 
 Man, I've been using this 5 Gun Safe from American Furniture Classics for quite some time now. I've got to say, it's been a real game-changer in securing my firearms. The 3-directional bolt system along with the soft foam pad at the bottom has proved to be a real lifesaver when it comes to keeping my valuables safely stowed away.
 
@@ -60,9 +60,9 @@ However, it's not all smooth sailing. The keyed access can be a bit of a pain at
 
 Overall, I've been quite happy with my purchase. While it may not be perfect, it's certainly done a great job of keeping my firearms safe and secure. So if you're in the market for a gun safe, this one's definitely worth considering.
 
-### [5-Gun Metal Security Cabinet](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [5-Gun Metal Security Cabinet](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=5-gun-metal-security-cabinet)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="american-furniture-classics-5-gun-metal-security-cabinet-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/american-furniture-classics-5-gun-metal-security-cabinet-black-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=american-furniture-classics-5-gun-metal-security-cabinet-black-1"><img alt="american-furniture-classics-5-gun-metal-security-cabinet-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/american-furniture-classics-5-gun-metal-security-cabinet-black-1/public"/></a></div>
 
 I recently purchased the American Furniture Classics 5 Gun Metal Security Cabinet in black, and I have to say, it's been a game changer for me. I had been looking for a safe and secure way to store my long guns and handguns, but I didn't want to spend a fortune on a fancy, high-end safe. That's where this little cabinet came in.
 
@@ -74,9 +74,9 @@ However, there were a few downsides to this cabinet as well. The main issue was 
 
 Overall, I would highly recommend the American Furniture Classics 5 Gun Metal Security Cabinet to anyone looking for a secure and affordable way to store their firearms. It's not perfect, but it gets the job done and provides peace of mind, knowing that my guns are safe and protected.
 
-### [Centurion 24-Gun Steel Fire-Rated Safe](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Centurion 24-Gun Steel Fire-Rated Safe](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=centurion-24-gun-steel-fire-rated-safe)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="centurion-24-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/centurion-24-gun-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=centurion-24-gun-safe-1"><img alt="centurion-24-gun-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/centurion-24-gun-safe-1/public"/></a></div>
 
 I've been using the Liberty Centurion 24 Gun Safe for a few months, and it definitely stands out among other gun safes in the market. Firstly, the digital keypad locking system is a breeze to set up and use. It provides quick and easy access to my valuables, while still ensuring optimal security. Plus, the hard plate lock protection gives me the peace of mind knowing that my belongings are safe from potential break-ins.
 
@@ -86,9 +86,9 @@ However, it's worth mentioning that setting up the interior padding could be sli
 
 In conclusion, the Liberty Centurion 24 Gun Safe has exceeded my expectations in terms of quality and protection. Its spacious interior and user-friendly locking system make it a reliable choice for those looking to secure their valuables. While there are some minor flaws, they are easily outweighed by its benefits. I would highly recommend this safe to anyone in need of a secure storage solution.
 
-### [DIY Attractive Book Gun Safe for Hidden Storage](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [DIY Attractive Book Gun Safe for Hidden Storage](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=diy-attractive-book-gun-safe-for-hidden-storage)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="trademark-global-dictionary-diversion-book-safe-with-key-lock-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/trademark-global-dictionary-diversion-book-safe-with-key-lock-black-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=trademark-global-dictionary-diversion-book-safe-with-key-lock-black-1"><img alt="trademark-global-dictionary-diversion-book-safe-with-key-lock-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/trademark-global-dictionary-diversion-book-safe-with-key-lock-black-1/public"/></a></div>
 
 I recently got my hands on a Dictionary Diversion Book Safe, and I've got to say, it's been an absolute game-changer! This ingenious invention is the perfect solution for storing my valuables in plain sight. Unlike traditional safes that scream "Expensive stuff inside, " this book safe blends seamlessly into my bookshelf, making it virtually undetectable.
 
@@ -100,17 +100,17 @@ However, I did find one minor drawback. The metal interior isn't perfect – the
 
 Overall, I'm absolutely thrilled with my purchase and have no hesitations in recommending this Dictionary Diversion Book Safe to anyone seeking a subtle yet effective way to secure their valuables. It's a well-made, easy-to-use solution that truly stands out from the competition.
 
-### [Stylish Portable Book Safe with Key](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Stylish Portable Book Safe with Key](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=stylish-portable-book-safe-with-key)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="stalwart-a200017-lock-box-with-key-diversion-book-safe-portable-safe-box-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/stalwart-a200017-lock-box-with-key-diversion-book-safe-portable-safe-box-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=stalwart-a200017-lock-box-with-key-diversion-book-safe-portable-safe-box-1"><img alt="stalwart-a200017-lock-box-with-key-diversion-book-safe-portable-safe-box-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/stalwart-a200017-lock-box-with-key-diversion-book-safe-portable-safe-box-1/public"/></a></div>
 
 Discover the Diversion Book Safe by Stalwart, a discreet way to keep your valuable items safe at home or on-the-go. . This book-shaped lockbox boasts a realistic appearance that seamlessly blends in with other books on your shelf. .
 
 Its key control offers both security and ease of access to your valuables. . While some users reported issues with the product's quality, others appreciated the convenience and effectiveness of the Diversion Book Safe for concealing small items. . Overall, the majority of reviewers found this product to be a worthwhile investment for safeguarding their valuables in a subtle and unobtrusive manner. .
 
-### [Combat Series 14-Gun Cabinet by SureLock Security](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Combat Series 14-Gun Cabinet by SureLock Security](https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=combat-series-14-gun-cabinet-by-surelock-security)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="surelock-security-combat-series-14-gun-cabinet-bronze-matte-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/surelock-security-combat-series-14-gun-cabinet-bronze-matte-black-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=surelock-security-combat-series-14-gun-cabinet-bronze-matte-black-1"><img alt="surelock-security-combat-series-14-gun-cabinet-bronze-matte-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/surelock-security-combat-series-14-gun-cabinet-bronze-matte-black-1/public"/></a></div>
 
 I've recently invested in the Surelock Security Combat Series Gun Cabinet, and I must say, it's been a game-changer! As a gun owner myself, I was initially skeptical about finding a decent storage solution that didn't break the bank. This one, however, has genuinely surprised me.
 
@@ -128,7 +128,7 @@ A book gun safe can provide a discreet and stylish solution for storing your fir
 
 ### Important Features:
 
-<div><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Book+Gun+Safes-2/public" alt="Book Gun Safes-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=book-gun-safes-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Book+Gun+Safes-2/public" alt="Book Gun Safes-2"></a></div>
 
 - Discreet appearance: A well-designed book gun safe should blend in with your home library or office bookshelf.
 
@@ -156,7 +156,7 @@ Before making a purchase, consider the following:
 
 3. Consider the level of security you require based on your individual needs and circumstances.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Book+Gun+Safes-3/public" alt="Book Gun Safes-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=book-gun-safes-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Book+Gun+Safes-3/public" alt="Book Gun Safes-3"></a></div>
 
 ## FAQ
 
@@ -166,7 +166,7 @@ A book gun safe is a concealed storage solution that resembles a regular book. I
 
 ### How do book gun safes work?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Book+Gun+Safes-4/public" alt="Book Gun Safes-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=book-gun-safes-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Book+Gun+Safes-4/public" alt="Book Gun Safes-4"></a></div>
 
 Book gun safes typically have a hinged or pivot design that allows the book-like cover to open, revealing a hollow interior. This interior provides the necessary space to store a firearm and keep it concealed from sight.
 
@@ -182,7 +182,7 @@ Book gun safes offer a decent level of security, particularly when used in conju
 
 - Rifles with folding stocks
 
-<div><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Book+Gun+Safes-5/public" alt="Book Gun Safes-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=book-gun-safes-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Book+Gun+Safes-5/public" alt="Book Gun Safes-5"></a></div>
 
 ### How do I choose the right book gun safe?
 
@@ -194,7 +194,7 @@ Book gun safe dimensions can vary significantly, depending on the manufacturer a
 
 ### Can book gun safes be used with other security measures?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Book+Gun+Safes-6/public" alt="Book Gun Safes-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/book-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=book-gun-safes&utm_term=book-gun-safes-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Book+Gun+Safes-6/public" alt="Book Gun Safes-6"></a></div>
 
 Yes, book gun safes can be used in combination with other security measures, such as alarms, locks, and safes for added protection. This can help provide multiple layers of security for your firearms and deter theft or unauthorized access.
 

@@ -16,33 +16,33 @@ Looking for a secure and efficient way to carry your weapon? Magnet Holsters are
 
 ## The Top 10 Best Magnet Holsters
 
-1. [Ambidextrous IWB/OWB Kydex Magazine Holster for 9mm/40SW Double Stack MRD](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Concealment Express Single Magazine Holster: Premium ambidextrous IWB/OWB design for versatile carry options, adjustable retention, and compatibility with various calibers and mags in black. Perfect for avid shooters and concealed carriers.
+1. [Ambidextrous IWB/OWB Kydex Magazine Holster for 9mm/40SW Double Stack MRD](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=ambidextrous-iwbowb-kydex-magazine-holster-for-9mm40sw-double-stack-mrd) - Concealment Express Single Magazine Holster: Premium ambidextrous IWB/OWB design for versatile carry options, adjustable retention, and compatibility with various calibers and mags in black. Perfect for avid shooters and concealed carriers.
 
-2. [Ambidextrous IWB/OWB Kydex Magazine Holster for 9MM/40SW Single Stack MRD](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience exceptional versatility and customization with the Concealment Express IWB/OWB MRD Magazine Holster, designed to securely carry your spare mag while accommodating your preferred carry position, hand orientation, and caliber.
+2. [Ambidextrous IWB/OWB Kydex Magazine Holster for 9MM/40SW Single Stack MRD](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=ambidextrous-iwbowb-kydex-magazine-holster-for-9mm40sw-single-stack-mrd) - Experience exceptional versatility and customization with the Concealment Express IWB/OWB MRD Magazine Holster, designed to securely carry your spare mag while accommodating your preferred carry position, hand orientation, and caliber.
 
-3. [Ambidextrous Kydex Mag Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unmatched comfort and versatility with the C&G Holsters Single Magazine OWB/IWB Holster: the perfect solution for P365, 43X, and Hellcat users seeking a reliable and secure ambidextrous solution to carry their extra magazine.
+3. [Ambidextrous Kydex Mag Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=ambidextrous-kydex-mag-holster-for-concealed-carry) - Experience unmatched comfort and versatility with the C&G Holsters Single Magazine OWB/IWB Holster: the perfect solution for P365, 43X, and Hellcat users seeking a reliable and secure ambidextrous solution to carry their extra magazine.
 
-4. [IWB Holster for Sig Sauer P938 by Blade-Tech](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Klipt IWB Holster for Sig Sauer P938 offers a sleek design for everyday carry, boasting features like a high sweat guard for moisture protection, a secure belt clip, and precise fit for optimal comfort during prolonged use.
+4. [IWB Holster for Sig Sauer P938 by Blade-Tech](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=iwb-holster-for-sig-sauer-p938-by-blade-tech) - The Klipt IWB Holster for Sig Sauer P938 offers a sleek design for everyday carry, boasting features like a high sweat guard for moisture protection, a secure belt clip, and precise fit for optimal comfort during prolonged use.
 
-5. [Comfortable and Discreet Kydex IWB Holster for Sig Sauer P365](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Sig Sauer P365 Left-Handed Holster IWB by We The People Holsters offers comfortable, secure, and adjustable features, made from high-quality Kydex material with a tan spartan camo design, suitable for both personal and professional users.
+5. [Comfortable and Discreet Kydex IWB Holster for Sig Sauer P365](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=comfortable-and-discreet-kydex-iwb-holster-for-sig-sauer-p365) - The Sig Sauer P365 Left-Handed Holster IWB by We The People Holsters offers comfortable, secure, and adjustable features, made from high-quality Kydex material with a tan spartan camo design, suitable for both personal and professional users.
 
-6. [Concealed Carry IWB Holster for Taurus G3c](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Increase concealment and comfort with the Taurus G3c Klipt IWB Holster, ideal for everyday carry with its high-strength polymer construction and streamlined design for IWB use.
+6. [Concealed Carry IWB Holster for Taurus G3c](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=concealed-carry-iwb-holster-for-taurus-g3c) - Increase concealment and comfort with the Taurus G3c Klipt IWB Holster, ideal for everyday carry with its high-strength polymer construction and streamlined design for IWB use.
 
-7. [Smith & Wesson M&P Shield IWB Holster with Adjustable Retention Pressure and Carry Angle](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience top-notch gun protection with the Smith & Wesson M&P Shield/M2.0/Plus 9mm/.40/30 Super Carry IWB Right-Handed Holster by We The People Holsters - perfect for secure, comfortable, and concealed carry.
+7. [Smith & Wesson M&P Shield IWB Holster with Adjustable Retention Pressure and Carry Angle](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=smith-wesson-mp-shield-iwb-holster-with-adjustable-retention-pressure-and-carry-angle) - Experience top-notch gun protection with the Smith & Wesson M&P Shield/M2.0/Plus 9mm/.40/30 Super Carry IWB Right-Handed Holster by We The People Holsters - perfect for secure, comfortable, and concealed carry.
 
-8. [Universal Mag Carrier Kydex Concealed Carry IWB Magazine Holster by We The People Holsters](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Universal Mag Carrier by We The People Holsters, a single stack, adjustable IWB magazine carrier for concealed carry in black kydex material.
+8. [Universal Mag Carrier Kydex Concealed Carry IWB Magazine Holster by We The People Holsters](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=universal-mag-carrier-kydex-concealed-carry-iwb-magazine-holster-by-we-the-people-holsters) - Universal Mag Carrier by We The People Holsters, a single stack, adjustable IWB magazine carrier for concealed carry in black kydex material.
 
-9. [Adjustable Kydex IWB Holster for Glock 19/19X - Aqua](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Comfortable, adjustable IWB Kydex holster suitable for both Glock 19 and 19X, compatible with red dot sights, and made from durable materials for secure grip.
+9. [Adjustable Kydex IWB Holster for Glock 19/19X - Aqua](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=adjustable-kydex-iwb-holster-for-glock-1919x-aqua) - Comfortable, adjustable IWB Kydex holster suitable for both Glock 19 and 19X, compatible with red dot sights, and made from durable materials for secure grip.
 
-10. [Left-Handed Glock 43/43X IWB Holster by We The People Holsters - Red Plaid Kydex, Adjustable, Secure](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unmatched comfort and security with the Glock 43/43X IWB Left-Handed Holster by We The People Holsters, designed for right-hand draw, featuring adjustable retention, ride, cant, and customizable belt clip.
+10. [Left-Handed Glock 43/43X IWB Holster by We The People Holsters - Red Plaid Kydex, Adjustable, Secure](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=left-handed-glock-4343x-iwb-holster-by-we-the-people-holsters-red-plaid-kydex-adjustable-secure) - Experience unmatched comfort and security with the Glock 43/43X IWB Left-Handed Holster by We The People Holsters, designed for right-hand draw, featuring adjustable retention, ride, cant, and customizable belt clip.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Ambidextrous IWB/OWB Kydex Magazine Holster for 9mm/40SW Double Stack MRD](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Ambidextrous IWB/OWB Kydex Magazine Holster for 9mm/40SW Double Stack MRD](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=ambidextrous-iwbowb-kydex-magazine-holster-for-9mm40sw-double-stack-mrd)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="concealment-express-iwb-owb-kydex-single-magazine-holster-black-9mm-40sw-double-stack-mrd-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-iwb-owb-kydex-single-magazine-holster-black-9mm-40sw-double-stack-mrd-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=concealment-express-iwb-owb-kydex-single-magazine-holster-black-9mm-40sw-double-stack-mrd-1"><img alt="concealment-express-iwb-owb-kydex-single-magazine-holster-black-9mm-40sw-double-stack-mrd-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-iwb-owb-kydex-single-magazine-holster-black-9mm-40sw-double-stack-mrd-1/public"/></a></div>
 
 The Concealment Express Ambidextrous, IWB/OWB MRD Magazine Holster is a versatile option for carrying your spare magazines. With mounting holes on both sides, it allows for personalized carry with either IWB/OWB and right- or left-hand draw. The holster comes preassembled for right-handed, inside-the-waistband carry but can be adjusted easily with a Phillips screwdriver.
 
@@ -52,9 +52,9 @@ Some users have reported that comfort may be compromised when sitting down as th
 
 In terms of construction materials and affordability, this product holds up well against competitors in its category making it worth considering if you're looking for an adaptable solution for carrying your spare mags effectively without breaking the bank!
 
-### [Ambidextrous IWB/OWB Kydex Magazine Holster for 9MM/40SW Single Stack MRD](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Ambidextrous IWB/OWB Kydex Magazine Holster for 9MM/40SW Single Stack MRD](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=ambidextrous-iwbowb-kydex-magazine-holster-for-9mm40sw-single-stack-mrd)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="concealment-express-iwb-owb-kydex-single-magazine-holster-black-9mm-40sw-single-stack-mrd-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-iwb-owb-kydex-single-magazine-holster-black-9mm-40sw-single-stack-mrd-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=concealment-express-iwb-owb-kydex-single-magazine-holster-black-9mm-40sw-single-stack-mrd-1"><img alt="concealment-express-iwb-owb-kydex-single-magazine-holster-black-9mm-40sw-single-stack-mrd-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-iwb-owb-kydex-single-magazine-holster-black-9mm-40sw-single-stack-mrd-1/public"/></a></div>
 
 I recently purchased the Concealment Express Ambidextrous, IWB/OWB MRD Magazine Holster for my spare magazine and it has exceeded my expectations. The versatility of this holster is truly impressive, as it can be used for either IWB or OWB carry and accommodates both right hand and left hand draw.
 
@@ -64,17 +64,17 @@ The design of the MRD magazine holsters makes them universal for any caliber or 
 
 In conclusion, this product offers great quality and functionality that is perfect for everyday carry - definitely worth adding to your EDC collection! With its multiple features and ability to cater to various needs, you can't go wrong with this highly versatile magazine holster from Concealment Express.
 
-### [Ambidextrous Kydex Mag Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Ambidextrous Kydex Mag Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=ambidextrous-kydex-mag-holster-for-concealed-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cg-holsters-single-magazine-owb-iwb-holster-p365-43x-hellcat-ambidextrous-black-4002-101" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-single-magazine-owb-iwb-holster-p365-43x-hellcat-ambidextrous-black-4002-101/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=cg-holsters-single-magazine-owb-iwb-holster-p365-43x-hellcat-ambidextrous-black-4002-101"><img alt="cg-holsters-single-magazine-owb-iwb-holster-p365-43x-hellcat-ambidextrous-black-4002-101" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-single-magazine-owb-iwb-holster-p365-43x-hellcat-ambidextrous-black-4002-101/public"/></a></div>
 
 The C&G Holsters Kydex Mag Holster has quickly become a go-to favorite in my everyday concealed carry routine. With adjustable retention, I can easily customize the fit for secure magazine hold and smooth draws. The sleek design ensures comfortable and unobtrusive concealment, while the exceptional craftsmanship has proven itself to be durable even after months of regular use.
 
 One thing that sets C&G apart is their amazing customer service, providing helpful tips on usage and compatibility to ensure an enjoyable experience for every customer. Looking for a reliable Kydex Mag Holster? Give C&G Holsters a try – you won't be disappointed!
 
-### [IWB Holster for Sig Sauer P938 by Blade-Tech](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [IWB Holster for Sig Sauer P938 by Blade-Tech](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=iwb-holster-for-sig-sauer-p938-by-blade-tech)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="klip-iwb-sig-sauer-p938-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klip-iwb-sig-sauer-p938-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=klip-iwb-sig-sauer-p938-holster-right-handed-inside-the-waistband-klipt-blade-tech-1"><img alt="klip-iwb-sig-sauer-p938-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klip-iwb-sig-sauer-p938-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
 
 After testing the Blade-Tech Klipt IWB Holster for the Sig P938, I can say it's a comfortable and reliable concealed carry option. Its slim design ensures it doesn't add bulk or dig into my skin throughout the day. One standout feature is the high sweat guard that keeps moisture and slide serrations away from my firearm, preventing any discomfort while carrying.
 
@@ -82,9 +82,9 @@ The easy on/off belt clip has been secure and reliable, offering peace of mind t
 
 Overall, this holster meets expectations for an everyday carry solution with its combination of comfort, security features, ease of use, and affordability. Many other users also appreciate these aspects as shown by their positive reviews praising its functionality and design. For those seeking a no-frills IWB holster suitable for daily use - Blade-Tech Klipt IWB Holster is definitely worth considering.
 
-### [Comfortable and Discreet Kydex IWB Holster for Sig Sauer P365](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Comfortable and Discreet Kydex IWB Holster for Sig Sauer P365](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=comfortable-and-discreet-kydex-iwb-holster-for-sig-sauer-p365)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sig-sauer-p365-left-handed-holster-iwb-by-we-the-people-holsters-tan-spartan-camo-kydex-adjustable-s-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sig-sauer-p365-left-handed-holster-iwb-by-we-the-people-holsters-tan-spartan-camo-kydex-adjustable-s-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=sig-sauer-p365-left-handed-holster-iwb-by-we-the-people-holsters-tan-spartan-camo-kydex-adjustable-s-1"><img alt="sig-sauer-p365-left-handed-holster-iwb-by-we-the-people-holsters-tan-spartan-camo-kydex-adjustable-s-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sig-sauer-p365-left-handed-holster-iwb-by-we-the-people-holsters-tan-spartan-camo-kydex-adjustable-s-1/public"/></a></div>
 
 After using the Sig P365 IWB holster by We The People Holsters, I was pleasantly surprised by its exceptional comfort and concealment. The Kydex material used in construction allows for a slim profile, making it easy to hide even under fitted clothing.
 
@@ -96,17 +96,17 @@ However, some users have reported issues related to defects in manufacturing or 
 
 Considering all these factors together makes it worth considering trying out this holster - just remember always double check measurements before purchase just ensure perfect fit every single time!
 
-### [Concealed Carry IWB Holster for Taurus G3c](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Concealed Carry IWB Holster for Taurus G3c](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=concealed-carry-iwb-holster-for-taurus-g3c)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="taurus-g3c-iwb-holster-usa-made-klipt-iwb-holster-right-handed-concealed-carry-inside-the-waistband--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/taurus-g3c-iwb-holster-usa-made-klipt-iwb-holster-right-handed-concealed-carry-inside-the-waistband--1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=taurus-g3c-iwb-holster-usa-made-klipt-iwb-holster-right-handed-concealed-carry-inside-the-waistband-1"><img alt="taurus-g3c-iwb-holster-usa-made-klipt-iwb-holster-right-handed-concealed-carry-inside-the-waistband--1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/taurus-g3c-iwb-holster-usa-made-klipt-iwb-holster-right-handed-concealed-carry-inside-the-waistband--1/public"/></a></div>
 
 I've been using the Blade-Tech Klipt IWB Holster for my Taurus G3C for several months now, and it has been an excellent choice for everyday carry. Its slim design makes it easy to conceal while still offering all the necessary features I look for in a holster. One standout feature is the high sweat guard that keeps my gun moisture-free, preventing any discomfort from slide serrations against my skin. Additionally, the easy on/easy off belt clip makes it secure on my belt yet effortless to take off when needed.
 
 The built-in retention and positive lock trigger guard are also valuable features that give me peace of mind by ensuring my firearm stays secure without needing adjustments. However, some might find it less durable since it's made from polymer instead of leather or metal. Despite this, there are no signs of wear or tear on mine so far. Overall, this product has served me well and would make a great choice for daily use.
 
-### [Smith & Wesson M&P Shield IWB Holster with Adjustable Retention Pressure and Carry Angle](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Smith & Wesson M&P Shield IWB Holster with Adjustable Retention Pressure and Carry Angle](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=smith-wesson-mp-shield-iwb-holster-with-adjustable-retention-pressure-and-carry-angle)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="smith-wesson-mp-shield-m2-0-plus-9mm-40-30-super-carry-iwb-right-handed-holster-by-we-the-people-hol-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-wesson-mp-shield-m2-0-plus-9mm-40-30-super-carry-iwb-right-handed-holster-by-we-the-people-hol-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=smith-wesson-mp-shield-m2-0-plus-9mm-40-30-super-carry-iwb-right-handed-holster-by-we-the-people-hol-1"><img alt="smith-wesson-mp-shield-m2-0-plus-9mm-40-30-super-carry-iwb-right-handed-holster-by-we-the-people-hol-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-wesson-mp-shield-m2-0-plus-9mm-40-30-super-carry-iwb-right-handed-holster-by-we-the-people-hol-1/public"/></a></div>
 
 For the past couple of months, I've been using this IWB holster for my S&W M&P Shield 9mm, and it's safe to say both the retention and fit are top-notch. It keeps my weapon secure without any worry of it falling out, which is a big plus. However, when it comes to comfort, the design adds some bulk around the firearm area that can make it slightly uncomfortable at times.
 
@@ -114,9 +114,9 @@ A standout feature is its ease of draw - getting my weapon out is smooth like bu
 
 So if you're looking into investing in an IWB holster specifically designed for Smith & Wesson M&P Shield/Plus 9mm/. 40/30 Super Carry pistols (even accommodating red dot sights), then this one might just do the trick! Just remember that while they incorporated useful features like adjustable carry angle or readily adjustable retention pressure into their design process; comfort might not have been a top priority - so keep that in mind when deciding if this product meets your needs accordingly!
 
-### [Universal Mag Carrier Kydex Concealed Carry IWB Magazine Holster by We The People Holsters](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Universal Mag Carrier Kydex Concealed Carry IWB Magazine Holster by We The People Holsters](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=universal-mag-carrier-kydex-concealed-carry-iwb-magazine-holster-by-we-the-people-holsters)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="universal-mag-carrier-kydex-concealed-carry-iwb-magazine-carrier-holster-by-we-the-people-holsters-b-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/universal-mag-carrier-kydex-concealed-carry-iwb-magazine-carrier-holster-by-we-the-people-holsters-b-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=universal-mag-carrier-kydex-concealed-carry-iwb-magazine-carrier-holster-by-we-the-people-holsters-b-1"><img alt="universal-mag-carrier-kydex-concealed-carry-iwb-magazine-carrier-holster-by-we-the-people-holsters-b-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/universal-mag-carrier-kydex-concealed-carry-iwb-magazine-carrier-holster-by-we-the-people-holsters-b-1/public"/></a></div>
 
 When I first received my Universal Mag Carrier Kydex Concealed Carry/Holster by We The People Holsters, I was immediately impressed with its quality and design. This carrier is made from durable Kydex material that ensures a secure grip on my magazines, while still allowing for easy access.
 
@@ -126,17 +126,17 @@ This mag carrier has worked well for both single-stack and double-stack mags, as
 
 In conclusion, this mag carrier has become an essential part of my everyday carry setup offering excellent concealment and reliability while providing fast accessibility when needed.
 
-### [Adjustable Kydex IWB Holster for Glock 19/19X - Aqua](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Adjustable Kydex IWB Holster for Glock 19/19X - Aqua](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=adjustable-kydex-iwb-holster-for-glock-1919x-aqua)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glock-19-19x-iwb-left-handed-holster-by-we-the-people-holsters-aqua-kydex-adjustable-secure-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-19-19x-iwb-left-handed-holster-by-we-the-people-holsters-aqua-kydex-adjustable-secure-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=glock-19-19x-iwb-left-handed-holster-by-we-the-people-holsters-aqua-kydex-adjustable-secure-1"><img alt="glock-19-19x-iwb-left-handed-holster-by-we-the-people-holsters-aqua-kydex-adjustable-secure-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-19-19x-iwb-left-handed-holster-by-we-the-people-holsters-aqua-kydex-adjustable-secure-1/public"/></a></div>
 
 The Glock 19 IWB Holster by We The People Holsters is a comfortable and discreet option for concealed carry. Made out of durable Kydex, the holster has a thin profile that makes it easy to conceal under different types of clothing. Some highlights from my experience include adjustable retention, which allows you to customize the fit, and adjustable ride and cant for maximum flexibility in carrying options. Another standout feature is the protective sweat guard that minimizes contact between your gun and your body.
 
 That being said, there are some room for improvements, such as enhancing retention pressure adjustment range and increasing sweat guard height to prevent accidental mag pressure disengagement. Although these could be worked on, overall this product does its job well with some minor drawbacks.
 
-### [Left-Handed Glock 43/43X IWB Holster by We The People Holsters - Red Plaid Kydex, Adjustable, Secure](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Left-Handed Glock 43/43X IWB Holster by We The People Holsters - Red Plaid Kydex, Adjustable, Secure](https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=left-handed-glock-4343x-iwb-holster-by-we-the-people-holsters-red-plaid-kydex-adjustable-secure)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glock-43-43x-iwb-left-handed-holster-by-we-the-people-holsters-red-plaid-kydex-adjustable-secure-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-43-43x-iwb-left-handed-holster-by-we-the-people-holsters-red-plaid-kydex-adjustable-secure-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=glock-43-43x-iwb-left-handed-holster-by-we-the-people-holsters-red-plaid-kydex-adjustable-secure-1"><img alt="glock-43-43x-iwb-left-handed-holster-by-we-the-people-holsters-red-plaid-kydex-adjustable-secure-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-43-43x-iwb-left-handed-holster-by-we-the-people-holsters-red-plaid-kydex-adjustable-secure-1/public"/></a></div>
 
 As a proud owner of the Glock 43 IWB holster, I can vouch for its incredible comfort and versatility. The Kydex material keeps it lightweight and thin, making concealment easy under any type of clothing. In terms of adjustability, this holster truly stands out with its eight customizable positions for the belt clip and adjustable cant that allows me to find my perfect fit.
 
@@ -148,7 +148,7 @@ In terms of downsides, I only wish there were more detailed instructions include
 
 ### Important Features of Magnet Holsters
 
-<div><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Magnet+Holsters-2/public" alt="Magnet Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=magnet-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Magnet+Holsters-2/public" alt="Magnet Holsters-2"></a></div>
 
 Magnet holsters are designed to secure your gun in place using strong neodymium magnets. Some key features to look for when selecting a magnet holster include:
 
@@ -188,7 +188,7 @@ To ensure the best possible experience with your magnet holster, follow these he
 
 - Be aware of your surroundings and the position of your holster when drawing your weapon.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Magnet+Holsters-3/public" alt="Magnet Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=magnet-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Magnet+Holsters-3/public" alt="Magnet Holsters-3"></a></div>
 
 ## FAQ
 
@@ -198,7 +198,7 @@ A magnet holster is a type of holster that uses powerful magnets to attach your 
 
 ### How does a magnet holster work?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Magnet+Holsters-4/public" alt="Magnet Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=magnet-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Magnet+Holsters-4/public" alt="Magnet Holsters-4"></a></div>
 
 Magnet holsters consist of a high-quality magnet, usually made from neodymium or another strong rare-earth material, and a holder or clamshell that surrounds the majority of the firearm's grip. To use the holster, you simply insert your firearm into the holder and align it with the magnet. The magnet will securely hold the firearm in place until it is removed, offering a quick and easy method for drawing and re-holstering the weapon in an instant.
 
@@ -210,7 +210,7 @@ Yes, magnet holsters are designed to provide secure retention of your firearm wh
 
 Magnet holsters are available in various sizes and configurations, allowing them to accommodate a wide range of firearms, including handguns, revolvers, and even some compact long guns (like subcompact shotguns and carbines). Always ensure that you choose the correct size and type of magnet holster for your specific firearm to guarantee proper fit and retention.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Magnet+Holsters-5/public" alt="Magnet Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=magnet-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Magnet+Holsters-5/public" alt="Magnet Holsters-5"></a></div>
 
 ### What are the benefits of using a magnet holster?
 
@@ -228,7 +228,7 @@ When selecting a magnet holster, consider factors such as the type and size of y
 
 ### Can magnet holsters be used for concealed carry?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Magnet+Holsters-6/public" alt="Magnet Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/magnet-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=magnet-holsters&utm_term=magnet-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Magnet+Holsters-6/public" alt="Magnet Holsters-6"></a></div>
 
 Yes, magnet holsters are suitable for concealed carry applications, as they offer quick and easy access to your firearm while maintaining a low profile. However, it is crucial to ensure that the holster is worn in a manner that effectively conceals the weapon and complies with local laws and concealed carry requirements.
 

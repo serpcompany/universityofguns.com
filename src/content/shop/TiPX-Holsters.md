@@ -16,31 +16,31 @@ Looking to secure your TiPX pistol with the perfect holster? Look no further! Ou
 
 ## The Top 9 Best TiPX Holsters
 
-1. [Concealed Carry Holster for SCCY CPX1/CPX2](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Klipt IWB Holster for the SCCY CPX1/CPX2 is a slim, comfortable, and secure IWB concealed carry option with an easy on/off belt clip, built-in retention, and a high sweat guard for all-day use.
+1. [Concealed Carry Holster for SCCY CPX1/CPX2](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=concealed-carry-holster-for-sccy-cpx1cpx2) - The Klipt IWB Holster for the SCCY CPX1/CPX2 is a slim, comfortable, and secure IWB concealed carry option with an easy on/off belt clip, built-in retention, and a high sweat guard for all-day use.
 
-2. [Concealable Kydex IWB Holster for Glock 19/19X](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience premium comfort and discreet carry with our high-quality Glock 19/19X IWB Right-Handed Holster by We The People Holsters, featuring adjustable retention, ride, and cant, as well as a protective sweat guard - made in the USA with love.
+2. [Concealable Kydex IWB Holster for Glock 19/19X](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=concealable-kydex-iwb-holster-for-glock-1919x) - Experience premium comfort and discreet carry with our high-quality Glock 19/19X IWB Right-Handed Holster by We The People Holsters, featuring adjustable retention, ride, and cant, as well as a protective sweat guard - made in the USA with love.
 
-3. [Adjustable Glock 43 IWB Kydex Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Glock 43/43X IWB Left-Handed Holster by We The People Holsters offers secure and adjustable concealed carry for left-handed users with adjustable retention, ride, and cant, and features compatibility with Red Dots and various belt positions.
+3. [Adjustable Glock 43 IWB Kydex Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=adjustable-glock-43-iwb-kydex-holster-for-concealed-carry) - The Glock 43/43X IWB Left-Handed Holster by We The People Holsters offers secure and adjustable concealed carry for left-handed users with adjustable retention, ride, and cant, and features compatibility with Red Dots and various belt positions.
 
-4. [Comfortable Concealment: Glock 43X MOS w/ Rail w/ TLR-7 Sub LightTuck IWB Holster](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Vedder Holsters' Glock 43X MOS w/rail w/TLR-7 Sub LightTuck IWB Kydex holster is the ultimate concealed carry solution, providing exceptional comfort, adjustability, and concealment for the Glock 43X MOS with the TLR-7 sub light.
+4. [Comfortable Concealment: Glock 43X MOS w/ Rail w/ TLR-7 Sub LightTuck IWB Holster](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=comfortable-concealment-glock-43x-mos-w-rail-w-tlr-7-sub-lighttuck-iwb-holster) - The Vedder Holsters' Glock 43X MOS w/rail w/TLR-7 Sub LightTuck IWB Kydex holster is the ultimate concealed carry solution, providing exceptional comfort, adjustability, and concealment for the Glock 43X MOS with the TLR-7 sub light.
 
-5. [Open-Top Paddle Holster with ALS for Smith & Wesson M&P 1.0/2.0 Shield by Safariland](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Safariland 6378 ALS Paddle Holster provides secure, open-top concealment for Smith & Wesson M&P Shields with adjustable cant and fit for various belt widths, making it an excellent choice for plain-clothed officers and sidearm carriers.
+5. [Open-Top Paddle Holster with ALS for Smith & Wesson M&P 1.0/2.0 Shield by Safariland](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=open-top-paddle-holster-with-als-for-smith-wesson-mp-1020-shield-by-safariland) - The Safariland 6378 ALS Paddle Holster provides secure, open-top concealment for Smith & Wesson M&P Shields with adjustable cant and fit for various belt widths, making it an excellent choice for plain-clothed officers and sidearm carriers.
 
-6. [Customizable IWB Holster for Canik TP9 Elite Sub Compact](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience exceptional versatility and customization with the Viper Arms Kiowa 2.0 Light Bearing Holster for Canik TP9 Elite Sub Compact, offering adjustable hooks, grips, clips, and mod wing for seamless concealment and adaptability.
+6. [Customizable IWB Holster for Canik TP9 Elite Sub Compact](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=customizable-iwb-holster-for-canik-tp9-elite-sub-compact) - Experience exceptional versatility and customization with the Viper Arms Kiowa 2.0 Light Bearing Holster for Canik TP9 Elite Sub Compact, offering adjustable hooks, grips, clips, and mod wing for seamless concealment and adaptability.
 
-7. [Optic-Ready Canik TP9SFx IWB KYDEX Holster with Claw and Monoblock Clip](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience superior concealed carry comfort and protection with the Canik TP9SFX IWB KYDEX Plus Line Holster - optimal for an everyday carry solution, while prioritizing durability, lightweight comfort, and optic readiness.
+7. [Optic-Ready Canik TP9SFx IWB KYDEX Holster with Claw and Monoblock Clip](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=optic-ready-canik-tp9sfx-iwb-kydex-holster-with-claw-and-monoblock-clip) - Experience superior concealed carry comfort and protection with the Canik TP9SFX IWB KYDEX Plus Line Holster - optimal for an everyday carry solution, while prioritizing durability, lightweight comfort, and optic readiness.
 
-8. [Covert IWB Kydex Holster for SIG SAUER P320 C / X-Carry](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the ultimate concealed carry solution with the Covert IWB Kydex Holster from Crucial Concealment - offering a minimalistic design, ambidextrous carry, and full cant adjustment for optimal comfort and secure retention.
+8. [Covert IWB Kydex Holster for SIG SAUER P320 C / X-Carry](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=covert-iwb-kydex-holster-for-sig-sauer-p320-c-x-carry) - Discover the ultimate concealed carry solution with the Covert IWB Kydex Holster from Crucial Concealment - offering a minimalistic design, ambidextrous carry, and full cant adjustment for optimal comfort and secure retention.
 
-9. [Adjustable Kydex IWB Holster for Canik TP9SF/TP9SF Elite](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the ultimate IWB Kydex holster for Canik TP9SF and TP9SF Elite models, designed for left-hand draw and palm-in, palm-out, and opposite hand options, ensuring flawless concealed carry and optimal comfort.
+9. [Adjustable Kydex IWB Holster for Canik TP9SF/TP9SF Elite](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=adjustable-kydex-iwb-holster-for-canik-tp9sftp9sf-elite) - Discover the ultimate IWB Kydex holster for Canik TP9SF and TP9SF Elite models, designed for left-hand draw and palm-in, palm-out, and opposite hand options, ensuring flawless concealed carry and optimal comfort.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Concealed Carry Holster for SCCY CPX1/CPX2](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Concealed Carry Holster for SCCY CPX1/CPX2](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=concealed-carry-holster-for-sccy-cpx1cpx2)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="klipt-iwb-sccy-cpx1-cpx2-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-sccy-cpx1-cpx2-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=klipt-iwb-sccy-cpx1-cpx2-holster-right-handed-inside-the-waistband-klipt-blade-tech-1"><img alt="klipt-iwb-sccy-cpx1-cpx2-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-sccy-cpx1-cpx2-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/public"/></a></div>
 
 I have been using the Blade-Tech Klipt IWB Holster for my SCCY CPX1/CPX2 for quite a while now, and I must say it has become my go-to holster for everyday carry. The slim design and concealability of this holster is exceptional, as it easily fits on my belt without adding any bulkiness, which I find very convenient.
 
@@ -50,9 +50,9 @@ Another notable aspect of the Blade-Tech Klipt IWB Holster is its smooth edges a
 
 Overall, this product offers great value as it is crafted with high-strength heat resistant polymer material produced in the USA. The superior fit and simplicity when attaching to your belt with its 1. 5" belt clip makes it an excellent option for everyday IWB carry without any added bulk or hassle!
 
-### [Concealable Kydex IWB Holster for Glock 19/19X](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Concealable Kydex IWB Holster for Glock 19/19X](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=concealable-kydex-iwb-holster-for-glock-1919x)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glock-19-19x-iwb-right-handed-holster-by-we-the-people-holsters-texas-flag-kydex-adjustable-secure-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-19-19x-iwb-right-handed-holster-by-we-the-people-holsters-texas-flag-kydex-adjustable-secure-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=glock-19-19x-iwb-right-handed-holster-by-we-the-people-holsters-texas-flag-kydex-adjustable-secure-1"><img alt="glock-19-19x-iwb-right-handed-holster-by-we-the-people-holsters-texas-flag-kydex-adjustable-secure-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-19-19x-iwb-right-handed-holster-by-we-the-people-holsters-texas-flag-kydex-adjustable-secure-1/public"/></a></div>
 
 I recently bought the Glock 19 IWB holster from We The People Holsters and have been using it for a month now. Overall, I'm very happy with my purchase. This holster is made of durable Kydex, which provides a thin profile while still keeping my Glock 19 secure. This makes concealment easy under most clothing types.
 
@@ -64,9 +64,9 @@ A notable aspect of this product is that all pieces are hand-molded and assemble
 
 In conclusion, We The People Holsters did a great job designing this Glock 19 IWB holster; its combination features & functionality make it stand out amongst other offerings within similar price range categories today - definitely worth considering if looking for a reliable yet affordable concealed carry solution tailored specifically towards owners of the Glock 19 series pistols!
 
-### [Adjustable Glock 43 IWB Kydex Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Adjustable Glock 43 IWB Kydex Holster for Concealed Carry](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=adjustable-glock-43-iwb-kydex-holster-for-concealed-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glock-43-43x-iwb-left-handed-holster-by-we-the-people-holsters-texas-flag-kydex-adjustable-secure-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-43-43x-iwb-left-handed-holster-by-we-the-people-holsters-texas-flag-kydex-adjustable-secure-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=glock-43-43x-iwb-left-handed-holster-by-we-the-people-holsters-texas-flag-kydex-adjustable-secure-1"><img alt="glock-43-43x-iwb-left-handed-holster-by-we-the-people-holsters-texas-flag-kydex-adjustable-secure-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-43-43x-iwb-left-handed-holster-by-we-the-people-holsters-texas-flag-kydex-adjustable-secure-1/public"/></a></div>
 
 I recently purchased the Glock 43/43X IWB Holster from We The People Holsters and have been using it for several weeks. My overall experience with this holster has been positive, with a few minor caveats.
 
@@ -78,9 +78,9 @@ The protective sweat guard helps minimize contact between your gun and body, red
 
 Lastly - red dot compatibility means users don't have any issues pairing these products together if they choose so (which makes sense given how popular red dots sights are becoming nowadays). While this feature isn't essential for everyone depending on their firearm setup preference; its inclusion adds value nonetheless by providing more options than many competing products available today! Overall - despite its few minor shortcomings, the Glock 43/43X IWB Holster from We The People Holsters provides great quality craftsmanship coupled with practical functionality making it a solid choice amongst concealed carry enthusiasts everywhere!
 
-### [Comfortable Concealment: Glock 43X MOS w/ Rail w/ TLR-7 Sub LightTuck IWB Holster](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Comfortable Concealment: Glock 43X MOS w/ Rail w/ TLR-7 Sub LightTuck IWB Holster](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=comfortable-concealment-glock-43x-mos-w-rail-w-tlr-7-sub-lighttuck-iwb-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glock-43x-mos-w-rail-w-tlr-7-sub-iwb-holster-lighttuck-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-43x-mos-w-rail-w-tlr-7-sub-iwb-holster-lighttuck-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=glock-43x-mos-w-rail-w-tlr-7-sub-iwb-holster-lighttuck-1"><img alt="glock-43x-mos-w-rail-w-tlr-7-sub-iwb-holster-lighttuck-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-43x-mos-w-rail-w-tlr-7-sub-iwb-holster-lighttuck-1/public"/></a></div>
 
 As a satisfied user of the Glock 43x MOS w/ Rail w/ TLR-7 Sub LightTuck IWB Kydex holster by Vedder Holsters, I can confidently say that this product delivers an exceptional combination of comfort, customization, and performance. The handcrafted design ensures a perfect fit for my gun model, while the thin profile makes carrying easy and comfortable throughout the day.
 
@@ -94,9 +94,9 @@ Additionally, each holster is available in two sizes to fit standard belts up to
 
 All in all; based on personal experience combined with objective assessment - The #1 selling Glock 43x MOS w/ Rail w/ TLR-7 Sub LightTuck IWB Kydex holster by Vedder Holsters definitely lives up its hype being widely considered one of if not THE best concealed carry option currently available today! Highly recommend giving them try yourself see how they stack against competitors firsthand!
 
-### [Open-Top Paddle Holster with ALS for Smith & Wesson M&P 1.0/2.0 Shield by Safariland](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Open-Top Paddle Holster with ALS for Smith & Wesson M&P 1.0/2.0 Shield by Safariland](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=open-top-paddle-holster-with-als-for-smith-wesson-mp-1020-shield-by-safariland)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="safariland-6378-als-paddle-holster-6378-179-413" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safariland-6378-als-paddle-holster-6378-179-413/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=safariland-6378-als-paddle-holster-6378-179-413"><img alt="safariland-6378-als-paddle-holster-6378-179-413" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safariland-6378-als-paddle-holster-6378-179-413/public"/></a></div>
 
 I recently tried the Safariland Model 6378 Open-Top Paddle Holster for my Smith & Wesson M&P 1. 0/2. 0 Shield 9mm and found it to be a reliable and comfortable option for everyday carry. The ALS (Automatic Locking System) ensures secure weapon retention while allowing for an easy, natural draw when needed. The contoured paddle design offers a slight forward cant that makes it ideal for hip carry, and the included belt loop attachment provides versatility in how you can wear the holster.
 
@@ -104,9 +104,9 @@ Another great feature of this holster is its ability to ride close to the body, 
 
 Overall, I have been very satisfied with the Safariland Model 6378 - it strikes a perfect balance between security, daily wearability, and discreetness, making it an excellent choice for anyone looking for reliable protection without sacrificing style.
 
-### [Customizable IWB Holster for Canik TP9 Elite Sub Compact](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Customizable IWB Holster for Canik TP9 Elite Sub Compact](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=customizable-iwb-holster-for-canik-tp9-elite-sub-compact)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="kiowa-2-0-light-bearing-holster-for-canik-tp9-elite-sub-compact-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kiowa-2-0-light-bearing-holster-for-canik-tp9-elite-sub-compact-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=kiowa-2-0-light-bearing-holster-for-canik-tp9-elite-sub-compact-1"><img alt="kiowa-2-0-light-bearing-holster-for-canik-tp9-elite-sub-compact-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kiowa-2-0-light-bearing-holster-for-canik-tp9-elite-sub-compact-1/public"/></a></div>
 
 As an experienced user, I've been using the Viper Arms Kiowa 2. 0 inside the waistband holster for a while now and have found it to provide superior concealment and comfort, even when carrying a firearm with additional attachments like a flashlight or laser sight. One of its standout features is its customizable design that can be adjusted to fit various setups without compromising on security or concealability. The included hooks, grips, and Mod Wing further contribute to achieving the perfect fit for your firearm while providing enhanced retention and easy draw capabilities.
 
@@ -114,9 +114,9 @@ Constructed from high-quality materials like durable Kydex molding, the Kiowa 2.
 
 On top of that, customers have had great experiences dealing with Viper Arms' prompt customer service team when needed help with their order or product customization options! Overall, if you're looking for an inside-the-waistband holster capable of catering specifically towards your unique setup requirements - consider trying out Viper Arms Kiowa 2. 0!
 
-### [Optic-Ready Canik TP9SFx IWB KYDEX Holster with Claw and Monoblock Clip](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Optic-Ready Canik TP9SFx IWB KYDEX Holster with Claw and Monoblock Clip](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=optic-ready-canik-tp9sfx-iwb-kydex-holster-with-claw-and-monoblock-clip)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="canik-tp9sfx-iwb-kydex-plus-line-holster-optic-ready-w-claw-monoblock-clip-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/canik-tp9sfx-iwb-kydex-plus-line-holster-optic-ready-w-claw-monoblock-clip-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=canik-tp9sfx-iwb-kydex-plus-line-holster-optic-ready-w-claw-monoblock-clip-1"><img alt="canik-tp9sfx-iwb-kydex-plus-line-holster-optic-ready-w-claw-monoblock-clip-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/canik-tp9sfx-iwb-kydex-plus-line-holster-optic-ready-w-claw-monoblock-clip-1/public"/></a></div>
 
 I have been using the Canik TP9SFX IWB KYDEX Plus Line Holster for some time, and all in all, it's been a great addition to my concealed carry setup. With its precision aluminum molds and user-adjustable retention system, my firearm fits like a glove and stays secure. The holster is also lightweight and comfortable, making it easy to wear all day long without any issues.
 
@@ -124,9 +124,9 @@ One standout feature of this holster is the 1. 5" monoblock gear metal belt clip
 
 Overall, if you are looking for an inside-the-waistband (IWB) holster for your Canik TP9SFX with optics, I would definitely recommend giving the Canik TP9SFX IWB KYDEX Plus Line Holster from Tipx Holsters a try. Made in the USA and backed by a lifetime warranty, it's an excellent option for any concealed carrier who values durability and reliability in their equipment.
 
-### [Covert IWB Kydex Holster for SIG SAUER P320 C / X-Carry](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Covert IWB Kydex Holster for SIG SAUER P320 C / X-Carry](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=covert-iwb-kydex-holster-for-sig-sauer-p320-c-x-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="covert-iwb-kydex-holster-sig-sauer-p320-c-x-carry-concealed-carry-apparel-arrowhead-tactical-apparel-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/covert-iwb-kydex-holster-sig-sauer-p320-c-x-carry-concealed-carry-apparel-arrowhead-tactical-apparel-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=covert-iwb-kydex-holster-sig-sauer-p320-c-x-carry-concealed-carry-apparel-arrowhead-tactical-apparel-1"><img alt="covert-iwb-kydex-holster-sig-sauer-p320-c-x-carry-concealed-carry-apparel-arrowhead-tactical-apparel-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/covert-iwb-kydex-holster-sig-sauer-p320-c-x-carry-concealed-carry-apparel-arrowhead-tactical-apparel-1/public"/></a></div>
 
 As a concealed carry license holder, I was excited to give the Covert IWB Holster a try. And after using it in my daily routine for several weeks, I can confidently say that this minimalistic holster has far exceeded my expectations. Comfort is definitely not an issue with the Covert IWB, as it fits snugly against my body without causing any discomfort or skin irritation. The retention is spot on too; secure enough to keep my firearm in place but easy enough to draw when needed.
 
@@ -134,9 +134,9 @@ I appreciate how easy this holster is to adjust and customize the cant angle for
 
 Overall, the Covert IWB Holster delivers on its promise of comfort, durability, and adjustability all while providing an unbeatable concealment solution without compromising either comfort or safety. It’s no wonder why it has become such a popular choice among fellow concealed carry enthusiasts like myself!
 
-### [Adjustable Kydex IWB Holster for Canik TP9SF/TP9SF Elite](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Adjustable Kydex IWB Holster for Canik TP9SF/TP9SF Elite](https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=adjustable-kydex-iwb-holster-for-canik-tp9sftp9sf-elite)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="rounded-iwb-kydex-holster-canik-tp9sf-tp9sf-elite-left-hand-carbon-fiber-black-cea000260-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rounded-iwb-kydex-holster-canik-tp9sf-tp9sf-elite-left-hand-carbon-fiber-black-cea000260-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=rounded-iwb-kydex-holster-canik-tp9sf-tp9sf-elite-left-hand-carbon-fiber-black-cea000260-1"><img alt="rounded-iwb-kydex-holster-canik-tp9sf-tp9sf-elite-left-hand-carbon-fiber-black-cea000260-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rounded-iwb-kydex-holster-canik-tp9sf-tp9sf-elite-left-hand-carbon-fiber-black-cea000260-1/public"/></a></div>
 
 After using the Concealment Express holster for my Canik TP9SFx, I can attest that it is a high-quality and reliable product. The KYDEX material used in construction provides a strong and durable foundation, ensuring long-lasting performance. The user-adjustable retention allows for customizable security, while the cant adjustability from -5 to +20 degrees offers optimal comfort and draw positioning.
 
@@ -146,17 +146,17 @@ Although there have been some concerns about potential issues with trigger guard
 
 Overall, this Concealment Express holster offers great value owing to its high quality craftsmanship backed by solid customer support which makes it a worthy investment for anyone looking for an inside waistband KYDEX holster perfect for everyday concealed carry uses!
 
-<div><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/TiPX+Holsters-2/public" alt="TiPX Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=tipx-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/TiPX+Holsters-2/public" alt="TiPX Holsters-2"></a></div>
 
 ## Buyer's Guide
 
-<div><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/TiPX+Holsters-3/public" alt="TiPX Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=tipx-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/TiPX+Holsters-3/public" alt="TiPX Holsters-3"></a></div>
 
 ### Understanding TiPX Holsters
 
 TiPX holsters are designed specifically for the Keltec TiPX pistol, offering secure and convenient storage. They are usually made from high-quality materials like leather, Kydex, and nylon, and come in various shapes and sizes to cater to different carrying styles and requirements.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/TiPX+Holsters-4/public" alt="TiPX Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=tipx-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/TiPX+Holsters-4/public" alt="TiPX Holsters-4"></a></div>
 
 ### Features to Consider
 
@@ -170,7 +170,7 @@ TiPX holsters are designed specifically for the Keltec TiPX pistol, offering sec
 
 - Durability: Invest in a holster made from sturdy materials to ensure it lasts through wear and tear.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/TiPX+Holsters-5/public" alt="TiPX Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=tipx-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/TiPX+Holsters-5/public" alt="TiPX Holsters-5"></a></div>
 
 ### Types of TiPX Holsters
 
@@ -186,7 +186,7 @@ There are various types of TiPX holsters available to cater to different needs a
 
 - Tactical Vests & Holsters: Offer quick and easy access to your weapon during law enforcement or tactical situations.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/TiPX+Holsters-6/public" alt="TiPX Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/tipx-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=tipx-holsters&utm_term=tipx-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/TiPX+Holsters-6/public" alt="TiPX Holsters-6"></a></div>
 
 ### Advice for Choosing the Right TiPX Holster
 

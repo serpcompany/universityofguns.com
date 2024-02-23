@@ -18,25 +18,25 @@ Whether you're a newcomer to the world of shooting or a seasoned expert, we've g
 
 ## The Top 6 Best Swinging Targets
 
-1. [High-Quality Shooting Plates](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience exceptional accuracy with the Ridgeline 3 Pack Target Set, designed for both rimfire and centerfire pistol and rifle practice, ensuring hours of enjoyable and challenging shooting activity.
+1. [High-Quality Shooting Plates](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=high-quality-shooting-plates) - Experience exceptional accuracy with the Ridgeline 3 Pack Target Set, designed for both rimfire and centerfire pistol and rifle practice, ensuring hours of enjoyable and challenging shooting activity.
 
-2. [Birchwood Casey Dueling Tree Target for Centerfire Handguns](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience ultimate precision with the Birchwood Casey Handgun Dueling Tree Shooting Target BWC-47430, designed for centerfire handguns with six 6-inch diameter steel paddles for 9mm to .45ACP testing. Easy assembly, no tools required.
+2. [Birchwood Casey Dueling Tree Target for Centerfire Handguns](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=birchwood-casey-dueling-tree-target-for-centerfire-handguns) - Experience ultimate precision with the Birchwood Casey Handgun Dueling Tree Shooting Target BWC-47430, designed for centerfire handguns with six 6-inch diameter steel paddles for 9mm to .45ACP testing. Easy assembly, no tools required.
 
-3. [Spinning 22 Caliber Target for Rimfire Shooting Experience](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the excitement of shooting with the SME 22 Caliber Spinner Target, perfect for .22 and .17 rifles, and enjoy its unique spinning feature that keeps it in position, providing hours of shooting fun for all ages.
+3. [Spinning 22 Caliber Target for Rimfire Shooting Experience](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=spinning-22-caliber-target-for-rimfire-shooting-experience) - Experience the excitement of shooting with the SME 22 Caliber Spinner Target, perfect for .22 and .17 rifles, and enjoy its unique spinning feature that keeps it in position, providing hours of shooting fun for all ages.
 
-4. [Dual Spinning Targets for .177 and .22 Caliber Rifles](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Crosman Dual Spinning Targets: Experience the excitement of sharpshooting with two target sizes and extra decals for endless challenges, all in a lightweight, portable, and easy-to-store design for seamless outdoor fun.
+4. [Dual Spinning Targets for .177 and .22 Caliber Rifles](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=dual-spinning-targets-for-177-and-22-caliber-rifles) - Crosman Dual Spinning Targets: Experience the excitement of sharpshooting with two target sizes and extra decals for endless challenges, all in a lightweight, portable, and easy-to-store design for seamless outdoor fun.
 
-5. [Magnetic Shooting Targets for Snipers](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Upgrade your shooting game with Top Shelf Targets' Magnetic Sniper Shooting Targets (8" - 4 Pack), designed to elevate your practice sessions, enhance skill development, and provide an enjoyable and challenging experience.
+5. [Magnetic Shooting Targets for Snipers](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=magnetic-shooting-targets-for-snipers) - Upgrade your shooting game with Top Shelf Targets' Magnetic Sniper Shooting Targets (8" - 4 Pack), designed to elevate your practice sessions, enhance skill development, and provide an enjoyable and challenging experience.
 
-6. [DIY Shooting Target System with Spinner Targets](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - EZ Aim Shooting Gallery Target Shooting System Kit: A versatile, build-your-own shooting gallery with durable, self-healing polymer spinners, all hardware for hanging gongs, and expandable gallery brackets, perfect for sighting in and training.
+6. [DIY Shooting Target System with Spinner Targets](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=diy-shooting-target-system-with-spinner-targets) - EZ Aim Shooting Gallery Target Shooting System Kit: A versatile, build-your-own shooting gallery with durable, self-healing polymer spinners, all hardware for hanging gongs, and expandable gallery brackets, perfect for sighting in and training.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [High-Quality Shooting Plates](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [High-Quality Shooting Plates](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=high-quality-shooting-plates)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="ridgeline-3-pack-target-set-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ridgeline-3-pack-target-set-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=ridgeline-3-pack-target-set-1"><img alt="ridgeline-3-pack-target-set-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ridgeline-3-pack-target-set-1/public"/></a></div>
 
 The Ridgeline 3 Pack Target Set, a perfect plinking partner for those hot summer days when you just want to unleash your inner sharpshooter. I've been using this set for a few weeks now, and it's been a game-changer. The set includes a 1-3/4 inch rimfire rifle/pistol dual spinner target, a 3-inch rimfire rifle/pistol spinner target, a 5-inch centerfire pistol spinner target, and a 5-inch centerfire rifle gong target.
 
@@ -46,9 +46,9 @@ However, one issue I've encountered is with the stability of the stands. They ca
 
 Overall, the Ridgeline 3 Pack Target Set is a great addition to any shooter's collection. It's affordable, easy to set up, and most importantly, a ton of fun to use. Despite the stability issue, I'm confident these will keep me entertained for many shooting sessions to come.
 
-### [Birchwood Casey Dueling Tree Target for Centerfire Handguns](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Birchwood Casey Dueling Tree Target for Centerfire Handguns](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=birchwood-casey-dueling-tree-target-for-centerfire-handguns)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="birchwood-casey-handgun-dueling-tree-shooting-target-bwc-47431" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/birchwood-casey-handgun-dueling-tree-shooting-target-bwc-47431/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=birchwood-casey-handgun-dueling-tree-shooting-target-bwc-47431"><img alt="birchwood-casey-handgun-dueling-tree-shooting-target-bwc-47431" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/birchwood-casey-handgun-dueling-tree-shooting-target-bwc-47431/public"/></a></div>
 
 As an avid handgun enthusiast, I recently got my hands on the Ar500 Dueling Tree target, and I must say, it's been a game-changer for my practice sessions. This larger frame target carries six 6-inch diameter steel paddles, making it a perfect dueling tree for handguns ranging from 9mm to. 45ACP. The paddles are 3/8 inch thick USA-made Ar500 steel, ensuring durability and long-lasting performance.
 
@@ -58,9 +58,9 @@ However, as with any product, there are a few cons to consider. Some users have 
 
 In conclusion, the Ar500 Dueling Tree target is an excellent choice for practicing your handgun skills. It offers durability, ease of assembly, and portability. Just keep in mind to use the recommended bullets to ensure the longevity of the target.
 
-### [Spinning 22 Caliber Target for Rimfire Shooting Experience](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Spinning 22 Caliber Target for Rimfire Shooting Experience](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=spinning-22-caliber-target-for-rimfire-shooting-experience)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="sme-22-caliber-spinner-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sme-22-caliber-spinner-target-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=sme-22-caliber-spinner-target-1"><img alt="sme-22-caliber-spinner-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sme-22-caliber-spinner-target-1/public"/></a></div>
 
 I recently picked up the SME 22 Caliber Spinner Target, and I must say, it has been a game-changer for my shooting practice. As a beginner shooter, I found the spinning feature particularly helpful in improving my accuracy. The target's sturdy base and stainless steel ground spikes ensure that it stays in place even during intense shooting sessions.
 
@@ -68,9 +68,9 @@ One of the highlights of this target is its compatibility with soft nose lead bu
 
 However, one con I noticed is that the target is quite small compared to other models in the market, which might be challenging for some shooters to aim at with precision. Overall, the SME 22 Caliber Spinner Target is an excellent choice for those looking for a dynamic, safe, and fun shooting target experience.
 
-### [Dual Spinning Targets for .177 and .22 Caliber Rifles](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Dual Spinning Targets for .177 and .22 Caliber Rifles](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=dual-spinning-targets-for-177-and-22-caliber-rifles)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="crosman-dual-spinning-targets-2-pack-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crosman-dual-spinning-targets-2-pack-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=crosman-dual-spinning-targets-2-pack-1"><img alt="crosman-dual-spinning-targets-2-pack-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crosman-dual-spinning-targets-2-pack-1/public"/></a></div>
 
 The Crosman Dual Spinning Targets are my go-to for air gun practice sessions. I've been using them with both. 177 and. 22 caliber pellet rifles, and they never disappoint. These compact spinning targets provide the perfect level of challenge, keeping me engaged and improving my skills.
 
@@ -82,9 +82,9 @@ However, there's one issue that I've noticed - the target decals could use some 
 
 Despite this minor setback, I find the Crosman Dual Spinning Targets incredibly enjoyable and beneficial for practicing my shooting skills.
 
-### [Magnetic Shooting Targets for Snipers](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Magnetic Shooting Targets for Snipers](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=magnetic-shooting-targets-for-snipers)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="top-shelf-targets-sniper-magnetic-shooting-targets-8-4-pack-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/top-shelf-targets-sniper-magnetic-shooting-targets-8-4-pack-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=top-shelf-targets-sniper-magnetic-shooting-targets-8-4-pack-1"><img alt="top-shelf-targets-sniper-magnetic-shooting-targets-8-4-pack-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/top-shelf-targets-sniper-magnetic-shooting-targets-8-4-pack-1/public"/></a></div>
 
 Experience precision and convenience with the Top Shelf Targets Magnetic Shooting Targets. This set, featuring four high-quality targets, is designed to elevate your shooting practice to a new level. Each target boasts an 8-inch diameter, providing a satisfying and challenging surface for honing your marksmanship skills. Crafted with durability in mind, these targets are not only robust but also equipped with a magnetic feature for easy setup and retrieval. Spend less time adjusting targets and more time perfecting your shot placement. Whether you're a seasoned shooter or a novice, these targets offer a dynamic and engaging experience every time you take aim.
 
@@ -96,9 +96,9 @@ However, there were a few minor inconveniences worth mentioning. Firstly, the wi
 
 Overall, I highly recommend the Top Shelf Targets Magnetic Shooting Targets for anyone looking to improve their shooting skills or add an extra layer of excitement to their practice sessions. The quality and convenience of these targets ultimately outweigh any minor flaws, making them a worthy addition to any hockey or lacrosse player's collection.
 
-### [DIY Shooting Target System with Spinner Targets](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [DIY Shooting Target System with Spinner Targets](https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=diy-shooting-target-system-with-spinner-targets)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="ez-aim-shooting-gallery-target-shooting-system-kit-by-allen-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ez-aim-shooting-gallery-target-shooting-system-kit-by-allen-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=ez-aim-shooting-gallery-target-shooting-system-kit-by-allen-1"><img alt="ez-aim-shooting-gallery-target-shooting-system-kit-by-allen-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ez-aim-shooting-gallery-target-shooting-system-kit-by-allen-1/public"/></a></div>
 
 My Experience with the EZ Aim Shooting Gallery Target Shooting System Kit
 
@@ -126,7 +126,7 @@ Swinging targets offer a more challenging and engaging shooting experience for e
 
 - mounting options - Ensure the target comes with suitable mounting options, such as a stand or hanging hooks, to secure it in place during practice.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Swinging+Targets-2/public" alt="Swinging Targets-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=swinging-targets-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Swinging+Targets-2/public" alt="Swinging Targets-2"></a></div>
 
 ### Considerations for Choosing the Best Swinging Target
 
@@ -156,7 +156,7 @@ To maximize the benefits and longevity of your swinging target, follow these tip
 
 Swinging targets provide an exciting and challenging way to improve your shooting skills. By considering important features, examining your specific needs, and following general advice, you can make an informed decision when selecting the best swinging target for your purposes. Remember to prioritize safety and practice good habits to ensure a rewarding and enjoyable shooting experience.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Swinging+Targets-3/public" alt="Swinging Targets-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=swinging-targets-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Swinging+Targets-3/public" alt="Swinging Targets-3"></a></div>
 
 ## FAQ
 
@@ -168,7 +168,7 @@ Swinging targets come in various designs, including steel spinning targets, spin
 
 Swinging targets help improve your shooting skills by providing moving targets that simulate real-life situations where targets are not stationary. This enables you to practice aiming, tracking, and shooting in motion, thereby improving your accuracy and speed.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Swinging+Targets-4/public" alt="Swinging Targets-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=swinging-targets-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Swinging+Targets-4/public" alt="Swinging Targets-4"></a></div>
 
 ### Can swinging targets be used with airsoft or paintball guns?
 
@@ -182,7 +182,7 @@ The installation process for swinging targets varies depending on the target typ
 
 To keep your swinging targets in good condition, clean them regularly with a soft cloth and mild detergent or rubbing alcohol. Store them in a dry, protected area away from extreme temperatures and moisture. If your target is galvanized or made of other weather-resistant materials, it will last longer and require less maintenance.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Swinging+Targets-5/public" alt="Swinging Targets-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=swinging-targets-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Swinging+Targets-5/public" alt="Swinging Targets-5"></a></div>
 
 ### What safety precautions should be taken when using swinging targets?
 
@@ -208,7 +208,7 @@ Consider factors such as the type of firearm you'll be using, your skill level, 
 
 - Steel targets are generally easier to install and maintain compared to other materials, such as paper or foam.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Swinging+Targets-6/public" alt="Swinging Targets-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/swinging-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=swinging-targets&utm_term=swinging-targets-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Swinging+Targets-6/public" alt="Swinging Targets-6"></a></div>
 
 ### Can swinging targets be used indoors?
 

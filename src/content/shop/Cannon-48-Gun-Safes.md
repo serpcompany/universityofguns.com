@@ -18,25 +18,25 @@ Get ready to discover top-quality craftsmanship, state-of-the-art security featu
 
 ## The Top 6 Best Cannon 48 Gun Safes
 
-1. [Cannon 48 Long Gun + 6 Handgun Safe with E-Lock and 45 Minute Fire Rating](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unmatched security and ample storage with Cannon's TS5934 Gun Safe, offering 48 long-gun and 6 handgun capacity, a 45-minute fire rating, and an electronic lock for reliable protection and easy access.
+1. [Cannon 48 Long Gun + 6 Handgun Safe with E-Lock and 45 Minute Fire Rating](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=cannon-48-long-gun-6-handgun-safe-with-e-lock-and-45-minute-fire-rating) - Experience unmatched security and ample storage with Cannon's TS5934 Gun Safe, offering 48 long-gun and 6 handgun capacity, a 45-minute fire rating, and an electronic lock for reliable protection and easy access.
 
-2. [Cannon 48 Gun Safe with Fire and Theft Protection](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience top-tier protection for your valuables with the Liberty Safe USA Series 48 Gun Safe, offering 60 minutes of fire resistance, reliable security features, and spacious storage for up to 48 long guns.
+2. [Cannon 48 Gun Safe with Fire and Theft Protection](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=cannon-48-gun-safe-with-fire-and-theft-protection) - Experience top-tier protection for your valuables with the Liberty Safe USA Series 48 Gun Safe, offering 60 minutes of fire resistance, reliable security features, and spacious storage for up to 48 long guns.
 
-3. [Cannon Gen II Cadet 48 Gun Safe](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Surelock Security Companys Gen II Cadet 48 is the largest safe in its series, offering secure storage for up to 48 guns and boasting a fire rating of 45 minutes at 1400F for added peace of mind.
+3. [Cannon Gen II Cadet 48 Gun Safe](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=cannon-gen-ii-cadet-48-gun-safe) - The Surelock Security Companys Gen II Cadet 48 is the largest safe in its series, offering secure storage for up to 48 guns and boasting a fire rating of 45 minutes at 1400F for added peace of mind.
 
-4. [Cabela's Outfitter 48 Gun Safe - E-Lock](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Cabela's Outfitter Gun Safe provides exceptional protection and organization for 48 guns, with a robust, 68,000-BTU fire-resistant construction and military-grade locking bars; perfect for safeguarding your treasured firearms and family valuables.
+4. [Cabela's Outfitter 48 Gun Safe - E-Lock](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=cabelas-outfitter-48-gun-safe-e-lock) - The Cabela's Outfitter Gun Safe provides exceptional protection and organization for 48 guns, with a robust, 68,000-BTU fire-resistant construction and military-grade locking bars; perfect for safeguarding your treasured firearms and family valuables.
 
-5. [Cabela's Classic Series Mechanical 48 Gun Safe](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience secure gun storage with the Cabela's Classic Series Gun Safe, boasting adjustable shelving, interior door panel, 12-gauge steel body, and a Palusol fire seal, providing reliable protection for up to 48 guns.
+5. [Cabela's Classic Series Mechanical 48 Gun Safe](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=cabelas-classic-series-mechanical-48-gun-safe) - Experience secure gun storage with the Cabela's Classic Series Gun Safe, boasting adjustable shelving, interior door panel, 12-gauge steel body, and a Palusol fire seal, providing reliable protection for up to 48 guns.
 
-6. [Cannon Safe Landmark Series LM3220 - Brown Fire Protection & Organization](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Cannon Landmark Series Safe, in a sleek Brown color, offers secure storage with adjustable shelves, pouches, and a 60-minute fire rating, perfect for protecting valuables and documents in tight spaces.
+6. [Cannon Safe Landmark Series LM3220 - Brown Fire Protection & Organization](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=cannon-safe-landmark-series-lm3220-brown-fire-protection-organization) - The Cannon Landmark Series Safe, in a sleek Brown color, offers secure storage with adjustable shelves, pouches, and a 60-minute fire rating, perfect for protecting valuables and documents in tight spaces.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Cannon 48 Long Gun + 6 Handgun Safe with E-Lock and 45 Minute Fire Rating](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Cannon 48 Long Gun + 6 Handgun Safe with E-Lock and 45 Minute Fire Rating](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=cannon-48-long-gun-6-handgun-safe-with-e-lock-and-45-minute-fire-rating)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cannon-48-long-gun-6-handgun-e-lock-45-min-fire-rating-gun-safe-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cannon-48-long-gun-6-handgun-e-lock-45-min-fire-rating-gun-safe-black-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=cannon-48-long-gun-6-handgun-e-lock-45-min-fire-rating-gun-safe-black-1"><img alt="cannon-48-long-gun-6-handgun-e-lock-45-min-fire-rating-gun-safe-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cannon-48-long-gun-6-handgun-e-lock-45-min-fire-rating-gun-safe-black-1/public"/></a></div>
 
 I recently purchased the Cannon TS5934 Gun Safe and have been using it for the past month. Assembly was a bit challenging, so I enlisted some help due to its weight. The size is perfect for my storage needs, as it accommodates 48 long guns and 6 handguns comfortably. The door organization is a nice touch, providing ample space for smaller items. The carpeted interior with black leatherette trim ensures that my valuables are protected from scratches and damage.
 
@@ -44,9 +44,9 @@ The electronic lock and keypad work seamlessly, giving me peace of mind about ac
 
 Overall, this product meets most of my expectations in terms of securing my firearms and other valuable items. Despite minor concerns about component quality and fire resistance information, it serves its purpose well in keeping my possessions safe from potential threats such as thieves or fires.
 
-### [Cannon 48 Gun Safe with Fire and Theft Protection](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Cannon 48 Gun Safe with Fire and Theft Protection](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=cannon-48-gun-safe-with-fire-and-theft-protection)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="liberty-safe-usa-48-60-min-gun-safe-textured-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/liberty-safe-usa-48-60-min-gun-safe-textured-black-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=liberty-safe-usa-48-60-min-gun-safe-textured-black-1"><img alt="liberty-safe-usa-48-60-min-gun-safe-textured-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/liberty-safe-usa-48-60-min-gun-safe-textured-black-1/public"/></a></div>
 
 I recently purchased the Liberty Safe USA 48 60 Min Gun Safe, and I must say it's one of the best choices I've made for securing my valuables. The textured black finish adds a sleek touch to my home decor while ensuring that my firearms are protected from theft, fires, and even curious little hands.
 
@@ -58,9 +58,9 @@ However, there are a couple of downsides as well. For starters, it's quite heavy
 
 Overall, I'm very satisfied with the Liberty Safe USA 48 60 Min Gun Safe. While there are a few drawbacks like weight and assembly instructions, the quality and security it offers make up for these minor issues. Highly recommended for anyone looking to protect their valuable possessions!
 
-### [Cannon Gen II Cadet 48 Gun Safe](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Cannon Gen II Cadet 48 Gun Safe](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=cannon-gen-ii-cadet-48-gun-safe)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="surelock-security-cadet-48-gun-and-home-safe-3418951" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/surelock-security-cadet-48-gun-and-home-safe-3418951/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=surelock-security-cadet-48-gun-and-home-safe-3418951"><img alt="surelock-security-cadet-48-gun-and-home-safe-3418951" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/surelock-security-cadet-48-gun-and-home-safe-3418951/public"/></a></div>
 
 I recently had the pleasure of investing in a SureLock Security Cadet 48 Gun and Home Safe, and I couldn't be more satisfied with my purchase! From the moment I unboxed this beauty, I was blown away by its sheer size and capabilities.
 
@@ -72,9 +72,9 @@ The only downside I found was the color scheme - while I love the mocha exterior
 
 In conclusion, the SureLock Security Cadet 48 Gun and Home Safe has exceeded all of my expectations. It's a reliable, spacious, and secure solution for anyone looking to safely store their possessions. Highly recommend!
 
-### [Cabela's Outfitter 48 Gun Safe - E-Lock](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Cabela's Outfitter 48 Gun Safe - E-Lock](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=cabelas-outfitter-48-gun-safe-e-lock)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cabelas-outfitter-gun-safe-e-lock-48-guns-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cabelas-outfitter-gun-safe-e-lock-48-guns-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=cabelas-outfitter-gun-safe-e-lock-48-guns-1"><img alt="cabelas-outfitter-gun-safe-e-lock-48-guns-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cabelas-outfitter-gun-safe-e-lock-48-guns-1/public"/></a></div>
 
 I recently purchased the Cabela's Outfitter Gun Safe and I couldn't be happier with my decision. Its robust construction and spacious interior provide a secure storage solution for my collection of firearms and other valuable items. The military-style locking bars give an extra layer of protection, and the fire-resistant capabilities are impressive.
 
@@ -84,9 +84,9 @@ On the downside, I found the initial setup and installation slightly challenging
 
 In conclusion, the Cabela's Outfitter Gun Safe has exceeded my expectations as a robust and reliable storage solution for my firearms and other valuables. While there were minor challenges during the setup process, the overall quality and protection offered by this safe make it well worth the investment.
 
-### [Cabela's Classic Series Mechanical 48 Gun Safe](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Cabela's Classic Series Mechanical 48 Gun Safe](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=cabelas-classic-series-mechanical-48-gun-safe)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cabelas-classic-series-gun-safe-mechanical-60-5-x-42-x-22-48-gun-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cabelas-classic-series-gun-safe-mechanical-60-5-x-42-x-22-48-gun-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=cabelas-classic-series-gun-safe-mechanical-60-5-x-42-x-22-48-gun-1"><img alt="cabelas-classic-series-gun-safe-mechanical-60-5-x-42-x-22-48-gun-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cabelas-classic-series-gun-safe-mechanical-60-5-x-42-x-22-48-gun-1/public"/></a></div>
 
 I recently got my hands on the Cabela's Classic Series Gun Safe, and I must say, it has been quite an experience. The adjustable shelving is a game-changer, giving me the flexibility to customize the storage according to my needs. It's like having my own mini armory!
 
@@ -96,9 +96,9 @@ However, not everything is perfect. The digital keypad, in particular, could use
 
 In conclusion, the Cabela's Classic Series Gun Safe offers ample storage and robust security features. Though it may have some minor drawbacks, overall, it's a reliable choice for anyone looking to secure their firearms. Plus, knowing it's made right here in the USA just adds to its appeal!
 
-### [Cannon Safe Landmark Series LM3220 - Brown Fire Protection & Organization](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Cannon Safe Landmark Series LM3220 - Brown Fire Protection & Organization](https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=cannon-safe-landmark-series-lm3220-brown-fire-protection-organization)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cannon-landmark-series-safe-brown-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cannon-landmark-series-safe-brown-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=cannon-landmark-series-safe-brown-1"><img alt="cannon-landmark-series-safe-brown-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cannon-landmark-series-safe-brown-1/public"/></a></div>
 
 Enter the realm of secured storage with the Cannon Safe Landmark Series LM3220. Standing tall at 32 inches, this safe is designed for those living in smaller spaces without compromising on the protection of your valuables. The adjustable shelves and pouches make it perfect for organizing your documents, electronic gadgets, jewelry, or even heirlooms. With a 60-minute fire rating, you can have peace of mind knowing that your belongings will be safe from fires.
 
@@ -112,7 +112,7 @@ However, there have been some issues reported with delivery damages. So, if poss
 
 Cannon 48 gun safes offer several features that make them great choices for gun storage. Here are some important aspects to consider when choosing a Cannon 48 gun safe:
 
-<div><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cannon+48+Gun+Safes-2/public" alt="Cannon 48 Gun Safes-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=cannon-48-gun-safes-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cannon+48+Gun+Safes-2/public" alt="Cannon 48 Gun Safes-2"></a></div>
 
 #### Fire Rating
 
@@ -126,7 +126,7 @@ Cannon 48 gun safes have sufficient capacity to store long guns, pistols, and am
 
 These safes offer robust security features like solid steel construction, recessed doors, and heavy-duty locking mechanisms that provide optimal protection against theft and unauthorized access.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cannon+48+Gun+Safes-3/public" alt="Cannon 48 Gun Safes-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=cannon-48-gun-safes-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cannon+48+Gun+Safes-3/public" alt="Cannon 48 Gun Safes-3"></a></div>
 
 ### Considerations for Choosing Cannon 48 Gun Safes
 
@@ -154,7 +154,7 @@ To make the most out of your Cannon 48 gun safe, adhere to the following recomme
 
 ## FAQ
 
-<div><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cannon+48+Gun+Safes-4/public" alt="Cannon 48 Gun Safes-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=cannon-48-gun-safes-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cannon+48+Gun+Safes-4/public" alt="Cannon 48 Gun Safes-4"></a></div>
 
 ### What is a Cannon 48 Gun Safe?
 
@@ -168,7 +168,7 @@ Cannon 48 Gun Safes are equipped with several features, including fully-welded s
 
 Cannon 48 Gun Safes are built with durability in mind, ensuring a secure environment for your firearms. They feature robust steel construction, tamper-resistant hinges, a heavy-duty lock, and drill-resistant mechanisms to protect against unauthorized access.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cannon+48+Gun+Safes-5/public" alt="Cannon 48 Gun Safes-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=cannon-48-gun-safes-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cannon+48+Gun+Safes-5/public" alt="Cannon 48 Gun Safes-5"></a></div>
 
 ### Do Cannon 48 Gun Safes have a fire rating?
 
@@ -182,7 +182,7 @@ When selecting a Cannon 48 Gun Safe, consider your storage capacity needs, the l
 
 Cannon 48 Gun Safes vary in weight, as they are available in different models and capacities. Typically, the weight can range from 600 pounds to over 1,000 pounds, depending on the specific model and features.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cannon+48+Gun+Safes-6/public" alt="Cannon 48 Gun Safes-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/cannon-48-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cannon-48-gun-safes&utm_term=cannon-48-gun-safes-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cannon+48+Gun+Safes-6/public" alt="Cannon 48 Gun Safes-6"></a></div>
 
 ### How do I install a Cannon 48 Gun Safe?
 

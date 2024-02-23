@@ -16,29 +16,29 @@ Looking for the perfect accessory to enhance your gun's aesthetics and functiona
 
 ## The Top 8 Best John Wayne Gun Belt
 
-1. [Durable and Comfortable Tactical Pistol Belt](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - UTG Heavy Duty Elite Law Enforcement Belt: Durably designed, customizable fit, and quick release, perfect for on-the-job use.
+1. [Durable and Comfortable Tactical Pistol Belt](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=durable-and-comfortable-tactical-pistol-belt) - UTG Heavy Duty Elite Law Enforcement Belt: Durably designed, customizable fit, and quick release, perfect for on-the-job use.
 
-2. [Durable and Comfortable Gun Belt for Everyday Carry](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Browning A000431800109 Gun Belt - Black Size 34 is a versatile, high-quality leather gun belt with a buckle closure, designed to securely support various sized holsters and pistols, featuring full grain buffalo leather and available in sizes 34-44.
+2. [Durable and Comfortable Gun Belt for Everyday Carry](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=durable-and-comfortable-gun-belt-for-everyday-carry) - The Browning A000431800109 Gun Belt - Black Size 34 is a versatile, high-quality leather gun belt with a buckle closure, designed to securely support various sized holsters and pistols, featuring full grain buffalo leather and available in sizes 34-44.
 
-3. [Rothco Black GI Style Pistol Belt with Metal Buckle](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Rothco's GI Style Pistol Belt with Metal Buckles is a high-quality, durable poly yarn belt perfect for military, tactical, and outdoor enthusiasts. Featuring a reliable hook and eye closure, this L-sized black belt is ideal for all your needs.
+3. [Rothco Black GI Style Pistol Belt with Metal Buckle](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=rothco-black-gi-style-pistol-belt-with-metal-buckle) - Rothco's GI Style Pistol Belt with Metal Buckles is a high-quality, durable poly yarn belt perfect for military, tactical, and outdoor enthusiasts. Featuring a reliable hook and eye closure, this L-sized black belt is ideal for all your needs.
 
-4. [High-Quality Full-Grain Leather Gun Belt](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - This premium leather gun holster belt by Hilason boasts full-grain Buffalo Hide construction, a 44" waist measurement, and stylish Western aesthetics, making it a durable and reliable choice for concealed carry.
+4. [High-Quality Full-Grain Leather Gun Belt](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=high-quality-full-grain-leather-gun-belt) - This premium leather gun holster belt by Hilason boasts full-grain Buffalo Hide construction, a 44" waist measurement, and stylish Western aesthetics, making it a durable and reliable choice for concealed carry.
 
-5. [Premium Classic Western Gun Belt](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the perfect blend of sophistication and functionality with this premium full-grain leather Gun Holster belt - a reliable and stylish companion for your daily adventures.
+5. [Premium Classic Western Gun Belt](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=premium-classic-western-gun-belt) - Experience the perfect blend of sophistication and functionality with this premium full-grain leather Gun Holster belt - a reliable and stylish companion for your daily adventures.
 
-6. [Authentic Western Gunman Costume Belt and Holster](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience authentic western charm with this 30'' Brown Gunman Belt & Holster, perfect for Halloween, themed parties, and sheriff costumes - an ideal accessory for adults seeking a genuine touch.
+6. [Authentic Western Gunman Costume Belt and Holster](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=authentic-western-gunman-costume-belt-and-holster) - Experience authentic western charm with this 30'' Brown Gunman Belt & Holster, perfect for Halloween, themed parties, and sheriff costumes - an ideal accessory for adults seeking a genuine touch.
 
-7. [38" Gun Holster Leather Work Belt with Durable Buckle, Made in USA](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience superior durability and comfort with this 38" Hilason Heavy Duty Made in USA Gun Holster Leather Work Belt in Brown, boasting a replaceable buckle and strong construction for long-lasting performance.
+7. [38" Gun Holster Leather Work Belt with Durable Buckle, Made in USA](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=38-gun-holster-leather-work-belt-with-durable-buckle-made-in-usa) - Experience superior durability and comfort with this 38" Hilason Heavy Duty Made in USA Gun Holster Leather Work Belt in Brown, boasting a replaceable buckle and strong construction for long-lasting performance.
 
-8. [Galco 1.5" Contour Concealment Belt - Havana](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience top-notch craftsmanship and durability with Galco's 1-1/2" Concealable Contour Belt, offering a stylish minimalist look and a secure fit with its solid brass buckle closure.
+8. [Galco 1.5" Contour Concealment Belt - Havana](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=galco-15-contour-concealment-belt-havana) - Experience top-notch craftsmanship and durability with Galco's 1-1/2" Concealable Contour Belt, offering a stylish minimalist look and a secure fit with its solid brass buckle closure.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Durable and Comfortable Tactical Pistol Belt](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Durable and Comfortable Tactical Pistol Belt](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=durable-and-comfortable-tactical-pistol-belt)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="utg-heavy-duty-elite-law-enforcement-belt-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/utg-heavy-duty-elite-law-enforcement-belt-black-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=utg-heavy-duty-elite-law-enforcement-belt-black-1"><img alt="utg-heavy-duty-elite-law-enforcement-belt-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/utg-heavy-duty-elite-law-enforcement-belt-black-1/public"/></a></div>
 
 As an avid lover of shooting sports, I recently decided to upgrade my gear with the UTG Heavy Duty Elite Law Enforcement Belt. Its sleek black design immediately caught my eye, and the heavy-duty construction told me it could handle anything I threw at it.
 
@@ -50,9 +50,9 @@ However, one minor criticism might be the plastic buckle, which feels slightly l
 
 Overall, if you're looking for a reliable, comfortable, and durable belt for your shooting needs, look no further than the UTG Heavy Duty Elite Law Enforcement Belt.
 
-### [Durable and Comfortable Gun Belt for Everyday Carry](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Durable and Comfortable Gun Belt for Everyday Carry](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=durable-and-comfortable-gun-belt-for-everyday-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="browning-a000431800109-gun-belt-black-size-35" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/browning-a000431800109-gun-belt-black-size-35/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=browning-a000431800109-gun-belt-black-size-35"><img alt="browning-a000431800109-gun-belt-black-size-35" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/browning-a000431800109-gun-belt-black-size-35/public"/></a></div>
 
 I recently had the chance to try out the Browning Gun Belt A0004318, and I must say, it's been a game-changer in my daily carry routine. . This belt is crafted from high-quality buffalo leather, making it incredibly durable and capable of handling the weight of a gun holster. . The thing that really stands out about this belt is its versatility. .
 
@@ -60,9 +60,9 @@ Its removable buckle feature allows me to switch it up depending on the situatio
 
 Although the manufacturer recommends going up a size or two for a proper fit, I found that I needed to go up four sizes based on my personal measurements. . Nonetheless, it's overall a reliable and comfortable accessory that has made my daily carry much more efficient. .
 
-### [Rothco Black GI Style Pistol Belt with Metal Buckle](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Rothco Black GI Style Pistol Belt with Metal Buckle](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=rothco-black-gi-style-pistol-belt-with-metal-buckle)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="rothco-gi-style-pistol-belt-with-metal-buckles-black-l-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rothco-gi-style-pistol-belt-with-metal-buckles-black-l-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=rothco-gi-style-pistol-belt-with-metal-buckles-black-l-1"><img alt="rothco-gi-style-pistol-belt-with-metal-buckles-black-l-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rothco-gi-style-pistol-belt-with-metal-buckles-black-l-1/public"/></a></div>
 
 As a fan of survivalist TV shows and movies, I've always been intrigued by the iconic GI Style Pistol Belt. So when I got my hands on Rothco's version, I was excited to try it out. The first thing that caught my eye was the high-quality brass buckle - it just screams durability and reliability. The belt itself, made from polyester with a metal buckle, feels sturdy and well-built, ready to handle whatever outdoor activities or tactical situations I throw at it.
 
@@ -72,9 +72,9 @@ However, one downside I've noticed is that the belt tends to sag a little over t
 
 All in all, I'm thrilled with Rothco's GI Style Pistol Belt With Metal Buckles. It's well-made, adjustable, and looks great with my tactical outfit. If you're looking for a reliable and stylish belt for your outdoor or tactical needs, this one is definitely worth considering.
 
-### [High-Quality Full-Grain Leather Gun Belt](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [High-Quality Full-Grain Leather Gun Belt](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=high-quality-full-grain-leather-gun-belt)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="30-in-leather-gun-holster-belt-carry-heavyduty-western-mens-concealed-hilason-tan-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/30-in-leather-gun-holster-belt-carry-heavyduty-western-mens-concealed-hilason-tan-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=30-in-leather-gun-holster-belt-carry-heavyduty-western-mens-concealed-hilason-tan-1"><img alt="30-in-leather-gun-holster-belt-carry-heavyduty-western-mens-concealed-hilason-tan-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/30-in-leather-gun-holster-belt-carry-heavyduty-western-mens-concealed-hilason-tan-1/public"/></a></div>
 
 This Western leather belt is a real showstopper, with premium full-grain buffalo hide leather that's not only luxurious but also incredibly durable. It's thick, wide, and sturdy, perfect for holding up a pair of jeans or toting around your firearm. The attention to detail is impressive, from the precise stitching to the expert hand tooling. Each belt develops its own unique patina over time, making it a personalized accessory that only gets better with age. The rich, natural color adds a touch of refined ruggedness to any outfit, whether you're dressing up for the office or dressing down for a casual night out. This belt is the epitome of quality craftsmanship, making it a reliable and stylish choice for anyone in need of a dependable leather belt.
 
@@ -84,9 +84,9 @@ In terms of cons, a few customers have reported issues with the belt's stitching
 
 Overall, this leather gun holster belt is a fantastic choice for anyone looking for a durable, high-quality belt that's perfect for concealed carry or everyday use. The luxurious leather, impeccable craftsmanship, and stylish design make it a standout accessory that's sure to elevate your confidence and enhance your personal style.
 
-### [Premium Classic Western Gun Belt](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Premium Classic Western Gun Belt](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=premium-classic-western-gun-belt)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="leather-gun-holster-belt-concealed-carry-heavyduty-western-mens-hilason-45" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/leather-gun-holster-belt-concealed-carry-heavyduty-western-mens-hilason-45/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=leather-gun-holster-belt-concealed-carry-heavyduty-western-mens-hilason-45"><img alt="leather-gun-holster-belt-concealed-carry-heavyduty-western-mens-hilason-45" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/leather-gun-holster-belt-concealed-carry-heavyduty-western-mens-hilason-45/public"/></a></div>
 
 I recently got my hands on this stylish and durable leather gun holster belt from Hilason, and I must say, it has quickly become an essential part of my daily wear. Crafted from high-quality full-grain buffalo hide leather, the belt boasts both a luxurious feel and exceptional durability. Its meticulous stitching and hand tooling make it a notch above the rest in terms of craftsmanship and workmanship.
 
@@ -98,9 +98,9 @@ While the belt's thickness and stiffness provide optimal support for daily use, 
 
 Overall, I am extremely satisfied with my Hilason leather gun holster belt. It's the perfect combination of style, comfort, and functionality, making it a worthwhile investment for anyone in search of a high-quality leather belt.
 
-### [Authentic Western Gunman Costume Belt and Holster](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Authentic Western Gunman Costume Belt and Holster](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=authentic-western-gunman-costume-belt-and-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="30-brown-gunman-belt-and-holster-men-adult-halloween-costume-accessory-one-size-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/30-brown-gunman-belt-and-holster-men-adult-halloween-costume-accessory-one-size-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=30-brown-gunman-belt-and-holster-men-adult-halloween-costume-accessory-one-size-1"><img alt="30-brown-gunman-belt-and-holster-men-adult-halloween-costume-accessory-one-size-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/30-brown-gunman-belt-and-holster-men-adult-halloween-costume-accessory-one-size-1/public"/></a></div>
 
 I recently got to use this cool cowboy-themed accessory for a costume party, and I must say, it's a fun addition to anyone's Western outfit. The 30-inch brown belt and holster is designed for one-size-fits-all adults, making it perfect for those seeking a quick and easy accessory without spending a fortune.
 
@@ -112,9 +112,9 @@ However, there are a few downsides that need to be mentioned. First, the materia
 
 In conclusion, if you're looking for an affordable and easy-to-use costume accessory that brings life to your cowboy outfit, this 30-inch brown belt and holster is a great choice! It's ideal for Halloween parties, themed events, or simply for those who love the Wild West look. Just remember that the belt and holster are made of synthetic leather and are not intended for daily use. Enjoy your cowboy persona to the fullest and make sure to practice your quick draw!
 
-### [38" Gun Holster Leather Work Belt with Durable Buckle, Made in USA](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [38" Gun Holster Leather Work Belt with Durable Buckle, Made in USA](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=38-gun-holster-leather-work-belt-with-durable-buckle-made-in-usa)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="38-hilason-heavy-duty-made-in-usa-gun-holster-leather-work-belt-brown-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/38-hilason-heavy-duty-made-in-usa-gun-holster-leather-work-belt-brown-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=38-hilason-heavy-duty-made-in-usa-gun-holster-leather-work-belt-brown-1"><img alt="38-hilason-heavy-duty-made-in-usa-gun-holster-leather-work-belt-brown-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/38-hilason-heavy-duty-made-in-usa-gun-holster-leather-work-belt-brown-1/public"/></a></div>
 
 I recently got my hands on the 38" Hilason Heavy Duty Made in USA Gun Holster Leather Work Belt in Brown, and I must say, it has been an absolute game-changer in my daily life. This isn't your average belt; it's designed with durability and flexibility in mind, making it perfect for both regular wear and carrying my holster.
 
@@ -124,9 +124,9 @@ I've been using this belt almost every day, and I can already see a difference i
 
 Overall, I would highly recommend the 38" Hilason Heavy Duty Made in USA Gun Holster Leather Work Belt in Brown to anyone looking for a reliable and comfortable option. Just keep in mind that it might not suit everyone's needs perfectly.
 
-### [Galco 1.5" Contour Concealment Belt - Havana](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Galco 1.5" Contour Concealment Belt - Havana](https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=galco-15-contour-concealment-belt-havana)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="galco-cb3-concealable-contour-belt-42-havana-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/galco-cb3-concealable-contour-belt-42-havana-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=galco-cb3-concealable-contour-belt-42-havana-1"><img alt="galco-cb3-concealable-contour-belt-42-havana-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/galco-cb3-concealable-contour-belt-42-havana-1/public"/></a></div>
 
 I've been using the Galco CB3 Concealable Contour Belt as my go-to accessory for quite some time now. The first thing that stood out to me was its exquisite leather material. This isn't your typical leather belt; it's made of premium saddle leather that's designed to last and remain incredibly durable. As someone who values quality and craftsmanship, I really appreciate this level of detail.
 
@@ -140,7 +140,7 @@ Overall, the Galco CB3 Concealable Contour Belt has been a reliable, high-qualit
 
 ### Welcome to the John Wayne Gun Belt Buyer's Guide!
 
-<div><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/John+Wayne+Gun+Belt-2/public" alt="John Wayne Gun Belt-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=john-wayne-gun-belt-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/John+Wayne+Gun+Belt-2/public" alt="John Wayne Gun Belt-2"></a></div>
 
 In this section, we'll provide you with an invaluable understanding of the important features, considerations, and general advice about John Wayne Gun Belts. This guide will help you make an informed decision when choosing your perfect belt for carrying firearms.
 
@@ -168,7 +168,7 @@ When shopping for a John Wayne Gun Belt, consider these factors:
 
 With the information provided in this John Wayne Gun Belt Buyer's Guide, we hope you feel more confident in your purchase decision. Remember, selecting the right gun belt is an essential part of responsible firearm ownership and carrying.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/John+Wayne+Gun+Belt-3/public" alt="John Wayne Gun Belt-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=john-wayne-gun-belt-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/John+Wayne+Gun+Belt-3/public" alt="John Wayne Gun Belt-3"></a></div>
 
 ## FAQ
 
@@ -178,7 +178,7 @@ The John Wayne Gun Belt is designed for the utmost comfort and durability, ensur
 
 ### How do I determine the right size for my John Wayne Gun Belt?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/John+Wayne+Gun+Belt-4/public" alt="John Wayne Gun Belt-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=john-wayne-gun-belt-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/John+Wayne+Gun+Belt-4/public" alt="John Wayne Gun Belt-4"></a></div>
 
 Please refer to the size chart provided in the product description to find the perfect fit for your waist size.
 
@@ -190,7 +190,7 @@ The John Wayne Gun Belt is made from premium quality leather, designed to hold u
 
 To maintain the quality and longevity of your John Wayne Gun Belt, we recommend keeping it clean and free of moisture. Wipe away any dirt or debris with a soft cloth and apply a leather conditioner periodically to keep the leather supple and prevent cracking.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/John+Wayne+Gun+Belt-5/public" alt="John Wayne Gun Belt-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=john-wayne-gun-belt-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/John+Wayne+Gun+Belt-5/public" alt="John Wayne Gun Belt-5"></a></div>
 
 ### I need to adjust the tension of my John Wayne Gun Belt. How should I do this?
 
@@ -202,7 +202,7 @@ The John Wayne Gun Belt is designed to accommodate various firearm models, inclu
 
 ### How quickly will my John Wayne Gun Belt ship?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/John+Wayne+Gun+Belt-6/public" alt="John Wayne Gun Belt-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/john-wayne-gun-belt?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=john-wayne-gun-belt&utm_term=john-wayne-gun-belt-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/John+Wayne+Gun+Belt-6/public" alt="John Wayne Gun Belt-6"></a></div>
 
 Please refer to the shipping information provided in your order confirmation email, or contact our customer service team for an estimated delivery date.
 

@@ -19,23 +19,23 @@ In the world of firearms, visibility can mean the difference between life and de
 
 ## The Top 9 Best TruGlo Night Sights
 
-1. [Truglo AC Range Rover Single-Pin Sight with Ultra-Smooth Bracket and Tool-Less Yardage Lock](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Experience precise, wind-resistant accuracy with TRUGLO's Range Rover .019 Black Sight featuring patented ZERO-IN Dial, ultra-smooth 1-hand adjustments, and durable construction with a 4.7-star rating.
+1. [Truglo AC Range Rover Single-Pin Sight with Ultra-Smooth Bracket and Tool-Less Yardage Lock](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=truglo-ac-range-rover-single-pin-sight-with-ultra-smooth-bracket-and-tool-less-yardage-lock) - Experience precise, wind-resistant accuracy with TRUGLO's Range Rover .019 Black Sight featuring patented ZERO-IN Dial, ultra-smooth 1-hand adjustments, and durable construction with a 4.7-star rating.
 
-2. [Ultra-Bright Fiber Optic Sight for Accurate Shots in Low Light](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Experience unparalleled accuracy with the Truglo TSX Pro 5 Pin .019 Sight Black w/Light - an award-winning design, offering lightning quick adjustments and silent performance for optimal shooting.
+2. [Ultra-Bright Fiber Optic Sight for Accurate Shots in Low Light](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=ultra-bright-fiber-optic-sight-for-accurate-shots-in-low-light) - Experience unparalleled accuracy with the Truglo TSX Pro 5 Pin .019 Sight Black w/Light - an award-winning design, offering lightning quick adjustments and silent performance for optimal shooting.
 
-3. [Truglo AC Range Rover Black Sight with Infinite Brightness Settings](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - The Truglo AC Range Rover .019 Black Sight offers precision and convenience, featuring a tool-less yardage lock, adjustable rheostat for infinite brightness settings, and extra-long wrapped fiber for a clean, circular sight picture.
+3. [Truglo AC Range Rover Black Sight with Infinite Brightness Settings](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=truglo-ac-range-rover-black-sight-with-infinite-brightness-settings) - The Truglo AC Range Rover .019 Black Sight offers precision and convenience, featuring a tool-less yardage lock, adjustable rheostat for infinite brightness settings, and extra-long wrapped fiber for a clean, circular sight picture.
 
-4. [Carbon Hybrid Micro Sight - Realtree Xtra](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - The Truglo 5-Pin .019 Carbon Hybrid Micro Sight delivers superb accuracy and vibration control in an advanced hybrid design perfect for right or left handed shooters.
+4. [Carbon Hybrid Micro Sight - Realtree Xtra](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=carbon-hybrid-micro-sight-realtree-xtra) - The Truglo 5-Pin .019 Carbon Hybrid Micro Sight delivers superb accuracy and vibration control in an advanced hybrid design perfect for right or left handed shooters.
 
-5. [Ultra-Lightweight Storm 5-Pin Sight](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Truglo Storm 5-Pin Sight: Upgrade your accuracy with this lightweight, adjustable sight for left and right-handed shooters, featuring enlarged circular view and durable fiber-wrapped pins.
+5. [Ultra-Lightweight Storm 5-Pin Sight](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=ultra-lightweight-storm-5-pin-sight) - Truglo Storm 5-Pin Sight: Upgrade your accuracy with this lightweight, adjustable sight for left and right-handed shooters, featuring enlarged circular view and durable fiber-wrapped pins.
 
-6. [Carbon Hybrid 5-Pin Sight for Strength & Durability](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Experience exceptional precision with the lightweight and durable Truglo Carbon Hybrid 5 Pin Sight, offering increased brightness and vibration reduction for a seamless shooting experience.
+6. [Carbon Hybrid 5-Pin Sight for Strength & Durability](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=carbon-hybrid-5-pin-sight-for-strength-durability) - Experience exceptional precision with the lightweight and durable Truglo Carbon Hybrid 5 Pin Sight, offering increased brightness and vibration reduction for a seamless shooting experience.
 
-7. [Truglo Tru-Lite Xtreme Adjustable Sight Illumination System](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Introducing the Truglo Tru-Lite Xtreme Adjustable Sight Light – your ultimate low-light companion, offering adjustable brightness settings, replaceable batteries, and compatibility with various sights for unmatched versatility and performance.
+7. [Truglo Tru-Lite Xtreme Adjustable Sight Illumination System](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=truglo-tru-lite-xtreme-adjustable-sight-illumination-system) - Introducing the Truglo Tru-Lite Xtreme Adjustable Sight Light – your ultimate low-light companion, offering adjustable brightness settings, replaceable batteries, and compatibility with various sights for unmatched versatility and performance.
 
-8. [Carbon XS Xtreme 5-Pin Bow Sight with Push Button LED Sight Light](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Discover the advanced archery sight for bowhunters - Carbon XS Xtreme by Tru Glo, combining carbon composite construction, Pro Brite pins, a longer mounting bracket, and an LED sight light for unmatched precision and durability.
+8. [Carbon XS Xtreme 5-Pin Bow Sight with Push Button LED Sight Light](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=carbon-xs-xtreme-5-pin-bow-sight-with-push-button-led-sight-light) - Discover the advanced archery sight for bowhunters - Carbon XS Xtreme by Tru Glo, combining carbon composite construction, Pro Brite pins, a longer mounting bracket, and an LED sight light for unmatched precision and durability.
 
-9. [Carbon XS Xtreme 5-Pin Bow Sight with LED Sight Light](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - The TruGlo Carbon Xs Xtreme 5-Pin Bow Sight offers unparalleled accuracy and visibility for archers, boasting a carbon composite construction, Pro Brite pins, longer mounting bracket, and an LED light for perfect shots in any lighting condition.
+9. [Carbon XS Xtreme 5-Pin Bow Sight with LED Sight Light](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=carbon-xs-xtreme-5-pin-bow-sight-with-led-sight-light) - The TruGlo Carbon Xs Xtreme 5-Pin Bow Sight offers unparalleled accuracy and visibility for archers, boasting a carbon composite construction, Pro Brite pins, longer mounting bracket, and an LED light for perfect shots in any lighting condition.
 
 *As an Amazon™ Associate, we earn from qualifying purchases.*
 
@@ -43,9 +43,9 @@ In the world of firearms, visibility can mean the difference between life and de
 ## Reviews
 
 
-### [Truglo AC Range Rover Single-Pin Sight with Ultra-Smooth Bracket and Tool-Less Yardage Lock](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Truglo AC Range Rover Single-Pin Sight with Ultra-Smooth Bracket and Tool-Less Yardage Lock](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=truglo-ac-range-rover-single-pin-sight-with-ultra-smooth-bracket-and-tool-less-yardage-lock)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="truglo-ac-range-rover-019-black-sight-with-light-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-ac-range-rover-019-black-sight-with-light-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=truglo-ac-range-rover-019-black-sight-with-light-1"><img alt="truglo-ac-range-rover-019-black-sight-with-light-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-ac-range-rover-019-black-sight-with-light-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Truglo Range Rover. 019 Black Sight with Light for a while now, and it has been an absolute game-changer for my archery experience. This single-pin sight is incredibly well-made and provides unmatched precision and adjustability. The innovative ZERO-IN Adjustment Dial allows for ultra-smooth, remarkably precise micro-adjustable elevation tuning, which has helped me in difficult hunting conditions. 
 
@@ -56,9 +56,9 @@ However, there is one potential downside to this sight - the fiber optics can be
 Overall, the Truglo Range Rover. 019 Black Sight with Light has significantly improved my archery performance and has become an indispensable part of my hunting gear. Its innovative features and ease of use make it an excellent choice for anyone looking to upgrade their bow sight. 
 
 
-### [Ultra-Bright Fiber Optic Sight for Accurate Shots in Low Light](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Ultra-Bright Fiber Optic Sight for Accurate Shots in Low Light](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=ultra-bright-fiber-optic-sight-for-accurate-shots-in-low-light)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="truglo-tsx-pro-5-pin-019-sight-black-w-light-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-tsx-pro-5-pin-019-sight-black-w-light-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=truglo-tsx-pro-5-pin-019-sight-black-w-light-1"><img alt="truglo-tsx-pro-5-pin-019-sight-black-w-light-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-tsx-pro-5-pin-019-sight-black-w-light-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the TruGlo TSX Pro Series Standard Sight and I've been using it extensively for the past few weeks. This sight is based on the award-winning TRU-SITE XTREME Series design, making it an ultrastrong and lightweight option for any archer. The stainless steel tube helps illuminate the pins, while the ultra-fine click adjustment allows for precise windage and elevation adjustments. 
 
@@ -71,9 +71,9 @@ However, there are some cons that I've encountered while using this sight. First
 Overall, I've had a positive experience with the TruGlo TSX Pro Series Standard Sight. It offers various useful features and is a great option for those looking to improve their accuracy and overall shooting experience. While there are some minor drawbacks, such as the not-so-bright light and finicky pin alignment, I believe that these can be easily overlooked given the sight's many benefits and competitive price point. 
 
 
-### [Truglo AC Range Rover Black Sight with Infinite Brightness Settings](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Truglo AC Range Rover Black Sight with Infinite Brightness Settings](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=truglo-ac-range-rover-black-sight-with-infinite-brightness-settings)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="truglo-ac-range-rover-019-black-sight-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-ac-range-rover-019-black-sight-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=truglo-ac-range-rover-019-black-sight-1"><img alt="truglo-ac-range-rover-019-black-sight-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-ac-range-rover-019-black-sight-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the Truglo AC Range Rover. 019 Black Sight, and it's been a game-changer for my target shooting experience. The first thing that struck me was how easy it was to set up. The tool-less yardage lock and smooth bracket movement made it incredibly user-friendly, even for someone like me who's not particularly tech-savvy. 
 
@@ -84,9 +84,9 @@ However, there are a few minor cons to consider. Some users reported issues with
 Despite these minor drawbacks, the overall experience with the Truglo AC Range Rover. 019 Black Sight has been overwhelmingly positive. Its durability, ease of use, and adaptability make it a worthwhile investment for anyone looking to enhance their target shooting skills. 
 
 
-### [Carbon Hybrid Micro Sight - Realtree Xtra](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Carbon Hybrid Micro Sight - Realtree Xtra](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=carbon-hybrid-micro-sight-realtree-xtra)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="truglo-5-pin-019-carbon-hybrid-micro-sight-left-right-realtree-xtra-camouflage-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-5-pin-019-carbon-hybrid-micro-sight-left-right-realtree-xtra-camouflage-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=truglo-5-pin-019-carbon-hybrid-micro-sight-left-right-realtree-xtra-camouflage-1"><img alt="truglo-5-pin-019-carbon-hybrid-micro-sight-left-right-realtree-xtra-camouflage-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-5-pin-019-carbon-hybrid-micro-sight-left-right-realtree-xtra-camouflage-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 When I first got my hands on the Truglo 5-Pin. 019 Carbon Hybrid Micro Sight in Realtree Xtra Camouflage, I was excited to try it out. This little beauty boasts an impressive blend of aluminum and carbon composites, making it both lightweight and incredibly durable. Right from the get-go, it felt solid and sturdy, just what I needed for my shooting adventures. 
 
@@ -95,9 +95,9 @@ One of the standout features for me was the Tru-Fusion Hybrid technology that re
 The one downside I noticed was that the light wasn't as bright as I'd hoped, but it did the job well enough for my needs. Overall, I'd say the Truglo 5-Pin. 019 Carbon Hybrid Micro Sight is a fantastic choice for left and right-handed shooters alike, offering excellent quality and performance at a reasonable price. 
 
 
-### [Ultra-Lightweight Storm 5-Pin Sight](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Ultra-Lightweight Storm 5-Pin Sight](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=ultra-lightweight-storm-5-pin-sight)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="truglo-storm-5-pin-sight-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-storm-5-pin-sight-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=truglo-storm-5-pin-sight-1"><img alt="truglo-storm-5-pin-sight-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-storm-5-pin-sight-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 The Truglo Storm 5-Pin Sight is a game-changer for archers looking for precision and durability at an affordable price. I've been using it for a few months now, and I must say, I am thoroughly impressed by its performance. 
 
@@ -110,9 +110,9 @@ However, there are certain downsides to the Truglo Storm 5-Pin Sight as well. Fo
 Overall, the Truglo Storm 5-Pin Sight is a fantastic product that offers incredible value for money. Its durability, ease of use, and performance make it an excellent choice for hunters and archery enthusiasts alike. 
 
 
-### [Carbon Hybrid 5-Pin Sight for Strength & Durability](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Carbon Hybrid 5-Pin Sight for Strength & Durability](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=carbon-hybrid-5-pin-sight-for-strength-durability)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="truglo-carbon-hybrid-micro-adjust-5-pin-sight-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-carbon-hybrid-micro-adjust-5-pin-sight-black-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=truglo-carbon-hybrid-micro-adjust-5-pin-sight-black-1"><img alt="truglo-carbon-hybrid-micro-adjust-5-pin-sight-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-carbon-hybrid-micro-adjust-5-pin-sight-black-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 The Truglo Carbon Hybrid Micro Adjust 5 Pin Sight is a game-changer in the archery world. As someone who's been using this sight for quite some time now, I can't recommend it enough. Constructed with Tru-Fusion Hybrid Technology, this beauty is made up of lightweight carbon composites and aluminum for durability and weight reduction. The hybrid construction also effectively transfers less vibration, making your shots smoother and more precise. 
 
@@ -127,9 +127,9 @@ However, one drawback I've noticed is the lack of adjustment markings on the win
 All in all, the Truglo Carbon Hybrid Micro Adjust 5 Pin Sight has become an indispensable part of my archery setup. Its combination of quality materials, innovative features, and ease of use make it a top choice for anyone looking to upgrade their sight. 
 
 
-### [Truglo Tru-Lite Xtreme Adjustable Sight Illumination System](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Truglo Tru-Lite Xtreme Adjustable Sight Illumination System](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=truglo-tru-lite-xtreme-adjustable-sight-illumination-system)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="truglo-tru-lite-xtreme-adjustable-sight-light-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-tru-lite-xtreme-adjustable-sight-light-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=truglo-tru-lite-xtreme-adjustable-sight-light-1"><img alt="truglo-tru-lite-xtreme-adjustable-sight-light-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-tru-lite-xtreme-adjustable-sight-light-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Truglo Tru-Lite Xtreme Adjustable Sight Light for a few weeks now and it's been an absolute game-changer, especially during those low-light situations when you're out hunting. The adjustable rheostat is a standout feature that allows me to set the brightness just right, so I can clearly see my pins without any glaring halo effect. 
 
@@ -140,9 +140,9 @@ However, there are a couple of cons worth mentioning. The on/off switch isn't th
 Despite these minor drawbacks, the Truglo Tru-Lite Xtreme Adjustable Sight Light is a solid choice for hunters looking to enhance their night sights. Its unique features, like the adjustable rheostat and replaceable batteries, make it a reliable and versatile option for low-light conditions. 
 
 
-### [Carbon XS Xtreme 5-Pin Bow Sight with Push Button LED Sight Light](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Carbon XS Xtreme 5-Pin Bow Sight with Push Button LED Sight Light](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=carbon-xs-xtreme-5-pin-bow-sight-with-push-button-led-sight-light)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="truglo-carbon-xs-extreme-sight-realtree-xtra-5-pin-019-rh-lh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-carbon-xs-extreme-sight-realtree-xtra-5-pin-019-rh-lh-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=truglo-carbon-xs-extreme-sight-realtree-xtra-5-pin-019-rh-lh-1"><img alt="truglo-carbon-xs-extreme-sight-realtree-xtra-5-pin-019-rh-lh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-carbon-xs-extreme-sight-realtree-xtra-5-pin-019-rh-lh-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 As a passionate bowhunter, I've experienced numerous bow sights in my journey, but the Truglo Carbon Xs Xtreme changed my game entirely. Its carbon composite construction offers unrivaled strength and lightness, making it a perfect companion for long hunting sessions. 
 
@@ -155,9 +155,9 @@ However, there's a minor setback - the LED light could use an improvement in its
 Overall, the Truglo Carbon Xs Xtreme is a fantastic add-on to any bowhunter's kit. Its blend of performance, affordability, and durability makes it a must-have. And though it may falter slightly with the LED light, its other features more than make up for it. 
 
 
-### [Carbon XS Xtreme 5-Pin Bow Sight with LED Sight Light](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Carbon XS Xtreme 5-Pin Bow Sight with LED Sight Light](https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=carbon-xs-xtreme-5-pin-bow-sight-with-led-sight-light)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="truglo-carbon-xs-xtreme-5-pin-bow-sight-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-carbon-xs-xtreme-5-pin-bow-sight-black-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=truglo-carbon-xs-xtreme-5-pin-bow-sight-black-1"><img alt="truglo-carbon-xs-xtreme-5-pin-bow-sight-black-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-carbon-xs-xtreme-5-pin-bow-sight-black-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I recently stumbled upon the Truglo Carbon Xs Xtreme 5-Pin Bow Sight, and let me tell you, it's been a game-changer. As a bowhunter, I was drawn to its carbon composite construction and Pro Brite pins that promise optimal visibility. I must say, the Carbon Xs Xtreme does not disappoint. 
 
@@ -172,7 +172,7 @@ In conclusion, the Truglo Carbon Xs Xtreme 5-Pin Bow Sight is an exceptional pro
 
 Proper maintenance will extend the life of your TruGlo night sights. Regularly inspect for damage or wear, clean with a soft cloth and non-abrasive cleaner, and store in a protective case when not in use. 
 
-<div><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/TruGlo-Night-Sights-2/w=720,h=540,fit=pad,background=black" alt="TruGlo-Night-Sights-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=truglo-night-sights-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/TruGlo-Night-Sights-2/w=720,h=540,fit=pad,background=black" alt="TruGlo-Night-Sights-2"></a></div>
 
 
 ### Warranty and Support
@@ -184,7 +184,7 @@ Choose a product that comes with a solid warranty and easy access to customer su
 
 By considering these various factors and features, you will be better equipped to choose the perfect TruGlo night sights for your needs, ensuring optimal performance and accuracy in low-light conditions. 
 
-<div><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/TruGlo-Night-Sights-3/w=720,h=540,fit=pad,background=black" alt="TruGlo-Night-Sights-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=truglo-night-sights-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/TruGlo-Night-Sights-3/w=720,h=540,fit=pad,background=black" alt="TruGlo-Night-Sights-3"></a></div>
 
 
 ## FAQ
@@ -194,7 +194,7 @@ By considering these various factors and features, you will be better equipped t
 
 TruGlo Night Sights are advanced, high-visibility sights designed for use in low-light conditions. They provide enhanced visibility and quick target acquisition, helping shooters to aim and shoot accurately in various lighting scenarios. 
 
-<div><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/TruGlo-Night-Sights-4/w=720,h=540,fit=pad,background=black" alt="TruGlo-Night-Sights-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=truglo-night-sights-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/TruGlo-Night-Sights-4/w=720,h=540,fit=pad,background=black" alt="TruGlo-Night-Sights-4"></a></div>
 
 
 ### How do TruGlo Night Sights function?
@@ -206,7 +206,7 @@ TruGlo Night Sights use tritium and fiber optic technologies to provide a glowin
 
 TruGlo Night Sights are designed for a variety of handguns, including revolvers and semi-automatics. Some popular types of firearms compatible with these sights are Glock, Smith & Wesson, Ruger, and Springfield. Before purchasing, it is essential to check the compatibility of the sights with your specific firearm. 
 
-<div><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/TruGlo-Night-Sights-5/w=720,h=540,fit=pad,background=black" alt="TruGlo-Night-Sights-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=truglo-night-sights-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/TruGlo-Night-Sights-5/w=720,h=540,fit=pad,background=black" alt="TruGlo-Night-Sights-5"></a></div>
 
 
 ### Why should I choose TruGlo Night Sights over other night sight brands?
@@ -218,7 +218,7 @@ TruGlo is a respected and well-established brand in the firearm accessory market
 
 The tritium inserts in TruGlo Night Sights have a half-life of approximately 12 years. This means that over time, their brightness will gradually diminish, but they will still remain visible. After this period, you may consider replacing the sights to maintain optimal performance. 
 
-<div><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/TruGlo-Night-Sights-6/w=720,h=540,fit=pad,background=black" alt="TruGlo-Night-Sights-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/truglo-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=truglo-night-sights&utm_term=truglo-night-sights-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/TruGlo-Night-Sights-6/w=720,h=540,fit=pad,background=black" alt="TruGlo-Night-Sights-6"></a></div>
 
 
 ### Can I install TruGlo Night Sights myself, or should I hire a professional?

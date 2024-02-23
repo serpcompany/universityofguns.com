@@ -16,33 +16,33 @@ Are you in search of the perfect holster to secure your Springfield 911? Look no
 
 ## The Top 10 Best Springfield 911 Holsters
 
-1. [Blade-Tech Signature OWB Holster for Springfield XD 3](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the perfect combination of durability, precision, and affordability in our adjustable and IDPA-legal Signature OWB Holster, specifically designed for the Springfield XD 3", and enjoy a secure fit for your firearm while maintaining a swift draw.
+1. [Blade-Tech Signature OWB Holster for Springfield XD 3](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=blade-tech-signature-owb-holster-for-springfield-xd-3) - Experience the perfect combination of durability, precision, and affordability in our adjustable and IDPA-legal Signature OWB Holster, specifically designed for the Springfield XD 3", and enjoy a secure fit for your firearm while maintaining a swift draw.
 
-2. [Signature OWB Holster for Springfield XD 5](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Blade-Tech Signature OWB Holster for the Springfield XD 5" offers a high-quality, adjustable retention outside waistband holster with a positive locking trigger guard and IDPA legal optic ready speed cut for quick draw and secure firearm storage.
+2. [Signature OWB Holster for Springfield XD 5](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=signature-owb-holster-for-springfield-xd-5) - The Blade-Tech Signature OWB Holster for the Springfield XD 5" offers a high-quality, adjustable retention outside waistband holster with a positive locking trigger guard and IDPA legal optic ready speed cut for quick draw and secure firearm storage.
 
-3. [Springfield XD Mod.2 3.3" .45 OWB Holster for Competitive Shooters](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience optimal performance and safety at an affordable price with the Blade-Tech Signature OWB Holster for Springfield XD Mod.2 3.3" .45 - a high-quality, durable, and adjustable holster perfect for competitive shooters and range training.
+3. [Springfield XD Mod.2 3.3" .45 OWB Holster for Competitive Shooters](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=springfield-xd-mod2-33-45-owb-holster-for-competitive-shooters) - Experience optimal performance and safety at an affordable price with the Blade-Tech Signature OWB Holster for Springfield XD Mod.2 3.3" .45 - a high-quality, durable, and adjustable holster perfect for competitive shooters and range training.
 
-4. [Concealed IWB Kydex Holster for Springfield 911 380 & Bersa 380](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unmatched comfort and concealment with our C&G Holsters Covert IWB Holster for Springfield 911 380 Left Hand Black 1034-100, featuring solid locking retention and precision craftsmanship for optimal performance.
+4. [Concealed IWB Kydex Holster for Springfield 911 380 & Bersa 380](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=concealed-iwb-kydex-holster-for-springfield-911-380-bersa-380) - Experience unmatched comfort and concealment with our C&G Holsters Covert IWB Holster for Springfield 911 380 Left Hand Black 1034-100, featuring solid locking retention and precision craftsmanship for optimal performance.
 
-5. [Springfield XDM 5.25" OWB Holster for Competition and Concealed Carry](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience precision and durability with the Blade-Tech Classic OWB Holster for Springfield XDM 5.25", offering adjustable retention and secure trigger lock for confident carrying in competitions or daily use.
+5. [Springfield XDM 5.25" OWB Holster for Competition and Concealed Carry](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=springfield-xdm-525-owb-holster-for-competition-and-concealed-carry) - Experience precision and durability with the Blade-Tech Classic OWB Holster for Springfield XDM 5.25", offering adjustable retention and secure trigger lock for confident carrying in competitions or daily use.
 
-6. [Springfield XD 9mm/.40 S&W/.45ACP Polymer OWB Paddle Holster](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Gun & Flower's Outside Waistband (OWB) Polymer Paddle Holster offers a perfect fit for Springfield XD 9mm/.40S&W/.45ACP pistols, providing exceptional level II retention, free shipping in the USA, fast delivery, and a lifetime warranty.
+6. [Springfield XD 9mm/.40 S&W/.45ACP Polymer OWB Paddle Holster](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=springfield-xd-9mm40-sw45acp-polymer-owb-paddle-holster) - Gun & Flower's Outside Waistband (OWB) Polymer Paddle Holster offers a perfect fit for Springfield XD 9mm/.40S&W/.45ACP pistols, providing exceptional level II retention, free shipping in the USA, fast delivery, and a lifetime warranty.
 
-7. [Total Eclipse 2.0 IWB/OWB Modular Holster for Springfield XD-S 3.3" 9/40](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the ultimate versatility and secure fit with the Blade-Tech Total Eclipse 2.0 IWB/OWB Modular Holster for the Springfield XD-S, offering a toolless, auto-locking design and ambidextrous compatibility.
+7. [Total Eclipse 2.0 IWB/OWB Modular Holster for Springfield XD-S 3.3" 9/40](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=total-eclipse-20-iwbowb-modular-holster-for-springfield-xd-s-33-940) - Experience the ultimate versatility and secure fit with the Blade-Tech Total Eclipse 2.0 IWB/OWB Modular Holster for the Springfield XD-S, offering a toolless, auto-locking design and ambidextrous compatibility.
 
-8. [Adjustable Black Kydex IWB Holster for Springfield XD-S 3.3](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Springfield XD-S 3.3" IWB Right-Handed Holster by We The People Holsters offers unmatched comfort, adjustability, and secure concealment for the discerning firearm enthusiast.
+8. [Adjustable Black Kydex IWB Holster for Springfield XD-S 3.3](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=adjustable-black-kydex-iwb-holster-for-springfield-xd-s-33) - The Springfield XD-S 3.3" IWB Right-Handed Holster by We The People Holsters offers unmatched comfort, adjustability, and secure concealment for the discerning firearm enthusiast.
 
-9. [Comfortable and Concealable Holster for Springfield 911](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - De Santis The Criss Cross Holster provides quick and secure deployment of the SIG P938, Kimber Micro 9, and Springfield 911 9mm pistols in a well-concealed, minimalistic design.
+9. [Comfortable and Concealable Holster for Springfield 911](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=comfortable-and-concealable-holster-for-springfield-911) - De Santis The Criss Cross Holster provides quick and secure deployment of the SIG P938, Kimber Micro 9, and Springfield 911 9mm pistols in a well-concealed, minimalistic design.
 
-10. [Custom Kydex Holster for Springfield XD Mod 2 9/40 with Audible Retention](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unrivaled precision and comfort with Springfield XD Mod 2 9/40 4" OWB Covert Kydex Holster, featuring custom 1.75" belt loops, tall sight channel, 100% American made, and lifetime guarantee by veterans and law enforcement.
+10. [Custom Kydex Holster for Springfield XD Mod 2 9/40 with Audible Retention](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=custom-kydex-holster-for-springfield-xd-mod-2-940-with-audible-retention) - Experience unrivaled precision and comfort with Springfield XD Mod 2 9/40 4" OWB Covert Kydex Holster, featuring custom 1.75" belt loops, tall sight channel, 100% American made, and lifetime guarantee by veterans and law enforcement.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Blade-Tech Signature OWB Holster for Springfield XD 3](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Blade-Tech Signature OWB Holster for Springfield XD 3](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=blade-tech-signature-owb-holster-for-springfield-xd-3)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="springfield-xd-3-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-sprin-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/springfield-xd-3-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-sprin-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=springfield-xd-3-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-sprin-1"><img alt="springfield-xd-3-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-sprin-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/springfield-xd-3-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-sprin-1/public"/></a></div>
 
 Having used the Blade-Tech Signature OWB Holster for the Springfield XD 3" extensively, I can confidently vouch for its durability and exceptional build quality. Made from a strong polymer blend, this holster is designed to last. Its IDPA legal Optic Ready Speed Cut ensures quick muzzle clearance, while the precision molded design provides a perfect fit for my firearm.
 
@@ -52,9 +52,9 @@ On the positive side, this holster offers many attachment options to meet variou
 
 Overall, while there are some areas that could be improved, I still consider this holster to be a reliable option for carrying outside the waistband given its performance relative to its price point.
 
-### [Signature OWB Holster for Springfield XD 5](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Signature OWB Holster for Springfield XD 5](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=signature-owb-holster-for-springfield-xd-5)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="springfield-xd-5-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-sprin-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/springfield-xd-5-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-sprin-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=springfield-xd-5-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-sprin-1"><img alt="springfield-xd-5-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-sprin-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/springfield-xd-5-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-sprin-1/public"/></a></div>
 
 I recently got my hands on the Blade-Tech Signature OWB Holster and I must say, it has become an essential part of my gear as a competitive shooter. The holster is made from a strong, heat-resistant polymer which ensures that my firearm stays secure and safe. The adjustable retention feature allows me to customize the fit of the holster around my gun, ensuring it stays in place even during intense training sessions.
 
@@ -64,9 +64,9 @@ The precision molding technique used in manufacturing this holster ensures that 
 
 While I have been extremely satisfied with this product thus far, there are some areas for improvement like providing more options to precisely adjust the angle/cant of the holster/pistol which would be helpful for users who prefer a more customized fit. However, given its price point and durability compared to other options within its range, I believe that this product offers great value for money spent!
 
-### [Springfield XD Mod.2 3.3" .45 OWB Holster for Competitive Shooters](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Springfield XD Mod.2 3.3" .45 OWB Holster for Competitive Shooters](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=springfield-xd-mod2-33-45-owb-holster-for-competitive-shooters)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="springfield-xd-mod-2-3-3-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-wais-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/springfield-xd-mod-2-3-3-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-wais-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=springfield-xd-mod-2-3-3-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-wais-1"><img alt="springfield-xd-mod-2-3-3-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-wais-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/springfield-xd-mod-2-3-3-45-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-wais-1/public"/></a></div>
 
 As a product reviewer, I have had the opportunity to try out this holster while carrying my Springfield XD Mod. 2 3. 3". 45 on a daily basis. My experience with this holster has been overwhelmingly positive, thanks to the durable build and rigidity offered by its proprietary polymer blend construction. It does an exceptional job of keeping my firearm safe and secure during extensive travels and concealed carry use.
 
@@ -74,9 +74,9 @@ One standout feature that I particularly appreciate is the IDPA legal optic read
 
 While there are minor drawbacks like adjusting retention being somewhat tricky due to requiring specialized tools, overall these are inconsequential to the great functionality and value for money provided by this holster. It comes as no surprise it's so well-loved among competitive shooters and casual carriers alike - high-quality construction combined with customization options for varying needs or scenarios make it an excellent choice for on-the-go protection!
 
-### [Concealed IWB Kydex Holster for Springfield 911 380 & Bersa 380](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Concealed IWB Kydex Holster for Springfield 911 380 & Bersa 380](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=concealed-iwb-kydex-holster-for-springfield-911-380-bersa-380)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cg-holsters-covert-iwb-holsters-springfield-911-380-right-hand-black-1034-101" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-covert-iwb-holsters-springfield-911-380-right-hand-black-1034-101/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=cg-holsters-covert-iwb-holsters-springfield-911-380-right-hand-black-1034-101"><img alt="cg-holsters-covert-iwb-holsters-springfield-911-380-right-hand-black-1034-101" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cg-holsters-covert-iwb-holsters-springfield-911-380-right-hand-black-1034-101/public"/></a></div>
 
 When I ordered a holster for my Springfield 911 from C&G Holsters, I was impressed by the smooth and easy ordering process. Within a short period, the package arrived and exceeded my expectations. The holster fits perfectly around my gun, holding it snugly without being uncomfortable or hindering a smooth draw.
 
@@ -86,9 +86,9 @@ What sets C&G Holsters apart from others is their attention to detail and except
 
 Overall, if you are looking for high-quality Kydex holsters for your Springfield 911 or any other gun make – you should definitely consider C&G Holsters! Their solid locking retention ensures safety while providing an audible "click" when securely holstered; plus the black color offers subtlety perfect for concealment purposes!
 
-### [Springfield XDM 5.25" OWB Holster for Competition and Concealed Carry](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Springfield XDM 5.25" OWB Holster for Competition and Concealed Carry](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=springfield-xdm-525-owb-holster-for-competition-and-concealed-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="springfield-xdm-5-25-owb-holster-right-handed-springfield-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/springfield-xdm-5-25-owb-holster-right-handed-springfield-blade-tech-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=springfield-xdm-5-25-owb-holster-right-handed-springfield-blade-tech-1"><img alt="springfield-xdm-5-25-owb-holster-right-handed-springfield-blade-tech-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/springfield-xdm-5-25-owb-holster-right-handed-springfield-blade-tech-1/public"/></a></div>
 
 Having used the Blade-Tech Classic OWB Holster for my Springfield XD-M 5. 25" for a considerable amount of time now, I can say with confidence that it has been a fantastic addition to my equipment. The adjustable retention is an outstanding feature, allowing me to fine-tune the fit of my gun and ensuring it's comfortable and secure when worn.
 
@@ -98,9 +98,9 @@ However, like with any product, there are some areas where improvements could be
 
 Nonetheless, despite these minor hiccups that could potentially improve user experience further down the road - Blade-Tech's Classic OWB Holster delivers on its promise of providing precise fit and top-notch performance every time I use it.
 
-### [Springfield XD 9mm/.40 S&W/.45ACP Polymer OWB Paddle Holster](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Springfield XD 9mm/.40 S&W/.45ACP Polymer OWB Paddle Holster](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=springfield-xd-9mm40-sw45acp-polymer-owb-paddle-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="springfield-armory-xd-9mm-40-sw-45acp-polymer-owb-paddle-level-ii-retention-holster-gun-flower-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/springfield-armory-xd-9mm-40-sw-45acp-polymer-owb-paddle-level-ii-retention-holster-gun-flower-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=springfield-armory-xd-9mm-40-sw-45acp-polymer-owb-paddle-level-ii-retention-holster-gun-flower-1"><img alt="springfield-armory-xd-9mm-40-sw-45acp-polymer-owb-paddle-level-ii-retention-holster-gun-flower-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/springfield-armory-xd-9mm-40-sw-45acp-polymer-owb-paddle-level-ii-retention-holster-gun-flower-1/public"/></a></div>
 
 I recently acquired the Springfield XD 9 mm/. 40 S&W/. 45 ACP Polymer OWB Paddle Gun & Flower Holster for my everyday carry needs, and I must say that it has become an essential part of my gear. The level II retention feature ensures that my firearm stays securely in place while the adjustable paddle allows me to achieve a comfortable fit against my body.
 
@@ -108,9 +108,9 @@ The holster's durability and flexibility are top-notch, providing excellent cust
 
 Overall, I have not faced any issues with this holster since using it and would happily recommend it to anyone looking for reliable gun safety and security solutions.
 
-### [Total Eclipse 2.0 IWB/OWB Modular Holster for Springfield XD-S 3.3" 9/40](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Total Eclipse 2.0 IWB/OWB Modular Holster for Springfield XD-S 3.3" 9/40](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=total-eclipse-20-iwbowb-modular-holster-for-springfield-xd-s-33-940)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="springfield-xd-s-3-3-9-40-iwb-owb-holster-usa-made-total-eclipse-2-0-holster-inside-outside-the-wais-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/springfield-xd-s-3-3-9-40-iwb-owb-holster-usa-made-total-eclipse-2-0-holster-inside-outside-the-wais-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=springfield-xd-s-3-3-9-40-iwb-owb-holster-usa-made-total-eclipse-2-0-holster-inside-outside-the-wais-1"><img alt="springfield-xd-s-3-3-9-40-iwb-owb-holster-usa-made-total-eclipse-2-0-holster-inside-outside-the-wais-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/springfield-xd-s-3-3-9-40-iwb-owb-holster-usa-made-total-eclipse-2-0-holster-inside-outside-the-wais-1/public"/></a></div>
 
 The Blade-Tech Total Eclipse 2. 0 IWB/OWB Modular Holster for Springfield XD-S 3. 3" 9mm has become my go-to choice due to its exceptional features and versatility. The auto-locking, toolless design with Mod-Lok allows me to smoothly transition from OWB to IWB carry without any hassle. The holster's adaptability is impressive, as it can be customized with a variety of quick-release mods to fit specific needs.
 
@@ -118,9 +118,9 @@ As an ambidextrous holster, it's suitable for both left and right-handed shooter
 
 This holster sits comfortably close to my body with its slim design, and each mod can be swiveled up to 180 degrees ensuring natural movement with no printing when I'm carrying concealed. Compared with other popular holsters on the market today, Blade-Tech Total Eclipse 2. 0 stands out for its quality build and customizability without being too expensive! Whether you need a comfortable everyday carry option or one suited for specific situations like hunting or competitions - this fantastic product from Blade Tech should be at the top of your list!
 
-### [Adjustable Black Kydex IWB Holster for Springfield XD-S 3.3](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Adjustable Black Kydex IWB Holster for Springfield XD-S 3.3](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=adjustable-black-kydex-iwb-holster-for-springfield-xd-s-33)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="springfield-xd-s-3-3-iwb-right-handed-holster-by-we-the-people-holsters-black-kydex-adjustable-secur-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/springfield-xd-s-3-3-iwb-right-handed-holster-by-we-the-people-holsters-black-kydex-adjustable-secur-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=springfield-xd-s-3-3-iwb-right-handed-holster-by-we-the-people-holsters-black-kydex-adjustable-secur-1"><img alt="springfield-xd-s-3-3-iwb-right-handed-holster-by-we-the-people-holsters-black-kydex-adjustable-secur-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/springfield-xd-s-3-3-iwb-right-handed-holster-by-we-the-people-holsters-black-kydex-adjustable-secur-1/public"/></a></div>
 
 I have been using the Springfield XD-S 3. 3" IWB Holster by We The People Holsters for some time now and it has become one of my go-to choices. The holster is constructed from durable Kydex material, specifically designed for the Springfield XD-S 3. 3" pistol, ensuring a snug fit and excellent concealment.
 
@@ -130,15 +130,15 @@ After using this product consistently over time, I experienced one minor issue w
 
 Overall, this IWB holster offers numerous standout features such as adjustable retention and cant angle, as well as a protective sweat guard for added comfort while ensuring secure access when drawing your weapon. The customer service also goes above and beyond to ensure satisfaction with their products making it a great choice for anyone looking to conceal carry their Springfield XD-S 3. 3" pistol discreetly and safely.
 
-### [Comfortable and Concealable Holster for Springfield 911](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Comfortable and Concealable Holster for Springfield 911](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=comfortable-and-concealable-holster-for-springfield-911)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="de-santis-the-criss-cross-holster-black-right-fits-sig-p938-kimber-micro-9-springfield-911-9-mm-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/de-santis-the-criss-cross-holster-black-right-fits-sig-p938-kimber-micro-9-springfield-911-9-mm-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=de-santis-the-criss-cross-holster-black-right-fits-sig-p938-kimber-micro-9-springfield-911-9-mm-1"><img alt="de-santis-the-criss-cross-holster-black-right-fits-sig-p938-kimber-micro-9-springfield-911-9-mm-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/de-santis-the-criss-cross-holster-black-right-fits-sig-p938-kimber-micro-9-springfield-911-9-mm-1/public"/></a></div>
 
 I've been using the Criss-Cross concealed carry holster with my SIG P938 for some time now, and it has proven itself as a reliable option for everyday carry. The premium American cowhide construction provides both durability and comfort during use. One standout feature is the adjustable tensioning devices, which allow me to customize the fit and retention to my preferences. Drawing my firearm from this well-concealed platform is easy and hassle-free. Although there have been some minor issues fitting other micro handguns like my Kimber Micro 9, overall, the Criss-Cross holster has exceeded expectations as a practical choice for daily use.
 
-### [Custom Kydex Holster for Springfield XD Mod 2 9/40 with Audible Retention](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Custom Kydex Holster for Springfield XD Mod 2 9/40 with Audible Retention](https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=custom-kydex-holster-for-springfield-xd-mod-2-940-with-audible-retention)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="springfield-xd-mod-2-9-40-4-owb-covert-kydex-holster-custom-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/springfield-xd-mod-2-9-40-4-owb-covert-kydex-holster-custom-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=springfield-xd-mod-2-9-40-4-owb-covert-kydex-holster-custom-1"><img alt="springfield-xd-mod-2-9-40-4-owb-covert-kydex-holster-custom-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/springfield-xd-mod-2-9-40-4-owb-covert-kydex-holster-custom-1/public"/></a></div>
 
 I've had the pleasure of using the Springfield 911 Holster for a while now, and I can confidently say that it's one of my top choices when it comes to holsters. The custom C&G 1. 75" belt loops offer a comfortable fit and allow me to easily adjust the height of my carry. The tall sight channel fits red dots or suppressor sights, which is incredibly useful for me. It's also great to know that this product is made in America by veterans and law enforcement personnel with guaranteed craftsmanship, giving you peace of mind on its quality and durability.
 
@@ -150,7 +150,7 @@ I must mention my slight experience of ordering the incorrect model initially bu
 
 ### Important Features to Consider in Springfield 911 Holsters
 
-<div><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Springfield+911+Holsters-2/public" alt="Springfield 911 Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=springfield-911-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Springfield+911+Holsters-2/public" alt="Springfield 911 Holsters-2"></a></div>
 
 When choosing a holster for your Springfield 911, there are several features that you should look for:
 
@@ -180,7 +180,7 @@ To ensure the longevity and proper functioning of your holster, follow these tip
 
 - Store Properly: When not in use, store your holster in a cool, dry place away from direct sunlight or heat sources. This will help prevent damage and keep your holster in good working condition.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Springfield+911+Holsters-3/public" alt="Springfield 911 Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=springfield-911-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Springfield+911+Holsters-3/public" alt="Springfield 911 Holsters-3"></a></div>
 
 ## FAQ
 
@@ -190,7 +190,7 @@ There are various types of Springfield 911 holsters available, including IWB (In
 
 ### How do I determine the right holster size for my Springfield 911?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Springfield+911+Holsters-4/public" alt="Springfield 911 Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=springfield-911-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Springfield+911+Holsters-4/public" alt="Springfield 911 Holsters-4"></a></div>
 
 To find the right holster, measure your Springfield 911's overall length (OAL), barrel length, and grip width. Be sure to match these dimensions with your chosen holster to ensure a proper fit and secure carry.
 
@@ -206,7 +206,7 @@ Clean your holster regularly using mild soap and water or leather cleaner and co
 
 - Opt for high-quality materials to ensure a durable and secure holster.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Springfield+911+Holsters-5/public" alt="Springfield 911 Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=springfield-911-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Springfield+911+Holsters-5/public" alt="Springfield 911 Holsters-5"></a></div>
 
 ### How can I ensure a proper fit for my Springfield 911 in my holster?
 
@@ -224,7 +224,7 @@ In addition to measuring your gun correctly, check for a secure retention mechan
 
 ### How can I ensure a safe and secure carry with a Springfield 911 holster?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Springfield+911+Holsters-6/public" alt="Springfield 911 Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/springfield-911-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=springfield-911-holsters&utm_term=springfield-911-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Springfield+911+Holsters-6/public" alt="Springfield 911 Holsters-6"></a></div>
 
 Choose a high-quality holster with strong retention and secure carry options, such as thumb break or adjustable retention screws. Also, invest in proper training and practice to ensure safe and efficient draw and reholstering.
 

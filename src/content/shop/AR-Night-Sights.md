@@ -21,15 +21,15 @@ AR Night Sights is an in-depth review of the finest products for night shoots. F
 
 ## The Top 5 Best AR Night Sights
 
-1. [Truglo AC Range Rover Single-Pin Sight with Ultra-Smooth Bracket and Tool-Less Yardage Lock](https://serp.ly/@universityofguns/amazon/ar-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Experience precise, wind-resistant accuracy with TRUGLO's Range Rover .019 Black Sight featuring patented ZERO-IN Dial, ultra-smooth 1-hand adjustments, and durable construction with a 4.7-star rating.
+1. [Truglo AC Range Rover Single-Pin Sight with Ultra-Smooth Bracket and Tool-Less Yardage Lock](https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ar-night-sights&utm_term=truglo-ac-range-rover-single-pin-sight-with-ultra-smooth-bracket-and-tool-less-yardage-lock) - Experience precise, wind-resistant accuracy with TRUGLO's Range Rover .019 Black Sight featuring patented ZERO-IN Dial, ultra-smooth 1-hand adjustments, and durable construction with a 4.7-star rating.
 
-2. [HHA Optimizer Ultra x Sight for AR Pistols](https://serp.ly/@universityofguns/amazon/ar-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - The HHA Optimizer Ultra x Sight 5010 .010 RH boasts an unmatched level of adjustment precision, making it easier for shooters to make accurate 2nd axis and vertical adjustments while improving sight tapes range and overall performance.
+2. [HHA Optimizer Ultra x Sight for AR Pistols](https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ar-night-sights&utm_term=hha-optimizer-ultra-x-sight-for-ar-pistols) - The HHA Optimizer Ultra x Sight 5010 .010 RH boasts an unmatched level of adjustment precision, making it easier for shooters to make accurate 2nd axis and vertical adjustments while improving sight tapes range and overall performance.
 
-3. [YITAHOME Multi-Functional Sleeper Sofa Bed with Linen Fabric, Light Gray](https://serp.ly/@universityofguns/amazon/ar-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - The HHA 3019 Optimizer Lite .019 1 Pin Sight is a top-notch 20-80-yard targeting solution, offering fully protected fiber optics, tool-free adjustments, and a sleek 1 5/8" housing for precise and hassle-free performance.
+3. [YITAHOME Multi-Functional Sleeper Sofa Bed with Linen Fabric, Light Gray](https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ar-night-sights&utm_term=yitahome-multi-functional-sleeper-sofa-bed-with-linen-fabric-light-gray) - The HHA 3019 Optimizer Lite .019 1 Pin Sight is a top-notch 20-80-yard targeting solution, offering fully protected fiber optics, tool-free adjustments, and a sleek 1 5/8" housing for precise and hassle-free performance.
 
-4. [HHA Optimizer Ultra x Sight for Precise Shooting](https://serp.ly/@universityofguns/amazon/ar-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Optimizer Ultra X Sight 5019": Experience top-notch accuracy and durability with this highly praised single-pin sight, perfect for versatile and rugged use in 3D competitions and beyond.
+4. [HHA Optimizer Ultra x Sight for Precise Shooting](https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ar-night-sights&utm_term=hha-optimizer-ultra-x-sight-for-precise-shooting) - Optimizer Ultra X Sight 5019": Experience top-notch accuracy and durability with this highly praised single-pin sight, perfect for versatile and rugged use in 3D competitions and beyond.
 
-5. [HHA Optimizer Ultra x XL Sight 5500 XL: Advanced Sighting Technology](https://serp.ly/@universityofguns/amazon/ar-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Experience seamless sight adjustments with the HHA Optimizer Ultra x XL Sight 5500 XL .029 RH, offering 2nd axis and vertical adjustments, and an Infinite Adjust Slotted Slide Bracket for enhanced accuracy and range optimization.
+5. [HHA Optimizer Ultra x XL Sight 5500 XL: Advanced Sighting Technology](https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ar-night-sights&utm_term=hha-optimizer-ultra-x-xl-sight-5500-xl-advanced-sighting-technology) - Experience seamless sight adjustments with the HHA Optimizer Ultra x XL Sight 5500 XL .029 RH, offering 2nd axis and vertical adjustments, and an Infinite Adjust Slotted Slide Bracket for enhanced accuracy and range optimization.
 
 *As an Amazon™ Associate, we earn from qualifying purchases.*
 
@@ -37,9 +37,9 @@ AR Night Sights is an in-depth review of the finest products for night shoots. F
 ## Reviews
 
 
-### [Truglo AC Range Rover Single-Pin Sight with Ultra-Smooth Bracket and Tool-Less Yardage Lock](https://serp.ly/@universityofguns/amazon/ar-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Truglo AC Range Rover Single-Pin Sight with Ultra-Smooth Bracket and Tool-Less Yardage Lock](https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ar-night-sights&utm_term=truglo-ac-range-rover-single-pin-sight-with-ultra-smooth-bracket-and-tool-less-yardage-lock)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="truglo-ac-range-rover-019-black-sight-with-light-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-ac-range-rover-019-black-sight-with-light-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ar-night-sights&utm_term=truglo-ac-range-rover-019-black-sight-with-light-1"><img alt="truglo-ac-range-rover-019-black-sight-with-light-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-ac-range-rover-019-black-sight-with-light-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Truglo Range Rover. 019 Black Sight with Light for a while now, and it has been an absolute game-changer for my archery experience. This single-pin sight is incredibly well-made and provides unmatched precision and adjustability. The innovative ZERO-IN Adjustment Dial allows for ultra-smooth, remarkably precise micro-adjustable elevation tuning, which has helped me in difficult hunting conditions. 
 
@@ -50,9 +50,9 @@ However, there is one potential downside to this sight - the fiber optics can be
 Overall, the Truglo Range Rover. 019 Black Sight with Light has significantly improved my archery performance and has become an indispensable part of my hunting gear. Its innovative features and ease of use make it an excellent choice for anyone looking to upgrade their bow sight. 
 
 
-### [HHA Optimizer Ultra x Sight for AR Pistols](https://serp.ly/@universityofguns/amazon/ar-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [HHA Optimizer Ultra x Sight for AR Pistols](https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ar-night-sights&utm_term=hha-optimizer-ultra-x-sight-for-ar-pistols)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hha-optimizer-ultra-x-sight-5010-010-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-optimizer-ultra-x-sight-5010-010-rh-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ar-night-sights&utm_term=hha-optimizer-ultra-x-sight-5010-010-rh-1"><img alt="hha-optimizer-ultra-x-sight-5010-010-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-optimizer-ultra-x-sight-5010-010-rh-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 The HHA Ultra x Sight has become an exceptional addition to my hunting gear. This single pin sight not only simplifies the process but also enhances my accuracy. The R. D. S sight tape technology is a game-changer, allowing me to fine-tune my sighting at 20 yards and extend my shooting range. The Infinite Adjust Slotted Slide Bracket is another impressive feature, making 2nd axis and vertical adjustments a breeze. 
 
@@ -63,9 +63,9 @@ However, the primary drawback is the difficulty in adjusting the sight during qu
 In summary, the HHA Ultra x Sight is a high-quality, durable, and well-built single pin sight that greatly enhances shooting accuracy. However, it may not be ideal for situations where targets are rapidly changing distances. Overall, it's a worthwhile investment for any hunter looking to improve their accuracy and simplify their sighting process. 
 
 
-### [YITAHOME Multi-Functional Sleeper Sofa Bed with Linen Fabric, Light Gray](https://serp.ly/@universityofguns/amazon/ar-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [YITAHOME Multi-Functional Sleeper Sofa Bed with Linen Fabric, Light Gray](https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ar-night-sights&utm_term=yitahome-multi-functional-sleeper-sofa-bed-with-linen-fabric-light-gray)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hha-3019-optimizer-lite-019-1-pin-sight-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-3019-optimizer-lite-019-1-pin-sight-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ar-night-sights&utm_term=hha-3019-optimizer-lite-019-1-pin-sight-1"><img alt="hha-3019-optimizer-lite-019-1-pin-sight-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-3019-optimizer-lite-019-1-pin-sight-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 When I first decided to switch to a single pin adjustable sight, I was a bit skeptical about how it would perform. But, after using the HHA 3019 Optimizer Lite, my doubts were put to rest instantly. It not only tightened up my groups but also opened up my sight picture, making my shooting experience much more enjoyable. 
 
@@ -76,9 +76,9 @@ However, there is one concern that I need to address. Mounting a quiver on your 
 In conclusion, the HHA 3019 Optimizer Lite provides excellent value with its quality construction, easy installation, and user-friendly features. It's a perfect choice for those seeking a one-pin sight for their shooting needs. 
 
 
-### [HHA Optimizer Ultra x Sight for Precise Shooting](https://serp.ly/@universityofguns/amazon/ar-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [HHA Optimizer Ultra x Sight for Precise Shooting](https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ar-night-sights&utm_term=hha-optimizer-ultra-x-sight-for-precise-shooting)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hha-optimizer-ultra-x-sight-5019-019-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-optimizer-ultra-x-sight-5019-019-rh-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ar-night-sights&utm_term=hha-optimizer-ultra-x-sight-5019-019-rh-1"><img alt="hha-optimizer-ultra-x-sight-5019-019-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-optimizer-ultra-x-sight-5019-019-rh-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 Introducing the HHA Optimizer Ultra X, a single-pin bow sight that's designed to bring precision to your shooting game. I've been using this for quite some time now and it's been an amazing addition to my bow hunting gear. Its standout features include the R. D. S sight tape technology, 20-80 yard tapes in single yard increments, the Infinite Adjust Slotted Slide Bracket, and 2nd axis adjustments, all of which are made in the USA. 
 
@@ -91,9 +91,9 @@ However, there were a few things I found slightly disappointing. The windage adj
 Nonetheless, the HHA Optimizer Ultra X has been a game-changer for me. Its high-visibility fiber makes shooting in low light conditions a breeze. Its accuracy, along with its easy-to-use windage and elevation adjustments, makes it a winner. If you're looking to up your bow hunting game, the HHA Optimizer Ultra X is definitely worth a shot. 
 
 
-### [HHA Optimizer Ultra x XL Sight 5500 XL: Advanced Sighting Technology](https://serp.ly/@universityofguns/amazon/ar-night-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [HHA Optimizer Ultra x XL Sight 5500 XL: Advanced Sighting Technology](https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ar-night-sights&utm_term=hha-optimizer-ultra-x-xl-sight-5500-xl-advanced-sighting-technology)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hha-optimizer-ultra-x-xl-sight-5500-xl-029-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-optimizer-ultra-x-xl-sight-5500-xl-029-rh-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ar-night-sights&utm_term=hha-optimizer-ultra-x-xl-sight-5500-xl-029-rh-1"><img alt="hha-optimizer-ultra-x-xl-sight-5500-xl-029-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-optimizer-ultra-x-xl-sight-5500-xl-029-rh-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 This HHA Ultra x XL Sight is my go-to for keeping my aim sharp and accurate, even when I'm out in the field. It's been a game-changer for me, especially when I'm up against fast-moving targets. 
 
@@ -111,7 +111,7 @@ AR night sights are essential for enhancing your firearm's visibility and accura
 
 ### Important Features
 
-<div><a href="https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/AR-Night-Sights-2/w=720,h=540,fit=pad,background=black" alt="AR-Night-Sights-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ar-night-sights&utm_term=ar-night-sights-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/AR-Night-Sights-2/w=720,h=540,fit=pad,background=black" alt="AR-Night-Sights-2"></a></div>
 
 1. Brightness: Look for night sights that offer a high degree of brightness, ensuring they remain visible even in poor-lighting conditions.
 
@@ -137,7 +137,7 @@ AR night sights are essential for enhancing your firearm's visibility and accura
 
 * Test your new sights: After installation, practice shooting in low-light conditions to familiarize yourself with your new AR night sights and improve your overall firearms performance.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/AR-Night-Sights-3/w=720,h=540,fit=pad,background=black" alt="AR-Night-Sights-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ar-night-sights&utm_term=ar-night-sights-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/AR-Night-Sights-3/w=720,h=540,fit=pad,background=black" alt="AR-Night-Sights-3"></a></div>
 
 
 ## FAQ
@@ -150,7 +150,7 @@ AR night sights are essential for enhancing your firearm's visibility and accura
 
 ### Why should I install AR Night Sights on my rifle?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/AR-Night-Sights-4/w=720,h=540,fit=pad,background=black" alt="AR-Night-Sights-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ar-night-sights&utm_term=ar-night-sights-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/AR-Night-Sights-4/w=720,h=540,fit=pad,background=black" alt="AR-Night-Sights-4"></a></div>
 
  AR Night Sights can enhance your rifle's accuracy and target acquisition in low light situations. This is particularly useful in tactical or hunting scenarios where visibility might be limited due to poor lighting or environmental factors. 
 
@@ -164,7 +164,7 @@ AR night sights are essential for enhancing your firearm's visibility and accura
 
  Both types have their advantages and disadvantages. Tritium sights offer consistent illumination regardless of ambient light conditions, making them suitable for all types of low light environments. However, they are more expensive. Fiber optic sights are cheaper but require some amount of ambient light. Choose based on your specific needs and budget. 
 
-<div><a href="https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/AR-Night-Sights-5/w=720,h=540,fit=pad,background=black" alt="AR-Night-Sights-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ar-night-sights&utm_term=ar-night-sights-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/AR-Night-Sights-5/w=720,h=540,fit=pad,background=black" alt="AR-Night-Sights-5"></a></div>
 
 
 ### How do I install AR Night Sights properly?
@@ -179,7 +179,7 @@ AR night sights are essential for enhancing your firearm's visibility and accura
 
 ### Can I adjust the brightness of my AR Night Sights?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/AR-Night-Sights-6/w=720,h=540,fit=pad,background=black" alt="AR-Night-Sights-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/ar-night-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ar-night-sights&utm_term=ar-night-sights-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/AR-Night-Sights-6/w=720,h=540,fit=pad,background=black" alt="AR-Night-Sights-6"></a></div>
 
  This depends on the type of sights you have. Some models come with adjustable brightness levels, while others do not. If yours doesn't, consider replacing them with adjustable ones, or use tape or paint to cover some of the light emitted by the fibers or tritium vials if they are too bright for your preference. 
 

@@ -18,29 +18,29 @@ In this article, we will delve into the history and evolution of cowboy gun hols
 
 ## The Top 8 Best Cowboy Gun Holsters
 
-1. [Desantis Wild Hog Holster for Western Revolvers and Large Autos](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Desantis Wild Hog Holster offers premium quality, ambidextrous usage, and adjustable tension, making it a perfect fit for your Ruger Wrangler, Heritage Mfg Roug Rider and accommodating up to 1.75-inch belts.
+1. [Desantis Wild Hog Holster for Western Revolvers and Large Autos](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=desantis-wild-hog-holster-for-western-revolvers-and-large-autos) - The Desantis Wild Hog Holster offers premium quality, ambidextrous usage, and adjustable tension, making it a perfect fit for your Ruger Wrangler, Heritage Mfg Roug Rider and accommodating up to 1.75-inch belts.
 
-2. [Tough Leather Ankle Holster for Glock 26/27](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unmatched durability and comfort with the Desantis RH Black Die Hard Ankle Rig, equipped with a top grain leather lined holster, conventional thumb break, and neoprene leg band—designed for right hand draw.
+2. [Tough Leather Ankle Holster for Glock 26/27](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=tough-leather-ankle-holster-for-glock-2627) - Experience unmatched durability and comfort with the Desantis RH Black Die Hard Ankle Rig, equipped with a top grain leather lined holster, conventional thumb break, and neoprene leg band—designed for right hand draw.
 
-3. [DeSantis Die Hard Ankle Rig for Glock 43 - Black Right Hand](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The DeSantis Die Hard Ankle Rig for Glock 43 in black offers exceptional concealment and comfort, with a quick draw for right-handed shooters, made from top grain leather and a neoprene leg band, ideal for law enforcement and airsoft gun enthusiasts.
+3. [DeSantis Die Hard Ankle Rig for Glock 43 - Black Right Hand](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=desantis-die-hard-ankle-rig-for-glock-43-black-right-hand) - The DeSantis Die Hard Ankle Rig for Glock 43 in black offers exceptional concealment and comfort, with a quick draw for right-handed shooters, made from top grain leather and a neoprene leg band, ideal for law enforcement and airsoft gun enthusiasts.
 
-4. [Versacarry Distressed Brown OWB Holster](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Versacarry Guardian OWB Holster is a premium leather holster that offers comfort and protection for your concealed carry pistol, with a unique design that accelerates break-in time and a right-handed draw.
+4. [Versacarry Distressed Brown OWB Holster](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=versacarry-distressed-brown-owb-holster) - The Versacarry Guardian OWB Holster is a premium leather holster that offers comfort and protection for your concealed carry pistol, with a unique design that accelerates break-in time and a right-handed draw.
 
-5. [Ambidextrous Hip Holster for Smaller Firearms](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Cabela's Ambidextrous Hip Holster for S&W Body Guard - Durable, lightweight, and secure 600-denier nylon holster with belt loop attachment, providing four layers of protection for your firearm.
+5. [Ambidextrous Hip Holster for Smaller Firearms](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=ambidextrous-hip-holster-for-smaller-firearms) - Cabela's Ambidextrous Hip Holster for S&W Body Guard - Durable, lightweight, and secure 600-denier nylon holster with belt loop attachment, providing four layers of protection for your firearm.
 
-6. [S&W M&P Shield Speed Scabbard Holster](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Discover the agility of DeSantis Speed Scabbard Holster (Right Hand) - the perfect choice for plainclothes professionals who seek a reliable, thumb break-free option with customizable tension for secure retention.
+6. [S&W M&P Shield Speed Scabbard Holster](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=sw-mp-shield-speed-scabbard-holster) - Discover the agility of DeSantis Speed Scabbard Holster (Right Hand) - the perfect choice for plainclothes professionals who seek a reliable, thumb break-free option with customizable tension for secure retention.
 
-7. [Versatile Wild Hog Field and Range Holster](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unparalleled comfort and versatility with the ambidextrous Desantis Wild Hog Holster, designed for seamless use with your 5" 1911. Made from premium materials and featuring adjustable tension, it's perfect for your cowboy gun collection.
+7. [Versatile Wild Hog Field and Range Holster](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=versatile-wild-hog-field-and-range-holster) - Experience unparalleled comfort and versatility with the ambidextrous Desantis Wild Hog Holster, designed for seamless use with your 5" 1911. Made from premium materials and featuring adjustable tension, it's perfect for your cowboy gun collection.
 
-8. [Brown Leather Western Holster for 32-44 Waist Sizes](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience authentic western vibes with Denix's Double Rig Holster DX704, featuring a high-quality leather construction, adjustable waist sizes, and included replica bullets. Perfect for enthusiasts of cowboy gun accessories.
+8. [Brown Leather Western Holster for 32-44 Waist Sizes](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=brown-leather-western-holster-for-32-44-waist-sizes) - Experience authentic western vibes with Denix's Double Rig Holster DX704, featuring a high-quality leather construction, adjustable waist sizes, and included replica bullets. Perfect for enthusiasts of cowboy gun accessories.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Desantis Wild Hog Holster for Western Revolvers and Large Autos](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Desantis Wild Hog Holster for Western Revolvers and Large Autos](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=desantis-wild-hog-holster-for-western-revolvers-and-large-autos)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="desantis-wild-hog-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/desantis-wild-hog-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=desantis-wild-hog-holster-1"><img alt="desantis-wild-hog-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/desantis-wild-hog-holster-1/public"/></a></div>
 
 The Wild Hog Field and Range Holster is a fantastic option for those looking to carry their Ruger Wrangler 4. 625-inch revolver. It fits the gun perfectly and provides a comfortable, secure grip that enables various carrying positions like cross-draw or with a forward cant. The holster's build quality is top-notch, made from premium top grain steer hide and center cut steer hide, ensuring durability.
 
@@ -48,9 +48,9 @@ I appreciate the adjustable tension device, which allows for customized fit and 
 
 One common concern shared among reviewers was how well the holster would hold up over time due to its design but found that these concerns were unfounded after using it for some time – they were very pleased with how well constructed this piece of equipment was! Overall, owning this reliable protection at hand has given me confidence knowing my firearm remains safe while carried inside said holder whether I’m hunting or just out for a walk in my neighborhood during warm summer evenings which makes owning one yourself almost seem like no brainer decision worth considering if seeking high-quality leather holsters able accommodate most large frame DA revolvers today so why wait any longer?
 
-### [Tough Leather Ankle Holster for Glock 26/27](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Tough Leather Ankle Holster for Glock 26/27](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=tough-leather-ankle-holster-for-glock-2627)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="desantis-gunhide-die-hard-ankle-holster-fits-glock-26-27-014pce1z0-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/desantis-gunhide-die-hard-ankle-holster-fits-glock-26-27-014pce1z0-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=desantis-gunhide-die-hard-ankle-holster-fits-glock-26-27-014pce1z0-1"><img alt="desantis-gunhide-die-hard-ankle-holster-fits-glock-26-27-014pce1z0-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/desantis-gunhide-die-hard-ankle-holster-fits-glock-26-27-014pce1z0-1/public"/></a></div>
 
 Experiencing the Die Hard Ankle Rig holster is like having a reliable partner for your daily carry routine. The combination of top-grain saddle leather and a robust PU coating make it incredibly durable and sleek. The holster's smooth leather lining both protects your gun's finish from scratches and provides an effortless draw, making it an excellent choice for those who value a swift response.
 
@@ -58,9 +58,9 @@ The neoprene leg band, padded with foam and lined with sheepskin, ensures maximu
 
 One thing to keep in mind is that this holster is designed primarily for right-handed users as it allows for a natural right-hand draw. Overall, the Die Hard Ankle Rig holster is highly recommended for anyone looking for a high-quality ankle holster that delivers on both performance and longevity. Its features make it well worth its price point, and its comfort and reliability during daily use make it stand out among other options in the market.
 
-### [DeSantis Die Hard Ankle Rig for Glock 43 - Black Right Hand](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [DeSantis Die Hard Ankle Rig for Glock 43 - Black Right Hand](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=desantis-die-hard-ankle-rig-for-glock-43-black-right-hand)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="desantis-die-hard-ankle-rig-for-glock-43-black-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/desantis-die-hard-ankle-rig-for-glock-43-black-right-hand-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=desantis-die-hard-ankle-rig-for-glock-43-black-right-hand-1"><img alt="desantis-die-hard-ankle-rig-for-glock-43-black-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/desantis-die-hard-ankle-rig-for-glock-43-black-right-hand-1/public"/></a></div>
 
 As an avid gun enthusiast, I've tried quite a few holsters over the years, but the Desantis Die Hard Ankle Rig for my Glock 43 has definitely been a game-changer. It's worn on the inside of your ankle opposite to which hand you will draw your firearm with, which initially took a bit of getting used to. But once I broke it in, it felt incredibly comfortable.
 
@@ -74,9 +74,9 @@ Concealment-wise, I think this product does its job rather well. However, I woul
 
 Overall, the Desantis Die Hard Ankle Rig for Glock 43 is an excellent choice for anyone looking for a comfortable and reliable ankle holster. Its high-quality materials and precise craftsmanship make it perfect for daily use or deep concealment situations. Although there are minor cons to this product, they are easily overshadowed by the benefits it provides.
 
-### [Versacarry Distressed Brown OWB Holster](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Versacarry Distressed Brown OWB Holster](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=versacarry-distressed-brown-owb-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="versacarry-guardian-owb-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/versacarry-guardian-owb-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=versacarry-guardian-owb-holster-1"><img alt="versacarry-guardian-owb-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/versacarry-guardian-owb-holster-1/public"/></a></div>
 
 Finding the perfect holster can be a daunting task, but the VersaCarry Guardian OWB Holster has made it an enjoyable experience for me. As someone who carries a full-sized 1911, I was initially skeptical about how concealable it would be. However, the forward cant design ensures the gun stays tight against my body, while the raised protective backing provides both comfort and protection.
 
@@ -88,9 +88,9 @@ All in all, the VersaCarry Guardian OWB Holster has made concealed carry comfort
 
 Remember, this is just an example of a review and should not be used as an actual review. Always share your honest experience with the product.
 
-### [Ambidextrous Hip Holster for Smaller Firearms](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Ambidextrous Hip Holster for Smaller Firearms](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=ambidextrous-hip-holster-for-smaller-firearms)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cabelas-ambidextrous-hip-holster-sw-body-guard-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cabelas-ambidextrous-hip-holster-sw-body-guard-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=cabelas-ambidextrous-hip-holster-sw-body-guard-1"><img alt="cabelas-ambidextrous-hip-holster-sw-body-guard-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cabelas-ambidextrous-hip-holster-sw-body-guard-1/public"/></a></div>
 
 This Cabela's Ambidextrous Hip Holster - S&W Bodyguard is a game-changer! As an everyday user, I can confidently say that it's light, tough, and secure, making it perfect for my daily life. I've been using it with my trusty Colt Officer ACP, and it fits like a glove.
 
@@ -100,9 +100,9 @@ On the downside, I've noticed that some users have had issues with the holster's
 
 In conclusion, if you're looking for a comfortable, durable, and affordable hip holster, the Cabela's Ambidextrous Hip Holster - S&W Bodyguard is worth considering. Its high rating and versatility make it stand out among the competition. Give it a try, and you won't be disappointed!
 
-### [S&W M&P Shield Speed Scabbard Holster](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [S&W M&P Shield Speed Scabbard Holster](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=sw-mp-shield-speed-scabbard-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="desantis-speed-scabbard-holster-fits-shield-right-hand-002bax7z0-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/desantis-speed-scabbard-holster-fits-shield-right-hand-002bax7z0-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=desantis-speed-scabbard-holster-fits-shield-right-hand-002bax7z0-1"><img alt="desantis-speed-scabbard-holster-fits-shield-right-hand-002bax7z0-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/desantis-speed-scabbard-holster-fits-shield-right-hand-002bax7z0-1/public"/></a></div>
 
 As an avid user of the DeSantis Speed Scabbard Holster, I can confidently say it has been my go-to choice for concealed carry purposes. The holster's unique design fits perfectly with my S&W M&P Shield, providing a snug fit that ensures optimal retention and swift drawing when needed. Its precision molding and adjustable tension screw device ensure that my firearm stays securely in place yet quickly accessible at all times.
 
@@ -112,9 +112,9 @@ However, there were some minor drawbacks too. Some users mention that the holste
 
 In conclusion, the DeSantis Speed Scabbard Holster is a reliable and efficient choice for anyone seeking a high-quality holster for concealed carry purposes. Its comfortable fit, outstanding retention, and customizable adjustments make it an attractive option in the market. Despite a few minor issues, it stands out as a top-notch product worth considering.
 
-### [Versatile Wild Hog Field and Range Holster](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Versatile Wild Hog Field and Range Holster](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=versatile-wild-hog-field-and-range-holster)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="desantis-wild-hog-holster-lthr-ambidextrous-1911s-5-natural-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/desantis-wild-hog-holster-lthr-ambidextrous-1911s-5-natural-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=desantis-wild-hog-holster-lthr-ambidextrous-1911s-5-natural-1"><img alt="desantis-wild-hog-holster-lthr-ambidextrous-1911s-5-natural-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/desantis-wild-hog-holster-lthr-ambidextrous-1911s-5-natural-1/public"/></a></div>
 
 As an avid shooter, I've tried many holsters, but the Desantis Wild Hog Holster Lthr has been a game-changer. This ambidextrous piece is perfect for both right-handed and left-handed shooters. Unlike traditional holsters that can be uncomfortable to wear for extended periods, this one stands out with its added comfort feature.
 
@@ -122,9 +122,9 @@ One day, I was out riding my horse with my 1911 tucked safely in this holster. D
 
 However, it took me some time to get used to drawing my weapon from this holster due to its unique design. But once I got the hang of it, it became second nature. Despite this minor learning curve, I would recommend this holster any day for its durability and versatility.
 
-### [Brown Leather Western Holster for 32-44 Waist Sizes](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Brown Leather Western Holster for 32-44 Waist Sizes](https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=brown-leather-western-holster-for-32-44-waist-sizes)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="denix-old-west-leather-holster-dx704-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/denix-old-west-leather-holster-dx704-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=denix-old-west-leather-holster-dx704-1"><img alt="denix-old-west-leather-holster-dx704-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/denix-old-west-leather-holster-dx704-1/public"/></a></div>
 
 I recently purchased the Denix Old West Leather Holster DX704 for my 1873 non-firing replica pistols, and I must say, it has been a great addition to my collection. The leather construction gives it a sturdy feel, making it perfect for carrying your replica pistol securely. I particularly love the tooled detailing on the holster, which adds to its overall aesthetic appeal.
 
@@ -138,7 +138,7 @@ Overall, I'm extremely satisfied with the Denix Old West Leather Holster DX704. 
 
 ### Important Features to Consider in Cowboy Gun Holsters
 
-<div><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cowboy+Gun+Holsters-2/public" alt="Cowboy Gun Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=cowboy-gun-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cowboy+Gun+Holsters-2/public" alt="Cowboy Gun Holsters-2"></a></div>
 
 Cowboy gun holsters are specially designed to cater to the specific needs of cowboy shooting enthusiasts. When choosing a cowboy gun holster, consider the following features:
 
@@ -168,7 +168,7 @@ To ensure you make the best choice when purchasing a cowboy gun holster, follow 
 
 3. Test before you buy: If possible, try on different holsters and move around with them to ensure they are comfortable and don't impede your ability to draw and reholster your weapon effectively.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cowboy+Gun+Holsters-3/public" alt="Cowboy Gun Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=cowboy-gun-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cowboy+Gun+Holsters-3/public" alt="Cowboy Gun Holsters-3"></a></div>
 
 ### Wrap Up
 
@@ -178,7 +178,7 @@ Choosing the right cowboy gun holster is essential for ensuring a comfortable an
 
 ### What are cowboy gun holsters?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cowboy+Gun+Holsters-4/public" alt="Cowboy Gun Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=cowboy-gun-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cowboy+Gun+Holsters-4/public" alt="Cowboy Gun Holsters-4"></a></div>
 
 Cowboy gun holsters are specialized holsters designed to securely hold a firearm at the waist, often worn by cowboys in the Wild West era. They are typically made of high-quality leather and feature intricate designs and hand-tooled craftsmanship to provide both functionality and style.
 
@@ -190,7 +190,7 @@ Cowboy gun holsters typically offer a more traditional, classic look compared to
 
 Cowboy gun holsters are primarily intended for single-action revolvers, such as those found in the iconic cowboy revolver models made by Colt, Remington, and Ruger. Some modern replicas of these firearms, as well as other similar guns, are also compatible with cowboy gun holsters.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cowboy+Gun+Holsters-5/public" alt="Cowboy Gun Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=cowboy-gun-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cowboy+Gun+Holsters-5/public" alt="Cowboy Gun Holsters-5"></a></div>
 
 ### How do I choose the right cowboy gun holster?
 
@@ -202,7 +202,7 @@ Some popular brands and models of cowboy gun holsters include Galco Gunleather, 
 
 ### Can cowboy gun holsters be used for concealed carry?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cowboy+Gun+Holsters-6/public" alt="Cowboy Gun Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/cowboy-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cowboy-gun-holsters&utm_term=cowboy-gun-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cowboy+Gun+Holsters-6/public" alt="Cowboy Gun Holsters-6"></a></div>
 
 While some cowboy gun holsters can be worn for concealed carry, it is essential to ensure that your chosen model provides adequate support and retention to keep the firearm securely in place. Generally, a well-fitted waistband or gun belt will help keep your cowboy gun holster and firearm concealed and secure.
 

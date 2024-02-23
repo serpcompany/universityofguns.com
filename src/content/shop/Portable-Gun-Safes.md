@@ -18,23 +18,23 @@ In our roundup, you'll find a variety of products that cater to different types 
 
 ## The Top 5 Best Portable Gun Safes
 
-1. [Wyze Smart Gun Safe with Biometric and App Unlock](https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Wyze Gun Safe delivers advanced security and biometric integration, providing affordable peace of mind for all.
+1. [Wyze Smart Gun Safe with Biometric and App Unlock](https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=portable-gun-safes&utm_term=wyze-smart-gun-safe-with-biometric-and-app-unlock) - Wyze Gun Safe delivers advanced security and biometric integration, providing affordable peace of mind for all.
 
-2. [VEVOR 5 Gun Cabinet with Lock and Digital Keypad](https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - VEVOR 5 Gun Safe: Secure and Durable Storage Cabinet for Your Firearms, Equipped with Lock & Digital Keypad for Enhanced Security and Protection.
+2. [VEVOR 5 Gun Cabinet with Lock and Digital Keypad](https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=portable-gun-safes&utm_term=vevor-5-gun-cabinet-with-lock-and-digital-keypad) - VEVOR 5 Gun Safe: Secure and Durable Storage Cabinet for Your Firearms, Equipped with Lock & Digital Keypad for Enhanced Security and Protection.
 
-3. [Fortress 44EF30W Fire and Waterproof Safe](https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Fortress 174-Cu-Ft Large Personal Fire and Waterproof Safe: Sturdy construction, 45 minutes fire resistance, 72-hour waterproofing, 3-8 digit digital lock, fully carpeted interior, and ample storage for securing valuables at home or office.
+3. [Fortress 44EF30W Fire and Waterproof Safe](https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=portable-gun-safes&utm_term=fortress-44ef30w-fire-and-waterproof-safe) - Fortress 174-Cu-Ft Large Personal Fire and Waterproof Safe: Sturdy construction, 45 minutes fire resistance, 72-hour waterproofing, 3-8 digit digital lock, fully carpeted interior, and ample storage for securing valuables at home or office.
 
-4. [Viking Portable Mechanical Gun Safe with LED Light](https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Unmatched Protection, Effortless Convenience: Discover the Viking VS-50SX Mechanical Simplex Lock Multi Gun Safe, featuring a Forever Safe design without any electronics, keys, or batteries to worry about.
+4. [Viking Portable Mechanical Gun Safe with LED Light](https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=portable-gun-safes&utm_term=viking-portable-mechanical-gun-safe-with-led-light) - Unmatched Protection, Effortless Convenience: Discover the Viking VS-50SX Mechanical Simplex Lock Multi Gun Safe, featuring a Forever Safe design without any electronics, keys, or batteries to worry about.
 
-5. [Fast Box 47 Electronic Under Bed Gun Safe](https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Secure It Fast Box Model 47 provides top-notch protection and accessibility for your home-defense firearms, featuring 14-gauge steel construction, meeting military standards, and offering silent fast-access push-button lock.
+5. [Fast Box 47 Electronic Under Bed Gun Safe](https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=portable-gun-safes&utm_term=fast-box-47-electronic-under-bed-gun-safe) - The Secure It Fast Box Model 47 provides top-notch protection and accessibility for your home-defense firearms, featuring 14-gauge steel construction, meeting military standards, and offering silent fast-access push-button lock.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Wyze Smart Gun Safe with Biometric and App Unlock](https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Wyze Smart Gun Safe with Biometric and App Unlock](https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=portable-gun-safes&utm_term=wyze-smart-gun-safe-with-biometric-and-app-unlock)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="wyze-smart-gun-safe-with-biometric-backlit-keypad-and-app-unlock-with-physical-key-interior-led-12-m-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wyze-smart-gun-safe-with-biometric-backlit-keypad-and-app-unlock-with-physical-key-interior-led-12-m-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=portable-gun-safes&utm_term=wyze-smart-gun-safe-with-biometric-backlit-keypad-and-app-unlock-with-physical-key-interior-led-12-m-1"><img alt="wyze-smart-gun-safe-with-biometric-backlit-keypad-and-app-unlock-with-physical-key-interior-led-12-m-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wyze-smart-gun-safe-with-biometric-backlit-keypad-and-app-unlock-with-physical-key-interior-led-12-m-1/public"/></a></div>
 
 The Wyze Gun Safe is a reliable and efficient security solution for your firearms. It offers multiple ways to access the safe, such as using a key, passcode, app, or fingerprint. The sturdy construction and well-designed interior provide ample space to securely store your handgun along with extra mags and small items.
 
@@ -42,9 +42,9 @@ One standout feature of this gun safe is the added security of requiring a passw
 
 Overall, I would recommend this product for its quality and reliability in maintaining safety for you and those around you. With its portable design, fingerprint sensor, app accessibility features; this gun safe brings smart integration to an affordable level making it accessible for many people looking to enhance their home security efforts.
 
-### [VEVOR 5 Gun Cabinet with Lock and Digital Keypad](https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [VEVOR 5 Gun Cabinet with Lock and Digital Keypad](https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=portable-gun-safes&utm_term=vevor-5-gun-cabinet-with-lock-and-digital-keypad)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="vevor-5-gun-safe-gun-security-cabinet-with-lock-digital-keypad-gun-storage-cabinet-with-built-in-sto-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vevor-5-gun-safe-gun-security-cabinet-with-lock-digital-keypad-gun-storage-cabinet-with-built-in-sto-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=portable-gun-safes&utm_term=vevor-5-gun-safe-gun-security-cabinet-with-lock-digital-keypad-gun-storage-cabinet-with-built-in-sto-1"><img alt="vevor-5-gun-safe-gun-security-cabinet-with-lock-digital-keypad-gun-storage-cabinet-with-built-in-sto-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vevor-5-gun-safe-gun-security-cabinet-with-lock-digital-keypad-gun-storage-cabinet-with-built-in-sto-1/public"/></a></div>
 
 My journey with the VEVOR 5 Gun Safe has been quite eventful. As a first-time gun owner, I was initially excited about the prospect of owning a solid gun cabinet that not only secures my beloved firearms, but also offers a space for document and paperwork storage. However, this excitement was short-lived as the cabinet's material was thin and flimsy, making it difficult to maintain its upright position without additional support, which wasn't great for a cabinet designed for heavy-duty firearms.
 
@@ -54,9 +54,9 @@ Despite providing decent basic security, the cabinet didn't offer much room for 
 
 Overall, while the VEVOR 5 Gun Safe offered some useful features, it was a lackluster experience due to its low-quality material and limited storage capabilities. However, for gun enthusiasts on a budget who prioritize basic firearm security, this cabinet may be worth considering.
 
-### [Fortress 44EF30W Fire and Waterproof Safe](https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Fortress 44EF30W Fire and Waterproof Safe](https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=portable-gun-safes&utm_term=fortress-44ef30w-fire-and-waterproof-safe)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="fortress-large-174-cu-ft-personal-fire-and-waterproof-safe-with-electronic-lock-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fortress-large-174-cu-ft-personal-fire-and-waterproof-safe-with-electronic-lock-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=portable-gun-safes&utm_term=fortress-large-174-cu-ft-personal-fire-and-waterproof-safe-with-electronic-lock-1"><img alt="fortress-large-174-cu-ft-personal-fire-and-waterproof-safe-with-electronic-lock-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fortress-large-174-cu-ft-personal-fire-and-waterproof-safe-with-electronic-lock-1/public"/></a></div>
 
 I recently got my hands on the Fortress large personal fire and waterproof safe, and I've got to say, it's been a game-changer in securing my valuables. It's fire and waterproof, offering up to 45 minutes of fire protection at 1400 degrees Fahrenheit. Plus, it's waterproof for up to 72 hours, making it perfect for storage in basements or near sources of water.
 
@@ -70,9 +70,9 @@ However, one area where the safe could have been improved is the digital lock. W
 
 In conclusion, the Fortress large personal fire and waterproof safe is a trustworthy companion for safeguarding my valuable items. Its sturdy construction, advanced digital lock, and roomy interior make it a reliable choice for both residential and commercial use. While it does have some minor drawbacks, these are easily overshadowed by its commendable performance in securing my valuables. If you're looking for a safe that balances functionality with price, this one is definitely worth considering.
 
-### [Viking Portable Mechanical Gun Safe with LED Light](https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Viking Portable Mechanical Gun Safe with LED Light](https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=portable-gun-safes&utm_term=viking-portable-mechanical-gun-safe-with-led-light)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="viking-vs-50sx-mechanical-simplex-lock-multi-gun-handgun-capacity-pistol-safe-viking-security-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/viking-vs-50sx-mechanical-simplex-lock-multi-gun-handgun-capacity-pistol-safe-viking-security-safe-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=portable-gun-safes&utm_term=viking-vs-50sx-mechanical-simplex-lock-multi-gun-handgun-capacity-pistol-safe-viking-security-safe-1"><img alt="viking-vs-50sx-mechanical-simplex-lock-multi-gun-handgun-capacity-pistol-safe-viking-security-safe-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/viking-vs-50sx-mechanical-simplex-lock-multi-gun-handgun-capacity-pistol-safe-viking-security-safe-1/public"/></a></div>
 
 I recently got my hands on this Viking VS-50SX mechanical simplex lock multi-gun safe, and I must say, it's been a game changer for me. As someone who deals with a lot of handguns, ammo, and other important items, storage and safety have always been a concern. The Viking safe has been incredibly reliable, making my life so much easier.
 
@@ -84,9 +84,9 @@ On the flip side, the size, while perfect for my needs, might not be ideal for e
 
 In summary, the Viking VS-50SX mechanical simplex lock multi-gun safe has been a reliable and efficient solution for my storage needs. Its security features, ease of use, and extra roominess make it a solid choice for anyone in the market for a quality gun safe.
 
-### [Fast Box 47 Electronic Under Bed Gun Safe](https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Fast Box 47 Electronic Under Bed Gun Safe](https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=portable-gun-safes&utm_term=fast-box-47-electronic-under-bed-gun-safe)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="secure-it-fast-box-model-48" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/secure-it-fast-box-model-48/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=portable-gun-safes&utm_term=secure-it-fast-box-model-48"><img alt="secure-it-fast-box-model-48" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/secure-it-fast-box-model-48/public"/></a></div>
 
 I recently got my hands on the Secure It Fast Box Model 47, a top-notch, compact gun safe that's perfect for those who prioritize safety and quick access to their firearms. I must say, this little powerhouse has been a game-changer for me.
 
@@ -100,7 +100,7 @@ In summary, the Secure It Fast Box Model 47 has proven to be a reliable, discree
 
 ## Buyer's Guide
 
-<div><a href="https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Portable+Gun+Safes-2/public" alt="Portable Gun Safes-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=portable-gun-safes&utm_term=portable-gun-safes-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Portable+Gun+Safes-2/public" alt="Portable Gun Safes-2"></a></div>
 
 ### Important Features of Portable Gun Safes:
 
@@ -124,7 +124,7 @@ Before purchasing a portable gun safe, consider your individual requirements, wh
 
 - Budget: Determine how much you're willing to spend on a gun safe.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Portable+Gun+Safes-3/public" alt="Portable Gun Safes-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=portable-gun-safes&utm_term=portable-gun-safes-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Portable+Gun+Safes-3/public" alt="Portable Gun Safes-3"></a></div>
 
 ### General Advice for Choosing a Portable Gun Safe:
 
@@ -140,7 +140,7 @@ Portable gun safes play a crucial role in ensuring safety and compliance with la
 
 ## FAQ
 
-<div><a href="https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Portable+Gun+Safes-4/public" alt="Portable Gun Safes-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=portable-gun-safes&utm_term=portable-gun-safes-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Portable+Gun+Safes-4/public" alt="Portable Gun Safes-4"></a></div>
 
 ### What is a portable gun safe?
 
@@ -150,7 +150,7 @@ A portable gun safe is a compact, lightweight, and portable storage solution des
 
 Portable gun safes offer numerous benefits, such as ensuring the safety and security of your firearms, preventing theft or unauthorized access, and allowing you to take your firearms with you wherever you go.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Portable+Gun+Safes-5/public" alt="Portable Gun Safes-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=portable-gun-safes&utm_term=portable-gun-safes-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Portable+Gun+Safes-5/public" alt="Portable Gun Safes-5"></a></div>
 
 ### What features should I look for in a portable gun safe?
 
@@ -160,7 +160,7 @@ When shopping for a portable gun safe, consider features like: strong constructi
 
 When selecting a portable gun safe, consider the number and type of firearms you need to store, as well as your intended use for the safe. Make sure to measure your firearms and allow for adequate space for proper organization and quick access when needed.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Portable+Gun+Safes-6/public" alt="Portable Gun Safes-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/portable-gun-safes?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=portable-gun-safes&utm_term=portable-gun-safes-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Portable+Gun+Safes-6/public" alt="Portable Gun Safes-6"></a></div>
 
 ### What are some common types of locking mechanisms in portable gun safes?
 

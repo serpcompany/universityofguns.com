@@ -18,51 +18,51 @@ In this roundup, we've scoured the market and curated a collection of the most d
 
 ## The Top 19 Best 3Gun Targets
 
-1. [Do-All Triple Spinner for .22 Rimfire Airguns - Improve Your Marksmanship with Hands-Free Spinning Targets](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Do-All Triple Spinner is the perfect solution for enhancing your .22 rimfire airgun practice, featuring an all-steel construction, interchangeable spinning targets, and compatibility with paper targets for versatile shooting experience.
+1. [Do-All Triple Spinner for .22 Rimfire Airguns - Improve Your Marksmanship with Hands-Free Spinning Targets](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=do-all-triple-spinner-for-22-rimfire-airguns-improve-your-marksmanship-with-hands-free-spinning-targets) - The Do-All Triple Spinner is the perfect solution for enhancing your .22 rimfire airgun practice, featuring an all-steel construction, interchangeable spinning targets, and compatibility with paper targets for versatile shooting experience.
 
-2. [Handgun Auto Reset Shooting Target for Practice and Competition](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Elevate your shooting accuracy with The Handgun Auto Reset Targeting System by Do-All Outdoors, the premium choice with resilient steel construction, automatic resetting, and enhanced safety features for a seamless practice experience.
+2. [Handgun Auto Reset Shooting Target for Practice and Competition](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=handgun-auto-reset-shooting-target-for-practice-and-competition) - Elevate your shooting accuracy with The Handgun Auto Reset Targeting System by Do-All Outdoors, the premium choice with resilient steel construction, automatic resetting, and enhanced safety features for a seamless practice experience.
 
-3. [33% IPSC AR500 Steel Target for Competition and Training](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Caldwell 33% IPSC AR500 Steel Target: Durable, high-impact steel targets for competition, training, and recreational use, with 7 size options and 3 hanging solutions, rated for up to 3000 FPS and 3500 FT lbs impact energy.
+3. [33% IPSC AR500 Steel Target for Competition and Training](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=33-ipsc-ar500-steel-target-for-competition-and-training) - Caldwell 33% IPSC AR500 Steel Target: Durable, high-impact steel targets for competition, training, and recreational use, with 7 size options and 3 hanging solutions, rated for up to 3000 FPS and 3500 FT lbs impact energy.
 
-4. [Self-Healing Pigeon Perch Target Holder for Rifles, Handguns, BB, and Pellet Guns](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Do-All Outdoors Pigeon Perch is a durable, self-healing target suitable for all caliber rifles, handguns, and BB guns, enabling hours of shooting with minimal damage and extended target life.
+4. [Self-Healing Pigeon Perch Target Holder for Rifles, Handguns, BB, and Pellet Guns](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=self-healing-pigeon-perch-target-holder-for-rifles-handguns-bb-and-pellet-guns) - The Do-All Outdoors Pigeon Perch is a durable, self-healing target suitable for all caliber rifles, handguns, and BB guns, enabling hours of shooting with minimal damage and extended target life.
 
-5. [Official USPSA/IPSC Practice Paper Target, Model: B29](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Action Target B29 Black 100pk is an IPSC/USPSA official practice target perfect for commercial range owners, law enforcement, and military training.
+5. [Official USPSA/IPSC Practice Paper Target, Model: B29](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=official-uspsaipsc-practice-paper-target-model-b29) - The Action Target B29 Black 100pk is an IPSC/USPSA official practice target perfect for commercial range owners, law enforcement, and military training.
 
-6. [High-Quality Shooting Plates](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience exceptional accuracy with the Ridgeline 3 Pack Target Set, designed for both rimfire and centerfire pistol and rifle practice, ensuring hours of enjoyable and challenging shooting activity.
+6. [High-Quality Shooting Plates](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=high-quality-shooting-plates) - Experience exceptional accuracy with the Ridgeline 3 Pack Target Set, designed for both rimfire and centerfire pistol and rifle practice, ensuring hours of enjoyable and challenging shooting activity.
 
-7. [.22 Dialed Spinner Steel Target for Shooting](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Shooting enthusiasts, unlock hours of excitement and accuracy training with the .22 Dialed Spinner—a 5-in-1 steel target that'll keep you engaged and eager for every shot.
+7. [.22 Dialed Spinner Steel Target for Shooting](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=22-dialed-spinner-steel-target-for-shooting) - Shooting enthusiasts, unlock hours of excitement and accuracy training with the .22 Dialed Spinner—a 5-in-1 steel target that'll keep you engaged and eager for every shot.
 
-8. [RangeMaxx Rimfire Spinner Target - Steel](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Sturdy and durable RangeMaxx Rimfire Triple Spinner Targets in steel, perfect for rimfire firearms, with swivel legs for easy setup and storage, ensuring accurate and fun target practice.
+8. [RangeMaxx Rimfire Spinner Target - Steel](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=rangemaxx-rimfire-spinner-target-steel) - Sturdy and durable RangeMaxx Rimfire Triple Spinner Targets in steel, perfect for rimfire firearms, with swivel legs for easy setup and storage, ensuring accurate and fun target practice.
 
-9. [Dirty Bird 3-Gun Nation Splatter Paper Targets](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Spot your shots with ease and enjoy intense contrast with the 17.25in. 3-Gun Nation Dirty Bird Targets - 100pcs pack, perfect for avid shooters looking to enhance their target practice experience.
+9. [Dirty Bird 3-Gun Nation Splatter Paper Targets](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=dirty-bird-3-gun-nation-splatter-paper-targets) - Spot your shots with ease and enjoy intense contrast with the 17.25in. 3-Gun Nation Dirty Bird Targets - 100pcs pack, perfect for avid shooters looking to enhance their target practice experience.
 
-10. [Durable Heli Handgun Target for Improved Training](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Do-All Outdoors Heli Handgun Spinning Target offers continuous shooting with 2 circular targets and solid steel construction, for a stable and exciting practice experience.
+10. [Durable Heli Handgun Target for Improved Training](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=durable-heli-handgun-target-for-improved-training) - The Do-All Outdoors Heli Handgun Spinning Target offers continuous shooting with 2 circular targets and solid steel construction, for a stable and exciting practice experience.
 
-11. [Deluxe 10-count Pistol Target Set with Spinning Mechanism](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Gamo Deluxe Spinner Targets - 10 count: Durable, customizable spinner targets with corrosion-resistant finish, perfect for practicing your aim with lead pellets and up to 1000 fps speed.
+11. [Deluxe 10-count Pistol Target Set with Spinning Mechanism](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=deluxe-10-count-pistol-target-set-with-spinning-mechanism) - Gamo Deluxe Spinner Targets - 10 count: Durable, customizable spinner targets with corrosion-resistant finish, perfect for practicing your aim with lead pellets and up to 1000 fps speed.
 
-12. [Crosman Durable Metal Spinning Target for Air Rifles](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the excitement with Crosman's Spinning Target Metal, boasting 4.0 stars and 172 reviews. Enjoy its durability, portability, and customizable target faces for a great, all-metal shooting experience.
+12. [Crosman Durable Metal Spinning Target for Air Rifles](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=crosman-durable-metal-spinning-target-for-air-rifles) - Experience the excitement with Crosman's Spinning Target Metal, boasting 4.0 stars and 172 reviews. Enjoy its durability, portability, and customizable target faces for a great, all-metal shooting experience.
 
-13. [High Quality Indoor Shooting Target Set](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Introducing the EZ-Aim paper bullseye target, perfect for enhancing your accuracy and confidence with firearms, featuring high-quality paper and captivating contrasting colors, all wrapped up in a compact, easy-to-use design.
+13. [High Quality Indoor Shooting Target Set](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=high-quality-indoor-shooting-target-set) - Introducing the EZ-Aim paper bullseye target, perfect for enhancing your accuracy and confidence with firearms, featuring high-quality paper and captivating contrasting colors, all wrapped up in a compact, easy-to-use design.
 
-14. [RangeMaxx Rifle Gong Target with Stand](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the ultimate shooting experience with the RangeMaxx Rifle Gong Target with Stand, featuring a 10" 1/2" thick steel gong for durable performance and clear visual and audible confirmation of rounds on target.
+14. [RangeMaxx Rifle Gong Target with Stand](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=rangemaxx-rifle-gong-target-with-stand) - Experience the ultimate shooting experience with the RangeMaxx Rifle Gong Target with Stand, featuring a 10" 1/2" thick steel gong for durable performance and clear visual and audible confirmation of rounds on target.
 
-15. [Do All Outdoors Triple Paddle Spinning Target for .22 Caliber Rifles and Pistols](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Do-All Outdoors Triple Tree Spinner Target is a 4.1 rated, quick-to-set-up and versatile .22 caliber spinning target that provides audible feedback on hits, making it an exciting and challenging shooting experience for both rifle and pistol users.
+15. [Do All Outdoors Triple Paddle Spinning Target for .22 Caliber Rifles and Pistols](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=do-all-outdoors-triple-paddle-spinning-target-for-22-caliber-rifles-and-pistols) - The Do-All Outdoors Triple Tree Spinner Target is a 4.1 rated, quick-to-set-up and versatile .22 caliber spinning target that provides audible feedback on hits, making it an exciting and challenging shooting experience for both rifle and pistol users.
 
-16. [Durable 3" and 5" Combo Handgun Spinner Target](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Durable 3" and 5" combo handgun spinner target designed for unmatched stability and steadfast performance, ensuring hours of accurate practice with your centerfire handgun.
+16. [Durable 3" and 5" Combo Handgun Spinner Target](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=durable-3-and-5-combo-handgun-spinner-target) - Durable 3" and 5" combo handgun spinner target designed for unmatched stability and steadfast performance, ensuring hours of accurate practice with your centerfire handgun.
 
-17. [Premium Rimfire Dual Spinner Target for Accuracy Training](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Improve your rimfire accuracy with the RangeMaxx Rimfire Dual Spinner Target, featuring heavy-duty powder-coated steel construction, swivel legs for easy setup and storage, and both audible and visual hit indicators.
+17. [Premium Rimfire Dual Spinner Target for Accuracy Training](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=premium-rimfire-dual-spinner-target-for-accuracy-training) - Improve your rimfire accuracy with the RangeMaxx Rimfire Dual Spinner Target, featuring heavy-duty powder-coated steel construction, swivel legs for easy setup and storage, and both audible and visual hit indicators.
 
-18. [Champion Triple Gong Target - Resettable & Durable Steel Design](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Champion Handgun Triple Gong Reset Target Steel Card 40870 - Durable steel construction and innovative reset feature for efficient aim practice.
+18. [Champion Triple Gong Target - Resettable & Durable Steel Design](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=champion-triple-gong-target-resettable-durable-steel-design) - Champion Handgun Triple Gong Reset Target Steel Card 40870 - Durable steel construction and innovative reset feature for efficient aim practice.
 
-19. [Triple Spinner Target System for Improved Shooting Skills](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Engage in an exhilarating shooting experience with the EZ Aim Triple Spinner Target System. This metal spinning target features a folding stand for quick setup and easy storage, enabling you to hone your skills with confidence and precision.
+19. [Triple Spinner Target System for Improved Shooting Skills](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=triple-spinner-target-system-for-improved-shooting-skills) - Engage in an exhilarating shooting experience with the EZ Aim Triple Spinner Target System. This metal spinning target features a folding stand for quick setup and easy storage, enabling you to hone your skills with confidence and precision.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Do-All Triple Spinner for .22 Rimfire Airguns - Improve Your Marksmanship with Hands-Free Spinning Targets](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Do-All Triple Spinner for .22 Rimfire Airguns - Improve Your Marksmanship with Hands-Free Spinning Targets](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=do-all-triple-spinner-for-22-rimfire-airguns-improve-your-marksmanship-with-hands-free-spinning-targets)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="do-all-triple-spinner-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/do-all-triple-spinner-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=do-all-triple-spinner-1"><img alt="do-all-triple-spinner-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/do-all-triple-spinner-1/public"/></a></div>
 
 I've spent quite a bit of time testing out this Do All Outdoors 22 Spinner Rimfire target set, and I must say that it's become a crucial part of my daily shooting routine. This target set is specifically designed for soft-nosed. 22 pistol and rifle shooters, making it perfect for my practice sessions. The hands-free design, which allows the bullet force to spin the targets back into position, is incredibly convenient and user-friendly.
 
@@ -70,17 +70,17 @@ Setting up this target system is super easy thanks to its four stabilizing legs 
 
 Another small issue you might encounter is that the targets are rather close together - something some shooters may not like. However, this issue can be resolved by adding more space between them or using a larger base for added stability on sandy or gravelly ground - something one reviewer found helpful in their own experience. Overall though despite these minor issues; this budget friendly option offers great value particularly as far as durability goes thanks largely due its all steel construction capable enough handling multiple hits from. 22 caliber rounds without sustaining any damage whatsoever – perfect addition to any backyard range! .
 
-### [Handgun Auto Reset Shooting Target for Practice and Competition](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Handgun Auto Reset Shooting Target for Practice and Competition](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=handgun-auto-reset-shooting-target-for-practice-and-competition)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="do-all-outdoors-handgun-auto-reset-target-silver-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/do-all-outdoors-handgun-auto-reset-target-silver-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=do-all-outdoors-handgun-auto-reset-target-silver-1"><img alt="do-all-outdoors-handgun-auto-reset-target-silver-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/do-all-outdoors-handgun-auto-reset-target-silver-1/public"/></a></div>
 
 Using the Do-All Outdoors Handgun Auto Reset Targeting System on my backyard range has been a great experience. The durable steel construction and powder-coated paint held up well to my 9mm rounds, and the stabilizing ground spikes kept the target upright even when hit. I loved the forward leaning design that made bullet deflection downward, ensuring safety during practice sessions.
 
 The high visibility targets were easy to aim at, and being able to practice without having to reset after every shot was a huge time saver. While there are some minor issues like pins holding the plates getting shot off or bent from time to time, these are easily remedied with replacement pins or nails. Overall, I recommend this product for those looking to make target practice more fun and efficient while improving accuracy.
 
-### [33% IPSC AR500 Steel Target for Competition and Training](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [33% IPSC AR500 Steel Target for Competition and Training](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=33-ipsc-ar500-steel-target-for-competition-and-training)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="caldwell-33-ipsc-ar500-steel-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/caldwell-33-ipsc-ar500-steel-target-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=caldwell-33-ipsc-ar500-steel-target-1"><img alt="caldwell-33-ipsc-ar500-steel-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/caldwell-33-ipsc-ar500-steel-target-1/public"/></a></div>
 
 I have been using the Caldwell AR500 steel ipsc target in my daily practice routine, and it has significantly enhanced my shooting experience. This product comes in various sizes and offers multiple hanging options, making it incredibly easy to set up for use. The hardened AR500 steel construction ensures that the target can withstand thousands of rounds without showing any signs of wear or damage.
 
@@ -88,15 +88,15 @@ One feature that stood out for me was the bright yellow color, which has remarka
 
 The only minor issue I encountered was that the powder coating chips off over time due to repeated hits from bullets; however, this does not affect its performance or durability. Overall, this Caldwell AR500 steel ipsc target delivers excellent value and top-notch performance for serious shooters looking to fine-tune their skills through daily practice routines.
 
-### [Self-Healing Pigeon Perch Target Holder for Rifles, Handguns, BB, and Pellet Guns](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Self-Healing Pigeon Perch Target Holder for Rifles, Handguns, BB, and Pellet Guns](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=self-healing-pigeon-perch-target-holder-for-rifles-handguns-bb-and-pellet-guns)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="do-all-pigeon-perch-clay-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/do-all-pigeon-perch-clay-target-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=do-all-pigeon-perch-clay-target-1"><img alt="do-all-pigeon-perch-clay-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/do-all-pigeon-perch-clay-target-1/public"/></a></div>
 
 The Do-All Outdoors Pigeon Perch target holder is a reliable and durable option for shooting practice. Constructed with advanced Impact Seal material, it can self-heal after a bullet passes through, allowing for hours of continuous use without significant damage. This target holder can withstand all calibers of both rifles and handguns, as well as BB and pellet guns. Its ability to grip clays even when hit off center ensures multiple shots before replacement is needed. However, removing shattered clay pieces from the seals may be time-consuming at times, and the metal bar might not hold up against hard hits or misfires from high caliber bullets like. 308s. Overall, the product offers good entertainment value along with solid construction quality for extended usage periods – an affordable option that delivers on durability while maintaining safety protocols during handling weapons.
 
-### [Official USPSA/IPSC Practice Paper Target, Model: B29](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Official USPSA/IPSC Practice Paper Target, Model: B29](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=official-uspsaipsc-practice-paper-target-model-b29)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="action-target-b29-black-100pk-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/action-target-b29-black-100pk-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=action-target-b29-black-100pk-1"><img alt="action-target-b29-black-100pk-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/action-target-b29-black-100pk-1/public"/></a></div>
 
 As a shooting enthusiast, I've spent countless hours perfecting my aim and technique. Recently, I decided to give Action Target's B29 Black 100pk a try for my home practice sessions. To say it exceeded my expectations would be an understatement. The heavy paper and precise printing make each shot feel satisfying and accurate.
 
@@ -104,9 +104,9 @@ The targets are easy to set up and can withstand multiple rounds without falling
 
 However, there's one minor downside to these targets – they aren't reactive. While some shooters may prefer this for a more serious practice environment, I do sometimes miss the instant gratification of a pop-up target or the satisfying sound of hitting steel. But overall, the Action Target B29 Black 100pk has been a valuable addition to my training regimen.
 
-### [High-Quality Shooting Plates](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [High-Quality Shooting Plates](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=high-quality-shooting-plates)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="ridgeline-3-pack-target-set-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ridgeline-3-pack-target-set-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=ridgeline-3-pack-target-set-1"><img alt="ridgeline-3-pack-target-set-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ridgeline-3-pack-target-set-1/public"/></a></div>
 
 The Ridgeline 3 Pack Target Set, a perfect plinking partner for those hot summer days when you just want to unleash your inner sharpshooter. I've been using this set for a few weeks now, and it's been a game-changer. The set includes a 1-3/4 inch rimfire rifle/pistol dual spinner target, a 3-inch rimfire rifle/pistol spinner target, a 5-inch centerfire pistol spinner target, and a 5-inch centerfire rifle gong target.
 
@@ -116,17 +116,17 @@ However, one issue I've encountered is with the stability of the stands. They ca
 
 Overall, the Ridgeline 3 Pack Target Set is a great addition to any shooter's collection. It's affordable, easy to set up, and most importantly, a ton of fun to use. Despite the stability issue, I'm confident these will keep me entertained for many shooting sessions to come.
 
-### [.22 Dialed Spinner Steel Target for Shooting](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [.22 Dialed Spinner Steel Target for Shooting](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=22-dialed-spinner-steel-target-for-shooting)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="22-dialed-spinner-shooting-steel-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/22-dialed-spinner-shooting-steel-target-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=22-dialed-spinner-shooting-steel-target-1"><img alt="22-dialed-spinner-shooting-steel-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/22-dialed-spinner-shooting-steel-target-1/public"/></a></div>
 
 I've been using this fun steel spinner target for a while now, and I can't tell you how much enjoyment it's brought to my shooting sessions. It's definitely not your average paper target. The innovative design allows me to switch up my aiming points, keeping things interesting and challenging. The sturdy construction ensures that the target stays put even when I'm firing away with my. 22.
 
 Being a bit smaller than I'd prefer at 7.5 inches, I wish it was a bit bigger. Nevertheless, it has been a fantastic addition to my shooting sessions. It's made out of 1/4 inch steel, which means it's durable and able to handle the power of a. 22 rim fire and even a higher caliber if that's your preference. As I continue to use it and observe its performance, I'll be sure to update my review accordingly. Overall, this is a unique and engaging target that adds a new level of excitement to shooting practice.
 
-### [RangeMaxx Rimfire Spinner Target - Steel](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [RangeMaxx Rimfire Spinner Target - Steel](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=rangemaxx-rimfire-spinner-target-steel)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="rangemaxx-rimfire-spinner-targets-steel-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rangemaxx-rimfire-spinner-targets-steel-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=rangemaxx-rimfire-spinner-targets-steel-1"><img alt="rangemaxx-rimfire-spinner-targets-steel-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rangemaxx-rimfire-spinner-targets-steel-1/public"/></a></div>
 
 I recently picked up the RangeMaxx Rimfire Triple Spinner Target to improve my shot placement with my rimfire firearms, and I have to say, it's been a game-changer. The heavy-duty powder-coated steel construction ensures it'll last a long time, while the swivel legs make it easy to set up and store when not in use.
 
@@ -136,9 +136,9 @@ One minor inconvenience I've encountered is the size of the targets, as they are
 
 Overall, the RangeMaxx Rimfire Triple Spinner Target is a fantastic choice for anyone looking to enhance their shooting skills with rimfire firearms. Its durable construction, easy setup, and informative feedback make it an invaluable tool in my practice routine.
 
-### [Dirty Bird 3-Gun Nation Splatter Paper Targets](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Dirty Bird 3-Gun Nation Splatter Paper Targets](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=dirty-bird-3-gun-nation-splatter-paper-targets)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="birchwood-casey-dirty-bird-paper-targets-17-25-in-3-gun-nation-target-per-101" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/birchwood-casey-dirty-bird-paper-targets-17-25-in-3-gun-nation-target-per-101/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=birchwood-casey-dirty-bird-paper-targets-17-25-in-3-gun-nation-target-per-101"><img alt="birchwood-casey-dirty-bird-paper-targets-17-25-in-3-gun-nation-target-per-101" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/birchwood-casey-dirty-bird-paper-targets-17-25-in-3-gun-nation-target-per-101/public"/></a></div>
 
 I recently got my hands on a set of Birchwood Casey Dirty Bird Paper Targets - perfect for sprucing up my shooting practice. What caught my attention was the intense white splatter feature, which allowed me to spot each of my shots with ease. These non-adhesive back targets can be placed wherever I want on a shooting range, and it's easy to note down any observations on them.
 
@@ -146,9 +146,9 @@ One of the best features of these targets is the 3-Gun Nation design - it comes 
 
 The Dirty Bird Targets are made of heavy tag board construction, ensuring their durability for multiple shooting sessions. The only issue I found was that they're not reusable, so I need to stock up more often than I'd hoped. Despite this minor inconvenience, I'm thoroughly satisfied with the product. It's perfect for both new and seasoned shooters like myself, providing visibility and challenge to make every shooting session productive and fun.
 
-### [Durable Heli Handgun Target for Improved Training](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Durable Heli Handgun Target for Improved Training](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=durable-heli-handgun-target-for-improved-training)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="do-all-outdoors-heli-handgun-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/do-all-outdoors-heli-handgun-target-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=do-all-outdoors-heli-handgun-target-1"><img alt="do-all-outdoors-heli-handgun-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/do-all-outdoors-heli-handgun-target-1/public"/></a></div>
 
 Alright, let me tell you about this Do-All Outdoors Heli Handgun Spinning Target I recently picked up. This little gadget has definitely added some excitement and challenge to my handgun practice sessions.
 
@@ -160,9 +160,9 @@ However, I did run into one issue with my target. After multiple shooting sessio
 
 All in all, I think the Do-All Outdoors Heli Handgun Spinning Target is a great addition to any range gear. It provides a fun and challenging way to practice shooting, especially when it's properly aligned at 90 degrees to the shooter. I just wish the weld had been a little stronger.
 
-### [Deluxe 10-count Pistol Target Set with Spinning Mechanism](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Deluxe 10-count Pistol Target Set with Spinning Mechanism](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=deluxe-10-count-pistol-target-set-with-spinning-mechanism)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="gamo-deluxe-spinner-targets-10-count-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gamo-deluxe-spinner-targets-10-count-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=gamo-deluxe-spinner-targets-10-count-1"><img alt="gamo-deluxe-spinner-targets-10-count-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gamo-deluxe-spinner-targets-10-count-1/public"/></a></div>
 
 I recently got my hands on the Gamo Deluxe Spinner Targets - a 10 count set designed to provide shooting enthusiasts with a versatile, fun, and challenging target system. It's no secret that as someone who loves honing their shooting skills, I was excited to see what this set had to offer.
 
@@ -174,9 +174,9 @@ However, there were some issues that stood out during my use of this product. Th
 
 Despite these minor cons, I must say I've been thoroughly entertained using the Gamo Deluxe Spinner Targets. They offer a decent challenge and provide hours of fun target practice - perfect for both beginners and experienced shooters alike.
 
-### [Crosman Durable Metal Spinning Target for Air Rifles](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Crosman Durable Metal Spinning Target for Air Rifles](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=crosman-durable-metal-spinning-target-for-air-rifles)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="crosman-spinning-target-metal-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crosman-spinning-target-metal-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=crosman-spinning-target-metal-1"><img alt="crosman-spinning-target-metal-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crosman-spinning-target-metal-1/public"/></a></div>
 
 I recently got my hands on the Crosman Spinning Target Metal and boy, has it made my airgun practice sessions more fun! This all-metal spinning system features two Target sizes, perfect for honing both my accuracy and timing skills.
 
@@ -186,17 +186,17 @@ However, I did notice that the stickers provided didn't last long after a few sh
 
 All in all, the Crosman Spinning Target Metal is an excellent choice for anyone looking to improve their airgun shooting. Its affordable price point just adds to the appeal!
 
-### [High Quality Indoor Shooting Target Set](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [High Quality Indoor Shooting Target Set](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=high-quality-indoor-shooting-target-set)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="ez-aim-paper-bullseye-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ez-aim-paper-bullseye-target-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=ez-aim-paper-bullseye-target-1"><img alt="ez-aim-paper-bullseye-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ez-aim-paper-bullseye-target-1/public"/></a></div>
 
 As I unpacked the EZ-Aim Paper Bullseye Target, I was immediately impressed with its high quality paper and vibrant colors. It's hard to deny the appeal of these designs, especially when they're developed with a precise focus on maximizing accuracy. The contrasting colors make spotting my shots a breeze, leading to an enjoyable, productive shooting session each time.
 
 One major con, however, is the lack of variety. With only one target design, it tends to get monotonous after a while, and it would be great to see some new designs to keep things fresh. Despite this, I've seen significant improvements in both my accuracy and confidence since I started using the EZ-Aim, making it an essential tool for any firearm enthusiast.
 
-### [RangeMaxx Rifle Gong Target with Stand](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [RangeMaxx Rifle Gong Target with Stand](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=rangemaxx-rifle-gong-target-with-stand)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="rangemaxx-rifle-gong-target-with-stand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rangemaxx-rifle-gong-target-with-stand-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=rangemaxx-rifle-gong-target-with-stand-1"><img alt="rangemaxx-rifle-gong-target-with-stand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rangemaxx-rifle-gong-target-with-stand-1/public"/></a></div>
 
 As a shooting enthusiast, I recently introduced the RangeMaxx Rifle Gong Target with Stand into my practice routine, and let me tell you, it's a game-changer. It's designed for centerfire rifle cartridges like. 300 Win Mag and gives off a satisfying clang sound when you hit it, making it easy to confirm whether or not you've hit the target. Plus, the target swings on impact, offering visual confirmation too.
 
@@ -208,9 +208,9 @@ However, I must note that this target isn't invincible. If you're using high-pow
 
 All in all, the RangeMaxx Rifle Gong Target with Stand is a solid addition to any shooting range. It's easy to set up, durable, and offers both audible and visual confirmation of your shots. Though it may not be perfect for every shooting scenario, it's definitely made fun, challenging, and rewarding by offering immediate feedback when you shoot.
 
-### [Do All Outdoors Triple Paddle Spinning Target for .22 Caliber Rifles and Pistols](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Do All Outdoors Triple Paddle Spinning Target for .22 Caliber Rifles and Pistols](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=do-all-outdoors-triple-paddle-spinning-target-for-22-caliber-rifles-and-pistols)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="do-all-outdoors-triple-tree-spinner-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/do-all-outdoors-triple-tree-spinner-target-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=do-all-outdoors-triple-tree-spinner-target-1"><img alt="do-all-outdoors-triple-tree-spinner-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/do-all-outdoors-triple-tree-spinner-target-1/public"/></a></div>
 
 I used to be quite the novice when it came to target practice. But this Do-All Triple Tree Spinner Target has truly revolutionized my plinking experience. Imagine walking into the woods, setting this little device up in a matter of minutes, and hearing the satisfying "plink" sound as you hit your first target!
 
@@ -220,25 +220,25 @@ One of the downsides I noticed though is that it can be quite noisy. If you're p
 
 All in all, this Do-All Triple Tree Spinner Target has made my shooting sessions much more enjoyable and has improved my accuracy significantly. An added bonus? The sense of satisfaction after finally hitting that elusive spinning paddle!
 
-### [Durable 3" and 5" Combo Handgun Spinner Target](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Durable 3" and 5" Combo Handgun Spinner Target](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=durable-3-and-5-combo-handgun-spinner-target)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="ridgeline-3-and-5-combo-handgun-spinner-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ridgeline-3-and-5-combo-handgun-spinner-target-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=ridgeline-3-and-5-combo-handgun-spinner-target-1"><img alt="ridgeline-3-and-5-combo-handgun-spinner-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ridgeline-3-and-5-combo-handgun-spinner-target-1/public"/></a></div>
 
 When it comes to upping your handgun training game, the Ridgeline 3" and 5" Combo Handgun Spinner Target truly stands out in my daily practice. . This versatile target packs a serious punch with its robust construction - it can handle a good amount of lead without even a hint of wobble, thanks to the four support legs that provide phenomenal stability. .
 
 However, it's worth noting that as someone who is rather uncoordinated, I found the spinning mechanism to be a bit too sensitive at first. . With some practice and adjustments, though, I got the hang of it and now absolutely love the thrill of nailing the bullseye and watching the target spin. . It's a little pricy compared to other options on the market, but overall, the Ridgeline Handgun Spinner Target is a solid choice for sharpening your handgun skills in a dynamic way. .
 
-### [Premium Rimfire Dual Spinner Target for Accuracy Training](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Premium Rimfire Dual Spinner Target for Accuracy Training](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=premium-rimfire-dual-spinner-target-for-accuracy-training)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="rangemaxx-rimfire-dual-spinner-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rangemaxx-rimfire-dual-spinner-target-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=rangemaxx-rimfire-dual-spinner-target-1"><img alt="rangemaxx-rimfire-dual-spinner-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rangemaxx-rimfire-dual-spinner-target-1/public"/></a></div>
 
 I recently got hold of the RangeMaxx Rimfire Dual Spinner Target, and I must say it has become a fun addition to my range practice sessions. The heavy-duty steel construction with swivel legs makes it incredibly sturdy and easy to set up and store. I've had a great time trying to shoot these spinning targets with my rimfire firearms. The visual and audible feedback when you hit the target adds an extra layer of excitement to each round.
 
 The spinning targets are quite small, but it's made it a fun challenge for me. I did face a minor issue as the spinning mechanism got jammed during my first shooting session, but this wasn't a deal-breaker. Overall, I would highly recommend the RangeMaxx Rimfire Dual Spinner Target for anyone looking for a unique and exciting way to practice their shot placement and accuracy with rimfire firearms.
 
-### [Champion Triple Gong Target - Resettable & Durable Steel Design](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Champion Triple Gong Target - Resettable & Durable Steel Design](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=champion-triple-gong-target-resettable-durable-steel-design)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="champion-handgun-three-gong-reset-target-steel-card-40871" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/champion-handgun-three-gong-reset-target-steel-card-40871/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=champion-handgun-three-gong-reset-target-steel-card-40871"><img alt="champion-handgun-three-gong-reset-target-steel-card-40871" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/champion-handgun-three-gong-reset-target-steel-card-40871/public"/></a></div>
 
 I recently got to try out the Champion Handgun Three Gong Reset Target for a fun little target practice session at home. . It's a steel circle target with three gongs in it, and when you hit the bottom two, they don't reset like some might expect, but rather you need to reset them manually. .
 
@@ -248,9 +248,9 @@ As for the material, it's made of lead, which adds good weight and durability. .
 
 So, it's not very useful as a constant target. . Overall, it has some unique features that could potentially make it a fun target to shoot at, but just remember that you'll need to reset it yourself most of the time. .
 
-### [Triple Spinner Target System for Improved Shooting Skills](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Triple Spinner Target System for Improved Shooting Skills](https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=triple-spinner-target-system-for-improved-shooting-skills)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="allen-metal-spinner-triple-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/allen-metal-spinner-triple-target-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=allen-metal-spinner-triple-target-1"><img alt="allen-metal-spinner-triple-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/allen-metal-spinner-triple-target-1/public"/></a></div>
 
 I've been using the EZ Aim Triple Spinner Target System to improve my shooting accuracy with my. 22 cal. . rifle and air gun. . The folding design made with solid steel is a game changer; it sets up quickly and easily stores away when not in use. .
 
@@ -262,7 +262,7 @@ However, the legs can be a little flimsy, especially if you shoot multiple times
 
 ### Important Features of 3Gun Targets
 
-<div><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/3Gun+Targets-2/public" alt="3Gun Targets-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=3gun-targets-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/3Gun+Targets-2/public" alt="3Gun Targets-2"></a></div>
 
 #### Size and Durability
 
@@ -272,7 +272,7 @@ Look for 3Gun targets that are made from heavy-duty materials like steel or AR50
 
 Choose a target that can be easily assembled and disassembled. This will save you time and effort when setting up your shooting range. In addition, opt for a portable target with built-in handles or wheels, making it easy to move around between shooting spots.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/3Gun+Targets-3/public" alt="3Gun Targets-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=3gun-targets-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/3Gun+Targets-3/public" alt="3Gun Targets-3"></a></div>
 
 #### Target Design
 
@@ -284,7 +284,7 @@ Some 3Gun targets are equipped with reactivity mechanisms that provide instantan
 
 ### Factors to Consider When Buying 3Gun Targets
 
-<div><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/3Gun+Targets-4/public" alt="3Gun Targets-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=3gun-targets-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/3Gun+Targets-4/public" alt="3Gun Targets-4"></a></div>
 
 #### Your Skill Level and Training Goals
 
@@ -294,7 +294,7 @@ Determine your current skill level and the specific goals you hope to achieve wi
 
 3Gun targets come in a range of prices, so it's essential to set a budget before making a purchase. Keep in mind that investing in higher-quality targets may cost more up front, but they are more durable and long-lasting, often providing better value in the long run.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/3Gun+Targets-5/public" alt="3Gun Targets-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=3gun-targets-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/3Gun+Targets-5/public" alt="3Gun Targets-5"></a></div>
 
 #### Safety Features
 
@@ -308,7 +308,7 @@ Before engaging in shooting practice, review local laws and regulations to ensur
 
 ### What are 3Gun targets?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/3Gun+Targets-6/public" alt="3Gun Targets-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/3gun-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=3gun-targets&utm_term=3gun-targets-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/3Gun+Targets-6/public" alt="3Gun Targets-6"></a></div>
 
 3Gun targets are specially designed shooting targets used in the popular shooting sport known as 3-Gun. These targets are designed to challenge competitors' shooting skills by simulating realistic hunting and self-defense scenarios. 3-Gun targets vary in size, shape, and difficulty, providing a wide array of options for practice and competition.
 

@@ -16,33 +16,33 @@ Knives are an indispensable tool for many people, especially in the world of spo
 
 ## The Top 10 Best Lockback Knives
 
-1. [Slim Stainless Steel Frame Lock Knife for Everyday Carry](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Gerber Paraframe Mini - a lightweight, stainless steel, serrated edge frame lock handle knife that's perfect for everyday carry.
+1. [Slim Stainless Steel Frame Lock Knife for Everyday Carry](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=slim-stainless-steel-frame-lock-knife-for-everyday-carry) - Gerber Paraframe Mini - a lightweight, stainless steel, serrated edge frame lock handle knife that's perfect for everyday carry.
 
-2. [Large Lockback Knife with AUS-10A Stainless Steel Blade and G10 Handle](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the power of Cold Steel XL Espada Lockback with a 9.25" black AUS 10A Stainless blade, dark earth G10 handle, thumb disk, and secure Lockback mechanism, expertly crafted in Taiwan.
+2. [Large Lockback Knife with AUS-10A Stainless Steel Blade and G10 Handle](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=large-lockback-knife-with-aus-10a-stainless-steel-blade-and-g10-handle) - Experience the power of Cold Steel XL Espada Lockback with a 9.25" black AUS 10A Stainless blade, dark earth G10 handle, thumb disk, and secure Lockback mechanism, expertly crafted in Taiwan.
 
-3. [Compact Stainless Steel Neck Knife with Lockback Mechanism](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Rough Rider Mini Lockback Knife is a sturdy and stylish pocket companion, featuring a stainless steel blade and loop for versatile attachment, perfect for everyday use.
+3. [Compact Stainless Steel Neck Knife with Lockback Mechanism](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=compact-stainless-steel-neck-knife-with-lockback-mechanism) - The Rough Rider Mini Lockback Knife is a sturdy and stylish pocket companion, featuring a stainless steel blade and loop for versatile attachment, perfect for everyday use.
 
-4. [Spyderco Pacific Salt 2 Lockback Knife with Green FRN Handle](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the unparalleled quality and reliability of the Spyderco Pacific Salt 2 Lockback Green, featuring a 3.75" satin finish LC 200 N tool steel blade, bi-directional texture FRN handle, and made in Japan.
+4. [Spyderco Pacific Salt 2 Lockback Knife with Green FRN Handle](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=spyderco-pacific-salt-2-lockback-knife-with-green-frn-handle) - Experience the unparalleled quality and reliability of the Spyderco Pacific Salt 2 Lockback Green, featuring a 3.75" satin finish LC 200 N tool steel blade, bi-directional texture FRN handle, and made in Japan.
 
-5. [Large Lockback Knife with Green G10 Handle and Black AUS 10A Steel Blade](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience ultimate precision and control with the Cold Steel XL Espada Lockback, featuring a 4.7-inch black AUS 10A steel blade and solid G10 handle.
+5. [Large Lockback Knife with Green G10 Handle and Black AUS 10A Steel Blade](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=large-lockback-knife-with-green-g10-handle-and-black-aus-10a-steel-blade) - Experience ultimate precision and control with the Cold Steel XL Espada Lockback, featuring a 4.7-inch black AUS 10A steel blade and solid G10 handle.
 
-6. [Enormous Folding Bowie Knife with Stainless Steel Blade and Jigged Bone Handle](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the gigantic power of the Marbles Big Ole Brown Bone 6.25" Lockback, a folding Bowie knife boasting a 13cm stainless steel clip point blade and stunning jigged bone handle.
+6. [Enormous Folding Bowie Knife with Stainless Steel Blade and Jigged Bone Handle](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=enormous-folding-bowie-knife-with-stainless-steel-blade-and-jigged-bone-handle) - Experience the gigantic power of the Marbles Big Ole Brown Bone 6.25" Lockback, a folding Bowie knife boasting a 13cm stainless steel clip point blade and stunning jigged bone handle.
 
-7. [Outdoor Edge Razorfin Folding Fillet Knife with Interchangeable Blades and Blue TPR Handles](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience professional-grade fish filleting with the Outdoor Edge RazorFin Lockback Blue Folding Knife Set, featuring the patented RazorSafe blade change system and four interchangeable blades for seamless usage.
+7. [Outdoor Edge Razorfin Folding Fillet Knife with Interchangeable Blades and Blue TPR Handles](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=outdoor-edge-razorfin-folding-fillet-knife-with-interchangeable-blades-and-blue-tpr-handles) - Experience professional-grade fish filleting with the Outdoor Edge RazorFin Lockback Blue Folding Knife Set, featuring the patented RazorSafe blade change system and four interchangeable blades for seamless usage.
 
-8. [Compact Lockback Knife with Spear Point Blade and OD Green Handle](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience premium craftsmanship and exceptional performance with the 4.25" Verdict Lockback OD Green Knife by Cold Steel, featuring a satin-finish 4116 stainless spear point blade, OD green GFN handle, and reliable lockback mechanism, made in Taiwan.
+8. [Compact Lockback Knife with Spear Point Blade and OD Green Handle](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=compact-lockback-knife-with-spear-point-blade-and-od-green-handle) - Experience premium craftsmanship and exceptional performance with the 4.25" Verdict Lockback OD Green Knife by Cold Steel, featuring a satin-finish 4116 stainless spear point blade, OD green GFN handle, and reliable lockback mechanism, made in Taiwan.
 
-9. [Large & Lightweight Lockback Pocket Knife](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the perfect blend of performance and portability with Cold Steel Range Boss Lockback, a lightweight pocket knife featuring a robust 10 cm blade made from high-quality 4034 stainless steel and grippy Zytel scales for added comfort and control.
+9. [Large & Lightweight Lockback Pocket Knife](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=large-lightweight-lockback-pocket-knife) - Experience the perfect blend of performance and portability with Cold Steel Range Boss Lockback, a lightweight pocket knife featuring a robust 10 cm blade made from high-quality 4034 stainless steel and grippy Zytel scales for added comfort and control.
 
-10. [Spyderco Delica 4 Lockback Knife with Serrated K390 Steel Blade and Blue Bi-Directional Texture FRN Handle](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Spyderco 11FSK390 Delica 4 Lockback Knife is a reliable and high-performing tool with a satin finish, serrated K390 tool steel blade, and secure lockback mechanism, making it ideal for various outdoor and everyday tasks.
+10. [Spyderco Delica 4 Lockback Knife with Serrated K390 Steel Blade and Blue Bi-Directional Texture FRN Handle](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=spyderco-delica-4-lockback-knife-with-serrated-k390-steel-blade-and-blue-bi-directional-texture-frn-handle) - The Spyderco 11FSK390 Delica 4 Lockback Knife is a reliable and high-performing tool with a satin finish, serrated K390 tool steel blade, and secure lockback mechanism, making it ideal for various outdoor and everyday tasks.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Slim Stainless Steel Frame Lock Knife for Everyday Carry](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Slim Stainless Steel Frame Lock Knife for Everyday Carry](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=slim-stainless-steel-frame-lock-knife-for-everyday-carry)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="gerber-paraframe-mini-stainless-serrated-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gerber-paraframe-mini-stainless-serrated-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=gerber-paraframe-mini-stainless-serrated-1"><img alt="gerber-paraframe-mini-stainless-serrated-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gerber-paraframe-mini-stainless-serrated-1/public"/></a></div>
 
 The Gerber Mini Paraframe is an ideal everyday carry knife for its lightweight and simple design. The open frame enables easy cleaning, making it a great companion for your daily essentials. The knife is available in various blade variations to match individual preferences.
 
@@ -52,9 +52,9 @@ However, some users may find that this knife can be too small for their taste, e
 
 In summary, if you're searching for an affordable yet high-quality pocketknife suitable as an everyday carry option – then consider giving Gerber’s Mini Paraframe series a try! Just remember that due to sizing constraints and specific design choices made by the manufacturer - certain individuals requiring higher performance/durability levels may still want to explore alternative options before making their final decision today!
 
-### [Large Lockback Knife with AUS-10A Stainless Steel Blade and G10 Handle](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Large Lockback Knife with AUS-10A Stainless Steel Blade and G10 Handle](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=large-lockback-knife-with-aus-10a-stainless-steel-blade-and-g10-handle)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cold-steel-62mgcdesw-xl-espada-lockback-de-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cold-steel-62mgcdesw-xl-espada-lockback-de-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=cold-steel-62mgcdesw-xl-espada-lockback-de-1"><img alt="cold-steel-62mgcdesw-xl-espada-lockback-de-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cold-steel-62mgcdesw-xl-espada-lockback-de-1/public"/></a></div>
 
 The Cold Steel Espada G-10 XL Giant Folding Knife is an impressive piece of equipment, with its 7. 5-inch blade sporting a robust stonewash finish that sets it apart from other folding knives in the collection. The knife's overall construction is rock solid due to the combination of AUS-10A stainless steel and dark earth G10 handle scales. The pocket clip ensures secure storage in your pocket or on your belt, while the thumb hole allows for easy one-handed opening when needed.
 
@@ -62,9 +62,9 @@ One notable aspect of this knife is its large size – at over 9 inches in lengt
 
 Although there isn't much to criticize about this impressive tool, its size might be a drawback for some users who prefer more compact options in their everyday carry inventory. However, if you're on the market for a large folding knife that turns heads while getting any job done with ease – look no further than Cold Steel Espada G-10 XL Giant Folding Knife!
 
-### [Compact Stainless Steel Neck Knife with Lockback Mechanism](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Compact Stainless Steel Neck Knife with Lockback Mechanism](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=compact-stainless-steel-neck-knife-with-lockback-mechanism)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="rough-rider-mini-lockback-knife-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rough-rider-mini-lockback-knife-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=rough-rider-mini-lockback-knife-1"><img alt="rough-rider-mini-lockback-knife-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rough-rider-mini-lockback-knife-1/public"/></a></div>
 
 The mini Rough Rider knife is a compact and sturdy tool that has definitely exceeded my expectations. It boasts a sharp and functional stainless steel blade that feels reliable in my hands. The size of the knife is perfect for carrying around on a keychain or as a piece of jewelry, without sacrificing its performance.
 
@@ -74,9 +74,9 @@ One area where I think there could be improvement is in the strength of the lock
 
 Overall, this mini Rough Rider knife offers a great combination of style and functionality that makes it an attractive option for anyone looking for a compact yet reliable tool. As long as you keep in mind some potential drawbacks regarding safety features and handle material preference, this product can serve you well in various situations without any trouble at all!
 
-### [Spyderco Pacific Salt 2 Lockback Knife with Green FRN Handle](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Spyderco Pacific Salt 2 Lockback Knife with Green FRN Handle](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=spyderco-pacific-salt-2-lockback-knife-with-green-frn-handle)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="spyderco-91fpgr2-pacific-salt-2-lockback-green-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/spyderco-91fpgr2-pacific-salt-2-lockback-green-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=spyderco-91fpgr2-pacific-salt-2-lockback-green-1"><img alt="spyderco-91fpgr2-pacific-salt-2-lockback-green-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/spyderco-91fpgr2-pacific-salt-2-lockback-green-1/public"/></a></div>
 
 As a proud owner of the Salt 2 LC200N Knife, I can attest to its outstanding usability and quality. The lightweight, ergonomic design and the bi-directional texture FRN handle make it comfortable to hold and use for various tasks. Its rust-proof LC 200 N tool steel blade not only prevents corrosion, but also ensures effortless sharpening.
 
@@ -84,9 +84,9 @@ During one camping trip where I had left my regular tools at home, this knife pr
 
 This knife is perfect for marine environments as well as everyday use – truly a practical tool that won't let you down! As an added bonus, its sleek design adds a touch of style to your gear collection.
 
-### [Large Lockback Knife with Green G10 Handle and Black AUS 10A Steel Blade](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Large Lockback Knife with Green G10 Handle and Black AUS 10A Steel Blade](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=large-lockback-knife-with-green-g10-handle-and-black-aus-10a-steel-blade)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cold-steel-62mgcodbk-xl-espada-lockback-od-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cold-steel-62mgcodbk-xl-espada-lockback-od-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=cold-steel-62mgcodbk-xl-espada-lockback-od-1"><img alt="cold-steel-62mgcodbk-xl-espada-lockback-od-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cold-steel-62mgcodbk-xl-espada-lockback-od-1/public"/></a></div>
 
 Having used the XL G-10 Espada folding knife for an extended period, I can attest to its exceptional construction and functionality. The 7. 5-inch AUS 10A steel blade is incredibly sharp and durable, and the black coating provides added protection against wear and corrosion. The thumb studs on the spine of the knife allow for easy one-handed opening with a satisfying "snap" sound that assures you of the secure lockback mechanism.
 
@@ -94,9 +94,9 @@ The ergonomic handle made from solid G10 material offers a comfortable grip duri
 
 Overall, this product has quickly become my go-to tool for everyday carry thanks to its high-quality construction, comfortable grip, and impressive cutting performance. Whether you're an outdoors enthusiast or simply looking for a reliable EDC knife, this product is definitely worth considering!
 
-### [Enormous Folding Bowie Knife with Stainless Steel Blade and Jigged Bone Handle](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Enormous Folding Bowie Knife with Stainless Steel Blade and Jigged Bone Handle](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=enormous-folding-bowie-knife-with-stainless-steel-blade-and-jigged-bone-handle)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="marbles-big-ole-brown-bone-6-25-lockback-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/marbles-big-ole-brown-bone-6-25-lockback-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=marbles-big-ole-brown-bone-6-25-lockback-1"><img alt="marbles-big-ole-brown-bone-6-25-lockback-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/marbles-big-ole-brown-bone-6-25-lockback-1/public"/></a></div>
 
 As a writer and outdoor enthusiast, I recently got the chance to use the Marbles Big Ole Lockback folding knife during one of my camping trips. I have to say that this knife truly impressed me with its large mirror polished stainless steel blade that is both sharp and incredibly durable. The lock back mechanism provides an added level of safety when using it for various tasks.
 
@@ -106,9 +106,9 @@ One potential drawback of this product is its size - it's quite larger than othe
 
 In summary, if you're looking for a well-crafted lockback knife with generous blade length and beautiful design elements like polished steel and jigged bone handle scales, then the Marbles Big Ole Lockback should definitely be on your list of considerations. Just be sure to take into account its larger size before making your decision.
 
-### [Outdoor Edge Razorfin Folding Fillet Knife with Interchangeable Blades and Blue TPR Handles](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Outdoor Edge Razorfin Folding Fillet Knife with Interchangeable Blades and Blue TPR Handles](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=outdoor-edge-razorfin-folding-fillet-knife-with-interchangeable-blades-and-blue-tpr-handles)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="outdoor-edge-razorfin-lockback-blue-folding-knife-blade-set-rfu-50c-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/outdoor-edge-razorfin-lockback-blue-folding-knife-blade-set-rfu-50c-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=outdoor-edge-razorfin-lockback-blue-folding-knife-blade-set-rfu-50c-1"><img alt="outdoor-edge-razorfin-lockback-blue-folding-knife-blade-set-rfu-50c-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/outdoor-edge-razorfin-lockback-blue-folding-knife-blade-set-rfu-50c-1/public"/></a></div>
 
 I recently got my hands on the Outdoor Edge Razorfin Folding Fillet Knife with Interchangeable Blades and I must say, it has already become an indispensable tool in my outdoor gear collection. The replaceable blade performance ensures that the knife stays sharp without the need for sharpening, which is a huge plus when you're dealing with fishing or smaller game.
 
@@ -116,9 +116,9 @@ One of the standout features of this knife is the patented RazorSafe blade chang
 
 Although this knife has proven to be versatile and convenient, I have occasionally struggled with maintaining a firm grip due to wet or slippery conditions while outdoors. Nevertheless, this minor inconvenience does not overshadow the overall value this knife adds as an essential tool for any adventure or fishing trip where precision cutting and effortless blade replacement are necessary.
 
-### [Compact Lockback Knife with Spear Point Blade and OD Green Handle](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Compact Lockback Knife with Spear Point Blade and OD Green Handle](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=compact-lockback-knife-with-spear-point-blade-and-od-green-handle)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cold-steel-flc3spssodg-verdict-lockback-od-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cold-steel-flc3spssodg-verdict-lockback-od-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=cold-steel-flc3spssodg-verdict-lockback-od-1"><img alt="cold-steel-flc3spssodg-verdict-lockback-od-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cold-steel-flc3spssodg-verdict-lockback-od-1/public"/></a></div>
 
 I've been carrying the Cold Steel Verdict Lockback Knife as my everyday carry for several months, and it has certainly lived up to my expectations. The 4116 stainless steel blade is incredibly sharp right out of the box, and it has maintained its edge even after frequent use. Its compact size makes it easy to carry in my pocket without feeling heavy or bulky.
 
@@ -126,9 +126,9 @@ One standout feature of this knife is its triad lock mechanism, which keeps the 
 
 Overall, if you're looking for a practical and robust EDC knife that won't let you down in your daily tasks, the Cold Steel Verdict Lockback Knife definitely deserves a closer look!
 
-### [Large & Lightweight Lockback Pocket Knife](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Large & Lightweight Lockback Pocket Knife](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=large-lightweight-lockback-pocket-knife)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="cold-steel-range-boss-lockback-black-folding-pocket-knife-cs-20kr5-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cold-steel-range-boss-lockback-black-folding-pocket-knife-cs-20kr5-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=cold-steel-range-boss-lockback-black-folding-pocket-knife-cs-20kr5-1"><img alt="cold-steel-range-boss-lockback-black-folding-pocket-knife-cs-20kr5-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cold-steel-range-boss-lockback-black-folding-pocket-knife-cs-20kr5-1/public"/></a></div>
 
 I recently picked up the Cold Steel Range Boss Lockback as my new everyday carry knife, and I must say it has impressed me with its remarkable design and features. The 4034 stainless steel blade holds its sharpness remarkably well and the Clip Point shape is versatile, allowing for a wide range of tasks. The handle made of Zytel provides a secure and comfortable grip, making it easy to use.
 
@@ -138,9 +138,9 @@ Another advantage is the Tri-Ad Lock mechanism that ensures a secure lockup whil
 
 Overall, Cold Steel Range Boss Lockback is an excellent choice for those looking for a reliable and versatile everyday carry knife that offers practical features at an affordable price point without weighing you down in your journey throughout your day!
 
-### [Spyderco Delica 4 Lockback Knife with Serrated K390 Steel Blade and Blue Bi-Directional Texture FRN Handle](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Spyderco Delica 4 Lockback Knife with Serrated K390 Steel Blade and Blue Bi-Directional Texture FRN Handle](https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=spyderco-delica-4-lockback-knife-with-serrated-k390-steel-blade-and-blue-bi-directional-texture-frn-handle)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="spyderco-11fsk390-delica-4-lockback-blue-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/spyderco-11fsk390-delica-4-lockback-blue-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=spyderco-11fsk390-delica-4-lockback-blue-1"><img alt="spyderco-11fsk390-delica-4-lockback-blue-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/spyderco-11fsk390-delica-4-lockback-blue-1/public"/></a></div>
 
 After using the Spyderco Delica 4 K390 for a while, I can confidently say that it's a solid choice for everyday carry. The lightweight design and iconic look make it both sleek and functional, while the K390 steel adds to its durability. Edge retention on this knife is impressive, holding up remarkably well even after repeated use.
 
@@ -152,7 +152,7 @@ Overall, the Spyderco Delica 4 K390 would be a reliable EDC option for anyone in
 
 ### Important Features in Lockback Knives
 
-<div><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lockback+Knives-2/public" alt="Lockback Knives-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=lockback-knives-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lockback+Knives-2/public" alt="Lockback Knives-2"></a></div>
 
 When considering the purchase of a lockback knife, there are several key features you should look for:
 
@@ -184,7 +184,7 @@ To make the most of your new lockback knife, follow these best practices:
 
 - Store and Transport Securely: Use a quality knife sheath or case to protect your investment and ensure safe handling during travel.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lockback+Knives-3/public" alt="Lockback Knives-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=lockback-knives-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lockback+Knives-3/public" alt="Lockback Knives-3"></a></div>
 
 ### Conclusion
 
@@ -194,7 +194,7 @@ Lockback knives offer a reliable, folding option for those in need of a versatil
 
 ### What are lockback knives?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lockback+Knives-4/public" alt="Lockback Knives-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=lockback-knives-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lockback+Knives-4/public" alt="Lockback Knives-4"></a></div>
 
 Lockback knives are foldable knives with a locking mechanism to keep the blade securely in place when in use. This safety feature prevents the blade from accidentally closing while you are using it.
 
@@ -206,7 +206,7 @@ The lockback mechanism works by locking the knife's blade into an open position.
 
 Lockback knives come in a variety of shapes, sizes, and designs. You can find lockback knives with different types of blades, such as drop-point, tanto, and sheepsfoot. Some lockback knives feature skeletonized or textured handles for better grip, while others offer additional cutting options like partially serrated or modified tanto blades.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lockback+Knives-5/public" alt="Lockback Knives-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=lockback-knives-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lockback+Knives-5/public" alt="Lockback Knives-5"></a></div>
 
 ### What are the benefits of using a lockback knife?
 
@@ -218,7 +218,7 @@ Proper maintenance of a lockback knife includes regular cleaning, oiling, and sh
 
 ### Are lockback knives suitable for everyday carry?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lockback+Knives-6/public" alt="Lockback Knives-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/lockback-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=lockback-knives&utm_term=lockback-knives-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lockback+Knives-6/public" alt="Lockback Knives-6"></a></div>
 
 Yes, lockback knives are suitable for everyday carry (EDC) because they combine the portability of a folding knife with the safety of a locking mechanism. Choose a compact and lightweight model with a suitable blade length and design to suit your daily needs and preferences.
 

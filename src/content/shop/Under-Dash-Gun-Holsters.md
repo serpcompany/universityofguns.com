@@ -26,23 +26,23 @@ At a glance:
 
 ## The Top 5 Best Under Dash Gun Holsters
 
-1. [Urban Carry LockLeather OWB Combo Holster with Magazine Pouch](https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The LockLeather OWB+Mag Holster is a versatile and comfortable leather holster designed to fit single or double-stack caliber magazines securely for seamless concealed or open carry, perfect for everyday use and rigorous activities.
+1. [Urban Carry LockLeather OWB Combo Holster with Magazine Pouch](https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=under-dash-gun-holsters&utm_term=urban-carry-lockleather-owb-combo-holster-with-magazine-pouch) - The LockLeather OWB+Mag Holster is a versatile and comfortable leather holster designed to fit single or double-stack caliber magazines securely for seamless concealed or open carry, perfect for everyday use and rigorous activities.
 
-2. [Secure IWB Holster Mount for Vehicles, Desk, and Nightstand Use](https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience unmatched security and convenience with the IWB Holster Mount Single, designed to carry and store your holster and firearm safely and securely in a variety of settings.
+2. [Secure IWB Holster Mount for Vehicles, Desk, and Nightstand Use](https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=under-dash-gun-holsters&utm_term=secure-iwb-holster-mount-for-vehicles-desk-and-nightstand-use) - Experience unmatched security and convenience with the IWB Holster Mount Single, designed to carry and store your holster and firearm safely and securely in a variety of settings.
 
-3. [DeSantis Die Hard Ankle Rig for Glock 43 - Black Right Hand](https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The DeSantis Die Hard Ankle Rig for Glock 43 in black offers exceptional concealment and comfort, with a quick draw for right-handed shooters, made from top grain leather and a neoprene leg band, ideal for law enforcement and airsoft gun enthusiasts.
+3. [DeSantis Die Hard Ankle Rig for Glock 43 - Black Right Hand](https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=under-dash-gun-holsters&utm_term=desantis-die-hard-ankle-rig-for-glock-43-black-right-hand) - The DeSantis Die Hard Ankle Rig for Glock 43 in black offers exceptional concealment and comfort, with a quick draw for right-handed shooters, made from top grain leather and a neoprene leg band, ideal for law enforcement and airsoft gun enthusiasts.
 
-4. [Seizmik ICOS: Silent, Secure, In-Cab Seat Gun Holder](https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Seizmik ICOS Gun Holder ensures secure and silent storage for two firearms within your vehicle's cabin, utilizing closed-cell foam to prevent damage or scratches while keeping the muzzles pointed down for safety.
+4. [Seizmik ICOS: Silent, Secure, In-Cab Seat Gun Holder](https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=under-dash-gun-holsters&utm_term=seizmik-icos-silent-secure-in-cab-seat-gun-holder) - The Seizmik ICOS Gun Holder ensures secure and silent storage for two firearms within your vehicle's cabin, utilizing closed-cell foam to prevent damage or scratches while keeping the muzzles pointed down for safety.
 
-5. [Magnetic Gun Holder for Under Desk, Car, Home, or Office](https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - High-quality, weatherproof, and shockproof magnetic gun holder for fast concealed weapon access, including compact, mid-sized, and full-size handguns, with a powerful force that securely grips your firearm without scratching it.
+5. [Magnetic Gun Holder for Under Desk, Car, Home, or Office](https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=under-dash-gun-holsters&utm_term=magnetic-gun-holder-for-under-desk-car-home-or-office) - High-quality, weatherproof, and shockproof magnetic gun holder for fast concealed weapon access, including compact, mid-sized, and full-size handguns, with a powerful force that securely grips your firearm without scratching it.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [Urban Carry LockLeather OWB Combo Holster with Magazine Pouch](https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Urban Carry LockLeather OWB Combo Holster with Magazine Pouch](https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=under-dash-gun-holsters&utm_term=urban-carry-lockleather-owb-combo-holster-with-magazine-pouch)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="lockleather-owbmag-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lockleather-owbmag-holster-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=under-dash-gun-holsters&utm_term=lockleather-owbmag-holster-1"><img alt="lockleather-owbmag-holster-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lockleather-owbmag-holster-1/public"/></a></div>
 
 I've been using the Urban Carry LockLeather Combo holster on a daily basis and I must say that its design is both practical and comfortable. The leather is smooth yet tough, allowing it to snugly wrap around my waist without any discomfort or snagging. Despite being well-made, it effectively conceals my firearm so there are no visible bulges or lines under my clothing.
 
@@ -50,9 +50,9 @@ The retention clip is a standout feature, offering unmatched security for my gun
 
 Overall, this has been an excellent product choice that offers safety, convenience and style without compromising comfort. While there might be some minor imperfections depending on personal preferences, they are easily resolved and don't take away from the overall quality of the holster. I would definitely recommend this to others looking for an efficient and dependable holster for everyday use.
 
-### [Secure IWB Holster Mount for Vehicles, Desk, and Nightstand Use](https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Secure IWB Holster Mount for Vehicles, Desk, and Nightstand Use](https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=under-dash-gun-holsters&utm_term=secure-iwb-holster-mount-for-vehicles-desk-and-nightstand-use)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="iwb-holster-mount-single-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/iwb-holster-mount-single-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=under-dash-gun-holsters&utm_term=iwb-holster-mount-single-1"><img alt="iwb-holster-mount-single-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/iwb-holster-mount-single-1/public"/></a></div>
 
 I recently purchased the IWB Holster Mount and have been using it daily for a few weeks now. This product has truly transformed my daily carry experience, offering both convenience and peace of mind. The mount securely holds my holstered firearm in place, whether I'm at my office desk or driving in my truck. Its dual locking design provides assurance that the weapon won't fall out, even on bumpy roads.
 
@@ -62,9 +62,9 @@ I was also impressed by the two unique mounting methods offered by this product,
 
 Overall, this IWB Holster Mount is an essential accessory for anyone who carries concealed weapons daily – definitely worth its cost! With its lightweight design and dual locking mechanism, you can rest assured that your firearm remains safe and secure while on-the-go or stored away when not needed.
 
-### [DeSantis Die Hard Ankle Rig for Glock 43 - Black Right Hand](https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [DeSantis Die Hard Ankle Rig for Glock 43 - Black Right Hand](https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=under-dash-gun-holsters&utm_term=desantis-die-hard-ankle-rig-for-glock-43-black-right-hand)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="desantis-die-hard-ankle-rig-for-glock-43-black-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/desantis-die-hard-ankle-rig-for-glock-43-black-right-hand-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=under-dash-gun-holsters&utm_term=desantis-die-hard-ankle-rig-for-glock-43-black-right-hand-1"><img alt="desantis-die-hard-ankle-rig-for-glock-43-black-right-hand-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/desantis-die-hard-ankle-rig-for-glock-43-black-right-hand-1/public"/></a></div>
 
 As an avid gun enthusiast, I've tried quite a few holsters over the years, but the Desantis Die Hard Ankle Rig for my Glock 43 has definitely been a game-changer. It's worn on the inside of your ankle opposite to which hand you will draw your firearm with, which initially took a bit of getting used to. But once I broke it in, it felt incredibly comfortable.
 
@@ -78,9 +78,9 @@ Concealment-wise, I think this product does its job rather well. However, I woul
 
 Overall, the Desantis Die Hard Ankle Rig for Glock 43 is an excellent choice for anyone looking for a comfortable and reliable ankle holster. Its high-quality materials and precise craftsmanship make it perfect for daily use or deep concealment situations. Although there are minor cons to this product, they are easily overshadowed by the benefits it provides.
 
-### [Seizmik ICOS: Silent, Secure, In-Cab Seat Gun Holder](https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Seizmik ICOS: Silent, Secure, In-Cab Seat Gun Holder](https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=under-dash-gun-holsters&utm_term=seizmik-icos-silent-secure-in-cab-seat-gun-holder)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="seizmik-icos-in-cab-on-seat-gun-holder-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/seizmik-icos-in-cab-on-seat-gun-holder-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=under-dash-gun-holsters&utm_term=seizmik-icos-in-cab-on-seat-gun-holder-1"><img alt="seizmik-icos-in-cab-on-seat-gun-holder-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/seizmik-icos-in-cab-on-seat-gun-holder-1/public"/></a></div>
 
 I recently got the chance to test out the Seizmik ICOS Gun Holder, and I must say, it's been quite an adventure. I've been using it for my traditional-style muzzleloader, and the first thing that struck me was how securely it held my rifle, even during some of the bumpiest rides.
 
@@ -92,9 +92,9 @@ However, the Seizmik ICOS Gun Holder isn't perfect. Some users have reported iss
 
 In conclusion, if you're searching for a reliable and secure way to carry your firearms in your vehicle, the Seizmik ICOS Gun Holder is definitely worth considering. As long as you're aware of any potential downsides, I think you'll find it to be an excellent investment.
 
-### [Magnetic Gun Holder for Under Desk, Car, Home, or Office](https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Magnetic Gun Holder for Under Desk, Car, Home, or Office](https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=under-dash-gun-holsters&utm_term=magnetic-gun-holder-for-under-desk-car-home-or-office)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="safety-storage-for-gun-storage-gun-magnet-concealed-rifle-shotgun-magnetic-holder-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safety-storage-for-gun-storage-gun-magnet-concealed-rifle-shotgun-magnetic-holder-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=under-dash-gun-holsters&utm_term=safety-storage-for-gun-storage-gun-magnet-concealed-rifle-shotgun-magnetic-holder-1"><img alt="safety-storage-for-gun-storage-gun-magnet-concealed-rifle-shotgun-magnetic-holder-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safety-storage-for-gun-storage-gun-magnet-concealed-rifle-shotgun-magnetic-holder-1/public"/></a></div>
 
 I recently purchased this super-versatile Gun Magnet to store and conceal my handguns. One of the highlights is the powerful magnetic force that securely holds various sizes of handguns, even compact ones. It's quick and easy to mount this magnetic holder anywhere, from my car to your bedside. The specific plastic coating ensures your gun doesn't get scratched while being stored.
 
@@ -108,7 +108,7 @@ Despite these minor drawbacks, I am overall satisfied with the Gun Magnet's perf
 
 ### Important Features of Under Dash Gun Holsters
 
-<div><a href="https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Under+Dash+Gun+Holsters-2/public" alt="Under Dash Gun Holsters-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=under-dash-gun-holsters&utm_term=under-dash-gun-holsters-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Under+Dash+Gun+Holsters-2/public" alt="Under Dash Gun Holsters-2"></a></div>
 
 Under Dash Gun Holsters are specifically designed to store and secure your firearms under the dashboard of your vehicle. Key features to consider when choosing the best Under Dash Gun Holster include:
 
@@ -140,7 +140,7 @@ When using under dash gun holsters, keep the following advice in mind:
 
 - Regular Maintenance: Periodically inspect and clean both your firearm and the holster, as well as check the retention mechanism for proper functioning.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Under+Dash+Gun+Holsters-3/public" alt="Under Dash Gun Holsters-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=under-dash-gun-holsters&utm_term=under-dash-gun-holsters-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Under+Dash+Gun+Holsters-3/public" alt="Under Dash Gun Holsters-3"></a></div>
 
 ### Wrap-Up
 
@@ -150,7 +150,7 @@ Under Dash Gun Holsters provide a secure and convenient means to store your fire
 
 ### What are under dash gun holsters?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Under+Dash+Gun+Holsters-4/public" alt="Under Dash Gun Holsters-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=under-dash-gun-holsters&utm_term=under-dash-gun-holsters-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Under+Dash+Gun+Holsters-4/public" alt="Under Dash Gun Holsters-4"></a></div>
 
 Under dash gun holsters are specialized compartments designed to securely store and protect your firearms while they are installed beneath the dashboard of your vehicle.
 
@@ -162,7 +162,7 @@ Under dash gun holsters provide a secure and discreet location to store your fir
 
 Under dash gun holsters are typically designed to accommodate small to medium-sized handguns and revolvers. It's essential to check the specifications of each holster to ensure compatibility with your specific firearm.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Under+Dash+Gun+Holsters-5/public" alt="Under Dash Gun Holsters-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=under-dash-gun-holsters&utm_term=under-dash-gun-holsters-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Under+Dash+Gun+Holsters-5/public" alt="Under Dash Gun Holsters-5"></a></div>
 
 ### How secure are under dash gun holsters?
 
@@ -174,7 +174,7 @@ Dedicated mounting hardware is generally provided with under dash gun holsters t
 
 ### How much space do under dash gun holsters typically take up?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Under+Dash+Gun+Holsters-6/public" alt="Under Dash Gun Holsters-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/under-dash-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=under-dash-gun-holsters&utm_term=under-dash-gun-holsters-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Under+Dash+Gun+Holsters-6/public" alt="Under Dash Gun Holsters-6"></a></div>
 
 Under dash gun holsters are designed to consume minimal space beneath the dashboard, allowing for optimal storage without obstructing essential vehicle components or controls.
 

@@ -16,33 +16,33 @@ In the world of shooting sports and outdoors, thermal targets have revolutionize
 
 ## The Top 10 Best Thermal Targets
 
-1. [KYL Know Your Limits 22lr Rimfire Airgun NRL Target System with 8 Regulation-Size Paddles](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - KYL Know Your Limits Rimfire Airgun Target - Durable and versatile for all skill levels, perfect for recreational shooting and training, with a focus on safety and improvement.
+1. [KYL Know Your Limits 22lr Rimfire Airgun NRL Target System with 8 Regulation-Size Paddles](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=kyl-know-your-limits-22lr-rimfire-airgun-nrl-target-system-with-8-regulation-size-paddles) - KYL Know Your Limits Rimfire Airgun Target - Durable and versatile for all skill levels, perfect for recreational shooting and training, with a focus on safety and improvement.
 
-2. [Do-All Triple Spinner for .22 Rimfire Airguns - Improve Your Marksmanship with Hands-Free Spinning Targets](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - The Do-All Triple Spinner is the perfect solution for enhancing your .22 rimfire airgun practice, featuring an all-steel construction, interchangeable spinning targets, and compatibility with paper targets for versatile shooting experience.
+2. [Do-All Triple Spinner for .22 Rimfire Airguns - Improve Your Marksmanship with Hands-Free Spinning Targets](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=do-all-triple-spinner-for-22-rimfire-airguns-improve-your-marksmanship-with-hands-free-spinning-targets) - The Do-All Triple Spinner is the perfect solution for enhancing your .22 rimfire airgun practice, featuring an all-steel construction, interchangeable spinning targets, and compatibility with paper targets for versatile shooting experience.
 
-3. [Handgun Auto Reset Shooting Target for Practice and Competition](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Elevate your shooting accuracy with The Handgun Auto Reset Targeting System by Do-All Outdoors, the premium choice with resilient steel construction, automatic resetting, and enhanced safety features for a seamless practice experience.
+3. [Handgun Auto Reset Shooting Target for Practice and Competition](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=handgun-auto-reset-shooting-target-for-practice-and-competition) - Elevate your shooting accuracy with The Handgun Auto Reset Targeting System by Do-All Outdoors, the premium choice with resilient steel construction, automatic resetting, and enhanced safety features for a seamless practice experience.
 
-4. [GlowShot 10" Multi-Color Reactive Splatter Targets for Guns and Rifles](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - GlowShot 10" Targets: Reactive, Multi-Color Splatters for Gun, Rifle, Airsoft & BB Guns - See Hits Instantly, Durable Tag Board, Effortless Analysis & Removal
+4. [GlowShot 10" Multi-Color Reactive Splatter Targets for Guns and Rifles](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=glowshot-10-multi-color-reactive-splatter-targets-for-guns-and-rifles) - GlowShot 10" Targets: Reactive, Multi-Color Splatters for Gun, Rifle, Airsoft & BB Guns - See Hits Instantly, Durable Tag Board, Effortless Analysis & Removal
 
-5. [High-Visibility Yellow Steel Gong Target for Shooting Practice](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience precision shooting with the durable Caldwell AR500 5" Yellow Gong Target, designed for competition, training, and recreational use, featuring hardened steel construction and 3000 FPS impact velocity rating.
+5. [High-Visibility Yellow Steel Gong Target for Shooting Practice](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=high-visibility-yellow-steel-gong-target-for-shooting-practice) - Experience precision shooting with the durable Caldwell AR500 5" Yellow Gong Target, designed for competition, training, and recreational use, featuring hardened steel construction and 3000 FPS impact velocity rating.
 
-6. [33% IPSC AR500 Steel Target for Competition and Training](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Caldwell 33% IPSC AR500 Steel Target: Durable, high-impact steel targets for competition, training, and recreational use, with 7 size options and 3 hanging solutions, rated for up to 3000 FPS and 3500 FT lbs impact energy.
+6. [33% IPSC AR500 Steel Target for Competition and Training](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=33-ipsc-ar500-steel-target-for-competition-and-training) - Caldwell 33% IPSC AR500 Steel Target: Durable, high-impact steel targets for competition, training, and recreational use, with 7 size options and 3 hanging solutions, rated for up to 3000 FPS and 3500 FT lbs impact energy.
 
-7. [Heavy Paper Rifle Targets for Practice and Competition, 100-Pack](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience exceptional precision and accuracy with National Target's International Bench Rest Shooters Target IBS 100 yd Hunter Rifle Paper Pack of 100 (SKU - 68691012345), designed for dedicated practice and competition.
+7. [Heavy Paper Rifle Targets for Practice and Competition, 100-Pack](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=heavy-paper-rifle-targets-for-practice-and-competition-100-pack) - Experience exceptional precision and accuracy with National Target's International Bench Rest Shooters Target IBS 100 yd Hunter Rifle Paper Pack of 100 (SKU - 68691012345), designed for dedicated practice and competition.
 
-8. [Reactive Spinning Shooting Targets for .22 Rimfire](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Highly Durable and Convenient Shooting Target Set for Your Private Shooting Galley Experience.
+8. [Reactive Spinning Shooting Targets for .22 Rimfire](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=reactive-spinning-shooting-targets-for-22-rimfire) - Highly Durable and Convenient Shooting Target Set for Your Private Shooting Galley Experience.
 
-9. [Indoor Cat Cage Enclosure with Hammock](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - Experience the thrilling unpredictability and long-lasting performance of the Do-All Outdoors 4" Hot Box Ground Bouncer Target, suitable for .22 to .50 caliber shooting practice.
+9. [Indoor Cat Cage Enclosure with Hammock](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=indoor-cat-cage-enclosure-with-hammock) - Experience the thrilling unpredictability and long-lasting performance of the Do-All Outdoors 4" Hot Box Ground Bouncer Target, suitable for .22 to .50 caliber shooting practice.
 
-10. [Instant Hit Reactive Silhouette Targets - 50 Pack](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website) - GlowShot 50 Pack Silhouette Targets - Enhance Accuracy and See Your Hits Instantly with Brighter Colors, Durable Material, and Compatibility with Gun, Rifle, Airsoft, and BB Guns.
+10. [Instant Hit Reactive Silhouette Targets - 50 Pack](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=instant-hit-reactive-silhouette-targets-50-pack) - GlowShot 50 Pack Silhouette Targets - Enhance Accuracy and See Your Hits Instantly with Brighter Colors, Durable Material, and Compatibility with Gun, Rifle, Airsoft, and BB Guns.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
 ## Reviews
 
-### [KYL Know Your Limits 22lr Rimfire Airgun NRL Target System with 8 Regulation-Size Paddles](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [KYL Know Your Limits 22lr Rimfire Airgun NRL Target System with 8 Regulation-Size Paddles](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=kyl-know-your-limits-22lr-rimfire-airgun-nrl-target-system-with-8-regulation-size-paddles)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="kyl-know-your-limits-22lr-rimfire-airgun-nrl-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kyl-know-your-limits-22lr-rimfire-airgun-nrl-target-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=kyl-know-your-limits-22lr-rimfire-airgun-nrl-target-1"><img alt="kyl-know-your-limits-22lr-rimfire-airgun-nrl-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kyl-know-your-limits-22lr-rimfire-airgun-nrl-target-1/public"/></a></div>
 
 I've recently had the pleasure of using the Know Your Limits Rimfire and Airgun Target, and it has been a fantastic addition to my shooting range experience. This target system is made of durable steel construction, allowing for use with various calibers – perfect for both experienced shooters and beginners.
 
@@ -50,9 +50,9 @@ One standout feature of this target is its versatility; it can be used with rimf
 
 The affordable price point coupled with its long-lasting steel construction means this target will provide countless hours of entertainment at the range. Plus, dissembling this system after each session is easy for convenient storage. Investing in this target has paid off tremendously - not only does it give me a chance to improve my accuracy but also allows friends and family members who share my love for shooting sports to have a blast safely responsibly!
 
-### [Do-All Triple Spinner for .22 Rimfire Airguns - Improve Your Marksmanship with Hands-Free Spinning Targets](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Do-All Triple Spinner for .22 Rimfire Airguns - Improve Your Marksmanship with Hands-Free Spinning Targets](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=do-all-triple-spinner-for-22-rimfire-airguns-improve-your-marksmanship-with-hands-free-spinning-targets)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="do-all-triple-spinner-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/do-all-triple-spinner-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=do-all-triple-spinner-1"><img alt="do-all-triple-spinner-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/do-all-triple-spinner-1/public"/></a></div>
 
 I've spent quite a bit of time testing out this Do All Outdoors 22 Spinner Rimfire target set, and I must say that it's become a crucial part of my daily shooting routine. This target set is specifically designed for soft-nosed. 22 pistol and rifle shooters, making it perfect for my practice sessions. The hands-free design, which allows the bullet force to spin the targets back into position, is incredibly convenient and user-friendly.
 
@@ -60,17 +60,17 @@ Setting up this target system is super easy thanks to its four stabilizing legs 
 
 Another small issue you might encounter is that the targets are rather close together - something some shooters may not like. However, this issue can be resolved by adding more space between them or using a larger base for added stability on sandy or gravelly ground - something one reviewer found helpful in their own experience. Overall though despite these minor issues; this budget friendly option offers great value particularly as far as durability goes thanks largely due its all steel construction capable enough handling multiple hits from. 22 caliber rounds without sustaining any damage whatsoever – perfect addition to any backyard range! .
 
-### [Handgun Auto Reset Shooting Target for Practice and Competition](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Handgun Auto Reset Shooting Target for Practice and Competition](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=handgun-auto-reset-shooting-target-for-practice-and-competition)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="do-all-outdoors-handgun-auto-reset-target-silver-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/do-all-outdoors-handgun-auto-reset-target-silver-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=do-all-outdoors-handgun-auto-reset-target-silver-1"><img alt="do-all-outdoors-handgun-auto-reset-target-silver-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/do-all-outdoors-handgun-auto-reset-target-silver-1/public"/></a></div>
 
 Using the Do-All Outdoors Handgun Auto Reset Targeting System on my backyard range has been a great experience. The durable steel construction and powder-coated paint held up well to my 9mm rounds, and the stabilizing ground spikes kept the target upright even when hit. I loved the forward leaning design that made bullet deflection downward, ensuring safety during practice sessions.
 
 The high visibility targets were easy to aim at, and being able to practice without having to reset after every shot was a huge time saver. While there are some minor issues like pins holding the plates getting shot off or bent from time to time, these are easily remedied with replacement pins or nails. Overall, I recommend this product for those looking to make target practice more fun and efficient while improving accuracy.
 
-### [GlowShot 10" Multi-Color Reactive Splatter Targets for Guns and Rifles](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [GlowShot 10" Multi-Color Reactive Splatter Targets for Guns and Rifles](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=glowshot-10-multi-color-reactive-splatter-targets-for-guns-and-rifles)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glowshot-targets-50-pack-10-reactive-splatter-targets-glowshot-multi-color-gun-and-rifle-targets-glo-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glowshot-targets-50-pack-10-reactive-splatter-targets-glowshot-multi-color-gun-and-rifle-targets-glo-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=glowshot-targets-50-pack-10-reactive-splatter-targets-glowshot-multi-color-gun-and-rifle-targets-glo-1"><img alt="glowshot-targets-50-pack-10-reactive-splatter-targets-glowshot-multi-color-gun-and-rifle-targets-glo-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glowshot-targets-50-pack-10-reactive-splatter-targets-glowshot-multi-color-gun-and-rifle-targets-glo-1/public"/></a></div>
 
 I recently purchased the GlowShot 10" Multi Color Reactive Targets for my rifle target practice, and I must say that they have exceeded my expectations. The targets' heavy-duty non-adhesive tag board construction is impressive as it can withstand multiple hits, making it perfect for both indoor and outdoor shooting ranges.
 
@@ -82,9 +82,9 @@ As far as drawbacks go, some users have mentioned that the tags are not self-adh
 
 In conclusion, I wholeheartedly recommend these GlowShot 10" Multi Color Reactive Targets if you want reliable reactive targets at an affordable price point while enjoying clear feedback on your progress instantly during target practice sessions. They are ideal for beginners and experienced shooters alike looking to improve their skills conveniently in various shooting conditions!
 
-### [High-Visibility Yellow Steel Gong Target for Shooting Practice](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [High-Visibility Yellow Steel Gong Target for Shooting Practice](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=high-visibility-yellow-steel-gong-target-for-shooting-practice)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="caldwell-ar500-5-in-yellow-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/caldwell-ar500-5-in-yellow-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=caldwell-ar500-5-in-yellow-1"><img alt="caldwell-ar500-5-in-yellow-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/caldwell-ar500-5-in-yellow-1/public"/></a></div>
 
 After using the Caldwell 5" Gong Target AR500 steel for several weeks, it's become a go-to target for my shooting sessions. The bright yellow color makes it easy to spot from afar, and the mounting holes offer versatility in hanging options.
 
@@ -94,9 +94,9 @@ A feature that stands out is the audible "ping" upon impact, providing real-time
 
 Overall, I am very satisfied with my purchase as it offers excellent quality for its price point and has held up well throughout extended use. However, prospective buyers should note its visibility limitations during low light conditions.
 
-### [33% IPSC AR500 Steel Target for Competition and Training](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [33% IPSC AR500 Steel Target for Competition and Training](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=33-ipsc-ar500-steel-target-for-competition-and-training)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="caldwell-33-ipsc-ar500-steel-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/caldwell-33-ipsc-ar500-steel-target-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=caldwell-33-ipsc-ar500-steel-target-1"><img alt="caldwell-33-ipsc-ar500-steel-target-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/caldwell-33-ipsc-ar500-steel-target-1/public"/></a></div>
 
 I have been using the Caldwell AR500 steel ipsc target in my daily practice routine, and it has significantly enhanced my shooting experience. This product comes in various sizes and offers multiple hanging options, making it incredibly easy to set up for use. The hardened AR500 steel construction ensures that the target can withstand thousands of rounds without showing any signs of wear or damage.
 
@@ -104,9 +104,9 @@ One feature that stood out for me was the bright yellow color, which has remarka
 
 The only minor issue I encountered was that the powder coating chips off over time due to repeated hits from bullets; however, this does not affect its performance or durability. Overall, this Caldwell AR500 steel ipsc target delivers excellent value and top-notch performance for serious shooters looking to fine-tune their skills through daily practice routines.
 
-### [Heavy Paper Rifle Targets for Practice and Competition, 100-Pack](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Heavy Paper Rifle Targets for Practice and Competition, 100-Pack](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=heavy-paper-rifle-targets-for-practice-and-competition-100-pack)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="national-target-international-bench-rest-shooters-target-ibs-100-yd-hunter-rifle-paper-pack-of-100-s-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/national-target-international-bench-rest-shooters-target-ibs-100-yd-hunter-rifle-paper-pack-of-100-s-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=national-target-international-bench-rest-shooters-target-ibs-100-yd-hunter-rifle-paper-pack-of-100-s-1"><img alt="national-target-international-bench-rest-shooters-target-ibs-100-yd-hunter-rifle-paper-pack-of-100-s-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/national-target-international-bench-rest-shooters-target-ibs-100-yd-hunter-rifle-paper-pack-of-100-s-1/public"/></a></div>
 
 I've been using these heavy paper targets for a while now, and they have become my go-to choice for both practice and competitions. One of the standout features of this product is its high-quality paper, which allows for clear visibility of bullet holes even when using plugs. The bright white center X ring stands out against the rest of the target, making aiming and overall accuracy much easier.
 
@@ -114,9 +114,9 @@ Another great aspect about these targets is their versatility - they work just a
 
 While I have found this product to be fantastic overall, there is always room for improvement. One area where it could be better is in durability - after extensive use in competitions or practice sessions, the targets may start to show wear and tear more quickly than some other brands. However, despite this minor drawback, these heavy paper targets have definitely enhanced my shooting experience and I would highly recommend them to anyone looking for a reliable target option!
 
-### [Reactive Spinning Shooting Targets for .22 Rimfire](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Reactive Spinning Shooting Targets for .22 Rimfire](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=reactive-spinning-shooting-targets-for-22-rimfire)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="guide-gear-steel-auto-reset-and-spinner-shooting-targets-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/guide-gear-steel-auto-reset-and-spinner-shooting-targets-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=guide-gear-steel-auto-reset-and-spinner-shooting-targets-1"><img alt="guide-gear-steel-auto-reset-and-spinner-shooting-targets-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/guide-gear-steel-auto-reset-and-spinner-shooting-targets-1/public"/></a></div>
 
 I recently tested the Guide Gear. 22 Rimfire Reactive Shooting Target Set in my backyard and found it to be a fantastic product for those looking to have some fun while practicing their shooting skills. The set offers a range of seven different targets, including spinning popper targets and self-healing targets. The setup process is quick and easy, allowing you to start your shooting session right away.
 
@@ -124,9 +124,9 @@ One of the major benefits of this target set is its instant feedback mechanism �
 
 Although there are some concerns about quality control with certain models having shorter legs than desired, overall this product still provides outstanding value for money given its affordable price tag and durability during sessions if used correctly. Keep an eye on your ammo velocity though - don't exceed 30 yards when aiming at these compact yet incredibly satisfying targets! All in all, this reactive target set will definitely keep you entertained while helping improve your accuracy in a safe and legal manner.
 
-### [Indoor Cat Cage Enclosure with Hammock](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Indoor Cat Cage Enclosure with Hammock](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=indoor-cat-cage-enclosure-with-hammock)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="do-all-outdoors-hot-box-4-inch-ground-bouncer-self-healing-shooting-target-rated-for-22-50-caliber-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/do-all-outdoors-hot-box-4-inch-ground-bouncer-self-healing-shooting-target-rated-for-22-50-caliber-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=do-all-outdoors-hot-box-4-inch-ground-bouncer-self-healing-shooting-target-rated-for-22-50-caliber-1"><img alt="do-all-outdoors-hot-box-4-inch-ground-bouncer-self-healing-shooting-target-rated-for-22-50-caliber-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/do-all-outdoors-hot-box-4-inch-ground-bouncer-self-healing-shooting-target-rated-for-22-50-caliber-1/public"/></a></div>
 
 I recently had the opportunity to use the Impact Seal Ground Bouncing Reactive Targets in my daily shooting routine, and I must say, I was thoroughly impressed. The targets were built to withstand thousands of rounds from a wide range of calibers, so it's no surprise that they held up incredibly well during my sessions.
 
@@ -136,9 +136,9 @@ The technologically advanced material used in these targets meant that even afte
 
 In terms of pros and cons, these targets have very few downsides. Perhaps the only potential issue is that you may need to buy multiple targets if you frequently lose them behind obstacles due to their erratic movement with larger caliber firearms. However, overall these targets are incredibly fun and challenging for all skill levels - making them a must-have addition to any shooter's collection.
 
-### [Instant Hit Reactive Silhouette Targets - 50 Pack](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website)
+### [Instant Hit Reactive Silhouette Targets - 50 Pack](https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=instant-hit-reactive-silhouette-targets-50-pack)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="glowshot-targets-50-pack-18x10-silhouette-new-bigger-splatter-brighter-colors-50-pack-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glowshot-targets-50-pack-18x10-silhouette-new-bigger-splatter-brighter-colors-50-pack-1/public"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=glowshot-targets-50-pack-18x10-silhouette-new-bigger-splatter-brighter-colors-50-pack-1"><img alt="glowshot-targets-50-pack-18x10-silhouette-new-bigger-splatter-brighter-colors-50-pack-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glowshot-targets-50-pack-18x10-silhouette-new-bigger-splatter-brighter-colors-50-pack-1/public"/></a></div>
 
 The GlowShot Silhouette Reactive Targets are a game changer for shooting enthusiasts. With their bright colors and sturdy tag board material, it's easy to see where your shots land even from a distance. Upon impact, a colored ring forms around each point of contact, making tracking progress and making adjustments simple. The targets are made with heavy-duty non-adhesive tag board that can withstand dozens of hits without losing quality.
 
@@ -146,7 +146,7 @@ One area of improvement is the smaller round targets at the top, which can be di
 
 ## Buyer's Guide
 
-<div><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Thermal+Targets-2/public" alt="Thermal Targets-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=thermal-targets-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Thermal+Targets-2/public" alt="Thermal Targets-2"></a></div>
 
 ### Important Features of Thermal Targets
 
@@ -172,7 +172,7 @@ Before making a purchase, consider the following factors when selecting thermal 
 
 - Warranty and customer support provided by the manufacturer, ensuring confidence in your purchase.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Thermal+Targets-3/public" alt="Thermal Targets-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=thermal-targets-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Thermal+Targets-3/public" alt="Thermal Targets-3"></a></div>
 
 ### General Advice for Using Thermal Targets
 
@@ -188,7 +188,7 @@ When incorporating thermal targets into your training routine, follow these tips
 
 ## FAQ
 
-<div><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Thermal+Targets-4/public" alt="Thermal Targets-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=thermal-targets-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Thermal+Targets-4/public" alt="Thermal Targets-4"></a></div>
 
 ### What are thermal targets?
 
@@ -198,7 +198,7 @@ Thermal targets are special shooting targets that allow shooters to practice the
 
 A thermal target contains a material that reacts to heat. When a bullet strikes the target, the material reacts and creates an infrared image that's visible through thermal imaging devices. This allows shooters to see where they've hit and adjust their aim accordingly without needing much lighting or visibility.
 
-<div><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Thermal+Targets-5/public" alt="Thermal Targets-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=thermal-targets-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Thermal+Targets-5/public" alt="Thermal Targets-5"></a></div>
 
 ### Can thermal targets be used during the day?
 
@@ -212,7 +212,7 @@ While thermal targets can technically be used during the day, their effectivenes
 
 - Self-heating targets:
 
-<div><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Thermal+Targets-6/public" alt="Thermal Targets-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/thermal-targets?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=thermal-targets&utm_term=thermal-targets-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Thermal+Targets-6/public" alt="Thermal Targets-6"></a></div>
 
 ### How do you maintain thermal targets?
 

@@ -19,17 +19,17 @@ Find your perfect pistol companion with our comprehensive guide to Holosun's top
 
 ## The Top 6 Best Holosun Pistol Sights
 
-1. [Truglo AC Range Rover Black Sight with Infinite Brightness Settings](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - The Truglo AC Range Rover .019 Black Sight offers precision and convenience, featuring a tool-less yardage lock, adjustable rheostat for infinite brightness settings, and extra-long wrapped fiber for a clean, circular sight picture.
+1. [Truglo AC Range Rover Black Sight with Infinite Brightness Settings](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=truglo-ac-range-rover-black-sight-with-infinite-brightness-settings) - The Truglo AC Range Rover .019 Black Sight offers precision and convenience, featuring a tool-less yardage lock, adjustable rheostat for infinite brightness settings, and extra-long wrapped fiber for a clean, circular sight picture.
 
-2. [Accurate Adjustable 1-Pin Archery Sight for RH/LH Shooters](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Experience unmatched accuracy with the Axcel Accutouch Plus Carbon Pro Sight AV-41 1 Pin .019 RH/LH, offering seamless 1st, 2nd, and 3rd axis adjustments, Accu-Click system, carbon bar dovetail mount, and a 45-degree facing sight tape.
+2. [Accurate Adjustable 1-Pin Archery Sight for RH/LH Shooters](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=accurate-adjustable-1-pin-archery-sight-for-rhlh-shooters) - Experience unmatched accuracy with the Axcel Accutouch Plus Carbon Pro Sight AV-41 1 Pin .019 RH/LH, offering seamless 1st, 2nd, and 3rd axis adjustments, Accu-Click system, carbon bar dovetail mount, and a 45-degree facing sight tape.
 
-3. [HHA Optimizer Ultra XL 5519 1 Pin Sight for Right-Handed Hunters](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Experience exceptional accuracy with the HHA Optimizer Ultra XL Sight, featuring a 1-pin .019 RH design, 100% CNC machined aluminum craftsmanship, yardage dial for rapid adjustment, and toolless micro windage adjustment.
+3. [HHA Optimizer Ultra XL 5519 1 Pin Sight for Right-Handed Hunters](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=hha-optimizer-ultra-xl-5519-1-pin-sight-for-right-handed-hunters) - Experience exceptional accuracy with the HHA Optimizer Ultra XL Sight, featuring a 1-pin .019 RH design, 100% CNC machined aluminum craftsmanship, yardage dial for rapid adjustment, and toolless micro windage adjustment.
 
-4. [Holosun Precision Pistol Sight: Maximize your shot range](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Experience precision and ease with the HHA Optimizer Ultra x XL Sight, boasting a 5510 XL .010 RH and unmatched adjustment capabilities for optimal shooting performance.
+4. [Holosun Precision Pistol Sight: Maximize your shot range](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=holosun-precision-pistol-sight-maximize-your-shot-range) - Experience precision and ease with the HHA Optimizer Ultra x XL Sight, boasting a 5510 XL .010 RH and unmatched adjustment capabilities for optimal shooting performance.
 
-5. [Holosun Ultra Precision Sight, 1 Pin Sight](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - The HHA Optimizer Ultra x XL Sight 5510 XL .010 RH delivers precision and ease with its Infinite Adjust Slotted Slide Bracket, enabling quick 2nd axis and vertical adjustments for optimal accuracy at extended ranges.
+5. [Holosun Ultra Precision Sight, 1 Pin Sight](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=holosun-ultra-precision-sight-1-pin-sight) - The HHA Optimizer Ultra x XL Sight 5510 XL .010 RH delivers precision and ease with its Infinite Adjust Slotted Slide Bracket, enabling quick 2nd axis and vertical adjustments for optimal accuracy at extended ranges.
 
-6. [Ultra-Lightweight Storm 5-Pin Sight](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website) - Truglo Storm 5-Pin Sight: Upgrade your accuracy with this lightweight, adjustable sight for left and right-handed shooters, featuring enlarged circular view and durable fiber-wrapped pins.
+6. [Ultra-Lightweight Storm 5-Pin Sight](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=ultra-lightweight-storm-5-pin-sight) - Truglo Storm 5-Pin Sight: Upgrade your accuracy with this lightweight, adjustable sight for left and right-handed shooters, featuring enlarged circular view and durable fiber-wrapped pins.
 
 *As an Amazon™ Associate, we earn from qualifying purchases.*
 
@@ -37,9 +37,9 @@ Find your perfect pistol companion with our comprehensive guide to Holosun's top
 ## Reviews
 
 
-### [Truglo AC Range Rover Black Sight with Infinite Brightness Settings](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Truglo AC Range Rover Black Sight with Infinite Brightness Settings](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=truglo-ac-range-rover-black-sight-with-infinite-brightness-settings)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="truglo-ac-range-rover-019-black-sight-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-ac-range-rover-019-black-sight-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=truglo-ac-range-rover-019-black-sight-1"><img alt="truglo-ac-range-rover-019-black-sight-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-ac-range-rover-019-black-sight-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the Truglo AC Range Rover. 019 Black Sight, and it's been a game-changer for my target shooting experience. The first thing that struck me was how easy it was to set up. The tool-less yardage lock and smooth bracket movement made it incredibly user-friendly, even for someone like me who's not particularly tech-savvy. 
 
@@ -50,9 +50,9 @@ However, there are a few minor cons to consider. Some users reported issues with
 Despite these minor drawbacks, the overall experience with the Truglo AC Range Rover. 019 Black Sight has been overwhelmingly positive. Its durability, ease of use, and adaptability make it a worthwhile investment for anyone looking to enhance their target shooting skills. 
 
 
-### [Accurate Adjustable 1-Pin Archery Sight for RH/LH Shooters](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Accurate Adjustable 1-Pin Archery Sight for RH/LH Shooters](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=accurate-adjustable-1-pin-archery-sight-for-rhlh-shooters)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="axcel-accutouch-plus-carbon-pro-sight-av-41-1-pin-019-rh-lh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/axcel-accutouch-plus-carbon-pro-sight-av-41-1-pin-019-rh-lh-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=axcel-accutouch-plus-carbon-pro-sight-av-41-1-pin-019-rh-lh-1"><img alt="axcel-accutouch-plus-carbon-pro-sight-av-41-1-pin-019-rh-lh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/axcel-accutouch-plus-carbon-pro-sight-av-41-1-pin-019-rh-lh-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I recently purchased the Axcel Accutouch Plus Carbon Pro Sight AV-41, and I have to say, it's been a game-changer for my shooting experience. The Accu-Click system is a standout feature that sets it apart from other sights on the market. It allows me to set "clicks" at specific distances, making it incredibly easy to adjust the sight. The 45-degree facing sight tape also makes it much easier to see where the yardage indicator is set, which is a huge plus. 
 
@@ -63,9 +63,9 @@ On the downside, I have found that when I adjust the sight beyond 70 yards, my a
 Overall, I am extremely satisfied with the Axcel Accutouch Plus Carbon Pro Sight AV-41. Its adjustability, ease of use, and high-quality construction make it a must-have for any avid shooter. I'm confident that this sight will serve me well for years to come. 
 
 
-### [HHA Optimizer Ultra XL 5519 1 Pin Sight for Right-Handed Hunters](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [HHA Optimizer Ultra XL 5519 1 Pin Sight for Right-Handed Hunters](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=hha-optimizer-ultra-xl-5519-1-pin-sight-for-right-handed-hunters)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hha-optimizer-ultra-xl-sight-5519-1-pin-019-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-optimizer-ultra-xl-sight-5519-1-pin-019-rh-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=hha-optimizer-ultra-xl-sight-5519-1-pin-019-rh-1"><img alt="hha-optimizer-ultra-xl-sight-5519-1-pin-019-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-optimizer-ultra-xl-sight-5519-1-pin-019-rh-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the HHA Optimizer Ultra XL Sight, and I couldn't be happier with its performance. As an avid hunter, I've always preferred single pin sights for their simplicity and precision, especially when shooting at extended distances. 
 
@@ -78,9 +78,9 @@ However, there are few cons to this product as well. I sometimes find myself str
 In summary, the HHA Optimizer Ultra XL Sight is an exceptional single pin sight that offers precision, durability, and convenience in one package. Its unique design and robust construction make it a must-have accessory for hunters and archery enthusiasts alike. 
 
 
-### [Holosun Precision Pistol Sight: Maximize your shot range](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Holosun Precision Pistol Sight: Maximize your shot range](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=holosun-precision-pistol-sight-maximize-your-shot-range)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hha-optimizer-ultra-x-xl-sight-5510-xl-010-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-optimizer-ultra-x-xl-sight-5510-xl-010-rh-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=hha-optimizer-ultra-x-xl-sight-5510-xl-010-rh-1"><img alt="hha-optimizer-ultra-x-xl-sight-5510-xl-010-rh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-optimizer-ultra-x-xl-sight-5510-xl-010-rh-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 I recently got the chance to try out the HHA Optimizer Ultra Sight, and let me tell you, it's been quite a game-changer in my hunting adventures. The innovative infinite adjustment system has made targeting and adjusting the sighting so much easier and smoother. Gone are the days of hopping from hole to hole, trying to find that perfect balance! 
 
@@ -95,9 +95,9 @@ However, there are a few minor drawbacks worth mentioning. Some users have repor
 Overall, I wholeheartedly recommend the HHA Optimizer Ultra Sight for anyone looking to upgrade their bow sighting experience. The combination of ease-of-use, accuracy, and adaptability makes this a top choice for serious hunters and novices alike. Just be prepared to spend a little extra for the quality and performance that this sight delivers. 
 
 
-### [Holosun Ultra Precision Sight, 1 Pin Sight](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Holosun Ultra Precision Sight, 1 Pin Sight](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=holosun-ultra-precision-sight-1-pin-sight)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="hha-optimizer-ultra-x-sight-5510-010-lh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-optimizer-ultra-x-sight-5510-010-lh-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=hha-optimizer-ultra-x-sight-5510-010-lh-1"><img alt="hha-optimizer-ultra-x-sight-5510-010-lh-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hha-optimizer-ultra-x-sight-5510-010-lh-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 Sure, I have given the HHA Optimizer Ultra x XL Sight 5510 XL. 010 RH a spin and it really impressed me! This single-pin slider sight is a game-changer. I'm a hunter myself and often found myself struggling with my old multi-pin sight, especially when it came to varying distances. The HHA Optimizer Ultra x XL Sight 5510 XL. 010 RH completely simplified the sighting process. 
 
@@ -110,9 +110,9 @@ All in all, the HHA Optimizer Ultra x XL Sight 5510 XL. 010 RH is a reliable, du
 Remember to follow the product installation and sighting instructions to ensure maximum performance and accuracy. 
 
 
-### [Ultra-Lightweight Storm 5-Pin Sight](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm\_source=universityofguns&utm\_medium=organic&utm\_campaign=website)
+### [Ultra-Lightweight Storm 5-Pin Sight](https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=ultra-lightweight-storm-5-pin-sight)
 
-<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img alt="truglo-storm-5-pin-sight-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-storm-5-pin-sight-1/w=720,h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=truglo-storm-5-pin-sight-1"><img alt="truglo-storm-5-pin-sight-1" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-storm-5-pin-sight-1/w=720,h=540,fit=pad,background=black"/></a></div>
 
 The Truglo Storm 5-Pin Sight is a game-changer for archers looking for precision and durability at an affordable price. I've been using it for a few months now, and I must say, I am thoroughly impressed by its performance. 
 
@@ -132,7 +132,7 @@ None
 
 ## FAQ
 
-<div><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Holosun-Pistol-Sights-2/w=720,h=540,fit=pad,background=black" alt="Holosun-Pistol-Sights-2"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=holosun-pistol-sights-2"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Holosun-Pistol-Sights-2/w=720,h=540,fit=pad,background=black" alt="Holosun-Pistol-Sights-2"></a></div>
 
 
 ### What are Holosun pistol sights?
@@ -144,7 +144,7 @@ Holosun pistol sights are advanced red dot sights designed for handguns, offerin
 
 Holosun pistol sights provide an unobstructed view of the target with a simple aiming point, allowing shooters to focus on the target rather than aligning the front and rear sights. This accelerates target acquisition and improves accuracy in both daylight and low-light conditions. 
 
-<div><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Holosun-Pistol-Sights-3/w=720,h=540,fit=pad,background=black" alt="Holosun-Pistol-Sights-3"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=holosun-pistol-sights-3"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Holosun-Pistol-Sights-3/w=720,h=540,fit=pad,background=black" alt="Holosun-Pistol-Sights-3"></a></div>
 
 
 ### What types of Holosun pistol sights are available?
@@ -159,7 +159,7 @@ Holosun pistol sights use either a battery or solar panel as their power source.
 
 ### What reticles are available in Holosun pistol sights?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Holosun-Pistol-Sights-4/w=720,h=540,fit=pad,background=black" alt="Holosun-Pistol-Sights-4"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=holosun-pistol-sights-4"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Holosun-Pistol-Sights-4/w=720,h=540,fit=pad,background=black" alt="Holosun-Pistol-Sights-4"></a></div>
 
 Holosun offers various reticle options in their pistol sights. The Holosun 508T Series, for example, features the "Dragonfly" reticle, which provides a dual reticle system with a 65-MOA circle and 2-MOA dot. The Holosun HS507C and HS508T Series offer multiple reticle options, such as the 2-MOA dot, 65-MOA circle, and 32-MOA circle, depending on the model. 
 
@@ -173,7 +173,7 @@ Holosun pistol sights are designed to perform well in both daylight and low-ligh
 
 To adjust the brightness on a Holosun pistol sight, locate the adjustment buttons or knobs on the side or top of the sight (depending on the model). Press or turn the buttons/knobs to increase or decrease the brightness level until the desired level is achieved. Some models, like the Holosun HS510C Series, may include automatic brightness adjustment features for convenience. 
 
-<div><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Holosun-Pistol-Sights-5/w=720,h=540,fit=pad,background=black" alt="Holosun-Pistol-Sights-5"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=holosun-pistol-sights-5"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Holosun-Pistol-Sights-5/w=720,h=540,fit=pad,background=black" alt="Holosun-Pistol-Sights-5"></a></div>
 
 
 ### Can I use my Holosun pistol sight with a suppressor?
@@ -188,7 +188,7 @@ Installing a Holosun pistol sight on your handgun usually requires the following
 
 ### How do I zero my Holosun pistol sight?
 
-<div><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=organic&utm_campaign=website"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Holosun-Pistol-Sights-6/w=720,h=540,fit=pad,background=black" alt="Holosun-Pistol-Sights-6"></a></div>
+<div><a href="https://serp.ly/@universityofguns/amazon/holosun-pistol-sights?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=holosun-pistol-sights&utm_term=holosun-pistol-sights-6"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Holosun-Pistol-Sights-6/w=720,h=540,fit=pad,background=black" alt="Holosun-Pistol-Sights-6"></a></div>
 
 To zero your Holosun pistol sight, follow these steps: shoot a few rounds at your target (preferably in a controlled environment), observe the point of impact, adjust the windage and elevation screws on the side or top of the sight (depending on the model) to align the aiming point with the point of impact, and repeat the process until the desired accuracy is achieved. Most Holosun pistol sights also have tools included for adjusting the zero. 
 
