@@ -14,14 +14,15 @@ export async function GET(context) {
   // Combine posts from all collections
   const allPosts = [...blogPosts, ...gunLawsPosts, ...huntingLawsPosts, ...shopPosts];
 
-  const feedItems = allPosts.map((post) => ({
+  // Check if there are any posts before creating feed items
+  const feedItems = allPosts.length > 0 ? allPosts.map((post) => ({
     title: post.data.title,
     link: `/${post.slug}/`,
     pubDate: post.data.publishDate,
     category: post.data.category, // Include 'category' field
     content: sanitizeHtml(parser.render(post.body)),
     ...post.frontmatter,
-  }));
+  })) : [];
 
   return rss({
     title: 'University of Guns | Post Feed',
