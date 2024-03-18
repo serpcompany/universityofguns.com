@@ -28,6 +28,8 @@ Ahoy there, sailor! Whether you're a pirate wannabe or a true nautical aficionad
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
+<iframe width="800" height="450" src="https://www.youtube.com/embed/cgGpaGDhM4k" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## Reviews
 
 ### [Handmade Western Gun Belt & Holster Set for 44/45 Caliber Pistols](https://serp.ly/@universityofguns/amazon/pirate-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=pirate-gun-holsters&utm_term=handmade-western-gun-belt-holster-set-for-4445-caliber-pistols)
