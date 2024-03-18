@@ -38,6 +38,8 @@ Gun holsters have always been an essential accessory for gun enthusiasts, profes
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
+<iframe width="800" height="450" src="https://www.youtube.com/embed/Iqs40lP1RXI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## Reviews
 
 ### [High-Quality Beretta 92FS OWB Holster for Competition and Everyday Carry](https://serp.ly/@universityofguns/amazon/92fs-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=92fs-holsters&utm_term=high-quality-beretta-92fs-owb-holster-for-competition-and-everyday-carry)
@@ -285,3 +287,5 @@ To clean and maintain your 92FS holster, follow these steps:
 5. Inspect the holster for any signs of wear or damage, and replace it if necessary.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
+
+Video URL: https://www.youtube.com/watch?v=Iqs40lP1RXI

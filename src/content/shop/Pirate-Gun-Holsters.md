@@ -28,6 +28,8 @@ Ahoy there, sailor! Whether you're a pirate wannabe or a true nautical aficionad
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
+<iframe width="800" height="450" src="https://youtu.be/cgGpaGDhM4k" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 <iframe width="800" height="450" src="https://www.youtube.com/embed/cgGpaGDhM4k" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Reviews
@@ -199,3 +201,5 @@ Pirate Gun Holsters can be purchased through various online retailers and specia
 The cost of Pirate Gun Holsters can vary depending on the materials, craftsmanship, and features provided. Prices typically range from modest to premium, so it is essential to choose a holster that meets your requirements, preferences, and budget.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
+
+Video URL: https://youtu.be/cgGpaGDhM4k

@@ -30,6 +30,7 @@ Staying safe and secure is always a priority, and for women who choose to carry 
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
+
 ## Reviews
 
 ### [Custom Comfort Flex Holster for S&W M&P Shield](https://serp.ly/@universityofguns/amazon/gun-holsters-for-women?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=gun-holsters-for-women&utm_term=custom-comfort-flex-holster-for-sw-mp-shield)

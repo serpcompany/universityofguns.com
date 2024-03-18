@@ -38,6 +38,8 @@ Whether you're an avid camper or just looking for the right tool for your next a
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
+<iframe width="800" height="450" src="https://www.youtube.com/embed/nZDyYtBtoy4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## Reviews
 
 ### [8-Inch Survival/Hunting Knife with Compass and Survival Kit](https://serp.ly/@universityofguns/amazon/camping-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=camping-knives&utm_term=8-inch-survivalhunting-knife-with-compass-and-survival-kit)
@@ -259,3 +261,5 @@ Always use your camping knife with caution and follow these safety guidelines: \
 Remember to always exercise caution and be aware of your surroundings when using any sharp tool.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
+
+Video URL: https://www.youtube.com/watch?v=nZDyYtBtoy4

@@ -38,6 +38,8 @@ Are you tired of mediocre gun holsters that fail to stand up to the rigors of da
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
+<iframe width="800" height="450" src="https://www.youtube.com/embed/YLPoXFssW2M" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## Reviews
 
 ### [Blade-Tech Signature OWB Holster for 1911 4.25" Commander](https://serp.ly/@universityofguns/amazon/azula-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=azula-holsters&utm_term=blade-tech-signature-owb-holster-for-1911-425-commander)
@@ -229,3 +231,5 @@ Some Azula holsters are designed to accommodate light or laser attachments, whil
 Clean and maintain your Azula holster by wiping it down with a soft cloth or leather cleaner to remove dirt and oil. Periodically apply leather conditioner to keep the holster supple and prevent cracking. For kydex holsters, use a mild detergent and water to clean, then air dry to prevent any warping or damage to the material.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
+
+Video URL: https://www.youtube.com/watch?v=YLPoXFssW2M

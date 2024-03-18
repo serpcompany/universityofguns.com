@@ -30,6 +30,8 @@ From [gun holsters](#gun_holsters) to [gun safes](#gun_safes) and [firearms](#fi
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
+<iframe width="800" height="450" src="https://www.youtube.com/embed/gc_kz6YCKmk" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## Reviews
 
 ### [Comfortable and Secure Belly Band Holster Rig for Concealed Carry](https://serp.ly/@universityofguns/amazon/concealed-gun-holsters-for-women?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=concealed-gun-holsters-for-women&utm_term=comfortable-and-secure-belly-band-holster-rig-for-concealed-carry)
@@ -185,3 +187,5 @@ Clean your concealed gun holster regularly to remove dirt, sweat, and other debr
 No, a concealed carry permit is not required to purchase a gun holster. However, you will need a permit if you plan to carry your firearm concealed in public. Check your state's concealed carry laws and requirements for more information.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
+
+Video URL: https://www.youtube.com/watch?v=gc_kz6YCKmk

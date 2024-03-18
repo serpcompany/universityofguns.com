@@ -40,6 +40,8 @@ Note: This example assumes that the "title" input refers to the title of the art
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
+<iframe width="800" height="450" src="https://www.youtube.com/embed/lojMThBnE7Y" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## Reviews
 
 ### [Adjustable Right Hand OWB Holster for Small Revolvers](https://serp.ly/@universityofguns/amazon/2nd-amendment-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=2nd-amendment-holsters&utm_term=adjustable-right-hand-owb-holster-for-small-revolvers)
@@ -241,3 +243,5 @@ To determine the right size holster for your gun, consult the product descriptio
 Yes, 2nd Amendment Holsters offers a satisfaction guarantee, ensuring that you are happy with your purchase. If you encounter any issues, you can contact their customer support for assistance with returns or exchanges.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
+
+Video URL: https://www.youtube.com/watch?v=lojMThBnE7Y

@@ -38,6 +38,8 @@ If you're a gun enthusiast, you know the importance of finding the perfect holst
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
+<iframe width="800" height="450" src="https://www.youtube.com/embed/ChaMbS6V0j0" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## Reviews
 
 ### [Slim and Comfortable IWB Holster for Sig Sauer P365/P365X](https://serp.ly/@universityofguns/amazon/642-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=642-holsters&utm_term=slim-and-comfortable-iwb-holster-for-sig-sauer-p365p365x)
@@ -269,3 +271,5 @@ To securely fit your firearm within the holster, follow these steps: 1. Ensure y
 To extend the life of your holster, follow these tips: 1. Avoid exposing your holster to harsh chemicals or solvents, as these can damage the material or deteriorate the finish. 2. Store your holster in a cool, dry location, and avoid direct sunlight or excessive heat, as these conditions can cause the material to warp or become brittle. 3. Regularly inspect your holster for signs of wear and tear, and make necessary repairs or replacements as needed to maintain optimal performance and safety.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
+
+Video URL: https://www.youtube.com/watch?v=ChaMbS6V0j0

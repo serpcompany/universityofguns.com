@@ -40,6 +40,8 @@ In this article, we comprehensively evaluate several high-quality Colt Mustang h
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
+<iframe width="800" height="450" src="https://www.youtube.com/embed/hveD4BQ_Egs" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## Reviews
 
 ### [Slim IWB Holster for Smith & Wesson .380 Bodyguard with Laser](https://serp.ly/@universityofguns/amazon/colt-mustang-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=colt-mustang-holsters&utm_term=slim-iwb-holster-for-smith-wesson-380-bodyguard-with-laser)
@@ -279,3 +281,5 @@ Warranties can vary between manufacturers and models. Some may offer limited lif
 Shipping times can vary depending on the seller, the shipping method chosen, and your location. Typically, shipping times can range from a few days to a couple of weeks. Always check the shipping information on the product page or ask the seller for an estimated delivery date.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
+
+Video URL: https://www.youtube.com/watch?v=hveD4BQ_Egs

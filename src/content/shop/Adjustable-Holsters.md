@@ -34,6 +34,8 @@ Whether you're an avid hunter, a sharpshooter, or just someone who wants to ensu
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
+<iframe width="800" height="450" src="https://www.youtube.com/embed/7hJxaW5fN10" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## Reviews
 
 ### [Blade-Tech Classic OWB Holster for CZ Shadow 2](https://serp.ly/@universityofguns/amazon/adjustable-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=adjustable-holsters&utm_term=blade-tech-classic-owb-holster-for-cz-shadow-2)
@@ -225,3 +227,5 @@ To determine if an adjustable holster is compatible with your firearm, check the
 The maintenance and care requirements for adjustable holsters vary depending on the material and design. Generally, leather holsters may require conditioning or occasional cleaning, while nylon or Kydex holsters may only need wiping down with a damp cloth. Always follow the manufacturer's recommendations for proper care and maintenance of your adjustable holster.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
+
+Video URL: https://www.youtube.com/watch?v=7hJxaW5fN10

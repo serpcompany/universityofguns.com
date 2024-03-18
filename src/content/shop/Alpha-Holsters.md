@@ -38,6 +38,8 @@ Looking for a reliable and comfortable holster for your firearm? Alpha Holsters 
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
+<iframe width="800" height="450" src="https://www.youtube.com/embed/3nvJKa-4fkw" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## Reviews
 
 ### [IWB Kydex Holster for Smith & Wesson M&P Shield](https://serp.ly/@universityofguns/amazon/alpha-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=alpha-holsters&utm_term=iwb-kydex-holster-for-smith-wesson-mp-shield)
@@ -253,3 +255,5 @@ Alpha Holsters are compatible with a wide range of firearms, including pistols, 
 Yes, Alpha Holsters offers several customizable options such as adjustable retention, different colors, and various attachment options. Visit their website to explore the available customization options for each product.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
+
+Video URL: https://www.youtube.com/watch?v=3nvJKa-4fkw

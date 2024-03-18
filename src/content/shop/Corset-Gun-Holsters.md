@@ -28,6 +28,8 @@ Welcome to our comprehensive guide to corset gun holsters! This article is your 
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
+<iframe width="800" height="450" src="https://www.youtube.com/embed/5MtcA-xlrjI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## Reviews
 
 ### [Tactical Multi-Purpose Belly Band Holster](https://serp.ly/@universityofguns/amazon/corset-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=corset-gun-holsters&utm_term=tactical-multi-purpose-belly-band-holster)
@@ -183,3 +185,5 @@ Always practice proper gun safety when carrying any type of firearm, including t
 Consider factors such as your body measurements, the size and type of firearm you plan to carry, your preferred clothing styles, and any specific safety features when selecting a corset gun holster. Reading product reviews and consulting with knowledgeable sales representatives can also help you make an informed decision.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
+
+Video URL: https://www.youtube.com/watch?v=5MtcA-xlrjI

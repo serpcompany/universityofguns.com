@@ -38,6 +38,8 @@ Discover the perfect Seecamp 32 holsters to fit your needs with our roundup. Fea
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
+<iframe width="800" height="450" src="https://www.youtube.com/embed/xOoKB-9790E" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## Reviews
 
 ### [High-Quality Glock 19/23/32/44/45 OWB Holster with IDPA Legal Speed Cut](https://serp.ly/@universityofguns/amazon/seecamp-32-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=seecamp-32-holsters&utm_term=high-quality-glock-1923324445-owb-holster-with-idpa-legal-speed-cut)
@@ -225,3 +227,5 @@ To safely and legally carry your Seecamp 32, familiarize yourself with your loca
 It is not recommended to use a Seecamp 32 holster with other firearms, as the size and shape of the Seecamp 32 may not fit properly within the holster. This can result in poor retention, difficulty drawing, and may cause unnecessary wear on both the holster and the firearm.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
+
+Video URL: https://www.youtube.com/watch?v=xOoKB-9790E

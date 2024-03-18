@@ -32,6 +32,8 @@ Whether you're a beginner or an experienced shooter, this article will provide y
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
+<iframe width="800" height="450" src="https://www.youtube.com/embed/6PRMdB9GIw8" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## Reviews
 
 ### [Urban Carry LockLeather OWB Combo Holster with Magazine Pouch](https://serp.ly/@universityofguns/amazon/coach-gun-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=coach-gun-holsters&utm_term=urban-carry-lockleather-owb-combo-holster-with-magazine-pouch)
@@ -191,3 +193,5 @@ When not in use, it is essential to ensure your coach gun is stored in a cool, d
 While both materials offer durability and protection for your coach gun, leather tends to be more expensive and has a classic, timeless appearance. Synthetic materials are generally more affordable and can be more resistant to water and wear, which may make them a better choice for demanding environments or active lifestyles.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
+
+Video URL: https://www.youtube.com/watch?v=6PRMdB9GIw8

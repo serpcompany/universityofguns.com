@@ -38,6 +38,8 @@ Introducing our top picks for 686 Holsters, perfect for any gun enthusiast or de
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
+<iframe width="800" height="450" src="https://www.youtube.com/embed/tDakQvM1Pak" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## Reviews
 
 ### [Slim and Comfortable IWB Holster for Sig Sauer P365/P365X](https://serp.ly/@universityofguns/amazon/686-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=686-holsters&utm_term=slim-and-comfortable-iwb-holster-for-sig-sauer-p365p365x)
@@ -241,3 +243,5 @@ To safely store your firearm and holster when not in use, invest in a high-quali
 Yes, there are various add-ons and accessories available for 686 holsters, such as magazine carriers, duty belts, and modular attachments for versatile carry options. These accessories can enhance the functionality and convenience of your holster, allowing you to tailor your firearm carry setup to meet your individual needs and preferences. Be sure to research compatibility and suitability before purchasing any additional accessories for your holster.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
+
+Video URL: https://www.youtube.com/watch?v=tDakQvM1Pak

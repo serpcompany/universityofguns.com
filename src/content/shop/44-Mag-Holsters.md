@@ -40,6 +40,8 @@ From sports and outdoors to gun safes and firearms, we've got you covered when i
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
+<iframe width="800" height="450" src="https://www.youtube.com/embed/KqkziXJY2r8" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## Reviews
 
 ### [Universal 9mm/.40 Double Stack Mag Carrier - Adjustable OWB/IWB for Right or Left Handed Shooters](https://serp.ly/@universityofguns/amazon/44-mag-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=44-mag-holsters&utm_term=universal-9mm40-double-stack-mag-carrier-adjustable-owbiwb-for-right-or-left-handed-shooters)
@@ -251,3 +253,5 @@ Gradual use, adjustments, and conditioning will help break in a new leather hols
 Yes, however, it is essential to ensure that the holster can accommodate the added length and width of the suppressor or silencer without compromising safety or functionality. Some holsters are designed to accommodate firearms with suppressors, while others may require custom modifications. Always confirm compatibility and safety before attempting to use a holster with a suppressor/silencer.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
+
+Video URL: https://www.youtube.com/watch?v=KqkziXJY2r8

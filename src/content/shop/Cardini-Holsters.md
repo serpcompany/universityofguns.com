@@ -38,6 +38,8 @@ Whether you're a dedicated sportsman or just getting started in the world of fir
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
+<iframe width="800" height="450" src="https://www.youtube.com/embed/szvjC93Bo1g" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## Reviews
 
 ### [Custom Mod1 IWB Kydex Holster System for Faxon FX-19](https://serp.ly/@universityofguns/amazon/cardini-holsters?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=cardini-holsters&utm_term=custom-mod1-iwb-kydex-holster-system-for-faxon-fx-19)
@@ -217,3 +219,5 @@ Cardini Holsters may offer discounts on bulk purchases depending on the specific
 While Cardini Holsters do not currently offer customization options, they do provide a wide variety of designs and models to suit a range of preferences and requirements. You can browse their product catalog to find the best holster for your needs.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
+
+Video URL: https://www.youtube.com/watch?v=szvjC93Bo1g

@@ -38,6 +38,8 @@ Discover the exciting world of ballistic knives in our comprehensive roundup. In
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
+<iframe width="800" height="450" src="https://www.youtube.com/embed/-7MPEJ1xD2s" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## Reviews
 
 ### [8-Inch Survival/Hunting Knife with Compass and Survival Kit](https://serp.ly/@universityofguns/amazon/ballistic-knives?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=ballistic-knives&utm_term=8-inch-survivalhunting-knife-with-compass-and-survival-kit)
@@ -233,3 +235,5 @@ While some ballistic knives may have the capability to fire at a distance, they 
 It is essential to store your ballistic knife in a secure location, out of reach of children and unauthorized individuals. Keep the knife clean and properly oiled to maintain its performance. Following the manufacturer's instructions for maintenance and storage is crucial to ensure the longevity and safety of your ballistic knife.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
+
+Video URL: https://www.youtube.com/watch?v=-7MPEJ1xD2s

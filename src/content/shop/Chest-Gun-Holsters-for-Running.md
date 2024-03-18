@@ -28,6 +28,8 @@ Staying fit and safe while running can be a challenging balance to strike. Chest
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
 
+<iframe width="800" height="450" src="https://www.youtube.com/embed/kRmfQh4QdTE" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## Reviews
 
 ### [Dual Shoulder Holster for Large-Frame Revolver or Auto, Ideal for Bear Country Hunting and Outdoor Activities](https://serp.ly/@universityofguns/amazon/chest-gun-holsters-for-running?utm_source=universityofguns&utm_medium=website&utm_campaign=universityofguns.com&utm_content=chest-gun-holsters-for-running&utm_term=dual-shoulder-holster-for-large-frame-revolver-or-auto-ideal-for-bear-country-hunting-and-outdoor-activities)
@@ -185,3 +187,5 @@ To clean and maintain your chest gun holster, simply wipe it down with a damp cl
 To determine the right size chest gun holster for you, measure your chest circumference and compare it to the sizing guidelines provided by the manufacturer. Most chest gun holsters come in various sizes, so you should be able to find one that fits your body type and offers optimal comfort and accessibility while running or participating in other outdoor activities.
 
 _As an Amazon™ Associate, we earn from qualifying purchases._
+
+Video URL: https://www.youtube.com/watch?v=kRmfQh4QdTE
